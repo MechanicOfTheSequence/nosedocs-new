@@ -76,12 +76,17 @@ it is annoying getting reset back, but I recognised that even though I get reset
 
 by expanding, I mean the same thing on both ends: if a feeling pure powerlessness and disempowerment is the very bottom, and you never allow yourself to get there, it essentially means you have to feel worse and worse until you can finally feel that pure disempowerment and so your capacity to feel more and more awful is expanding. likewise, if the feeling of invincibility and self-empowerment is at the top[^2], yet I'm never allowed to really get there, or spend more than a brief moment there (eg. not get much momentum there), again, I'm expanding the capacity of how good I need to feel to be able to finally experience that feeling of pure invincibility (because I attract it all, and I'm good at attracting what I want) and appreciation (cause I like the feeling of what's manifesting).
 
-[1]: it just now wonders to me if it's possible to conjure stuff, for example that it's a part of their perception... like for example, one of the things that has never had any real pull for me is gambling or betting. what if I were to conjure or focus gambling thoughts while focused on someone, and then just go back to my daily life... would I begin to become a gambler? I suppose.. however I personally think this is such a monumental waste of time -- because *why* would I even want to do that? it wouldn't be cause I wanted to influence another person succeptible to gambling mindset into a gambler. they may get some practise from me on overcoming those thoughts, but it seems to me to be a waste of my time entirely. just go to a casino and order a few drinks if you want to practise getting out of the gambling mindset :)
-
-[2]: I'm using the "power" words here cause it's easier to express my point to people who have not felt this way before, but it's so much more than that. the magnificence of everything coming together and all the great feeling of love and self-appreciation, and appreciation for the universe, source, and everything is such a powerful feeling, it's really indescribable -- so I just use the power words for this point.
 
 #### (59:35) - make a decision to focus my mind in the direction of how I want to feel
 
 this is about the make more decisions topic, and I've been becoming more and more deliberate about the things I wsnt to *do*, but I'm reminded of the conversation I had with mom this morning, and I'm just now realising that I want to become more deliberate about the way I want to *feel*. I know I've been saying this for a while now, but it still hasn't quite sunk in yet, and I don't yet navigate purely on the way I want to feel, instead of what I want to do -- yet :) just you watch... positive powerful momentum will happen
 
 > ... and they'll say, "what's going on with you? it seems like everything you point at just happens for you"
+
+[1]: it just now wonders to me if it's possible to conjure stuff, for example that it's a part of their perception... like for example, one of the things that has never had any real pull for me is gambling or betting. what if I were to conjure or focus gambling thoughts while focused on someone, and then just go back to my daily life... would I begin to become a gambler? I suppose.. however I personally think this is such a monumental waste of time -- because *why* would I even want to do that? it wouldn't be cause I wanted to influence another person succeptible to gambling mindset into a gambler. they may get some practise from me on overcoming those thoughts, but it seems to me to be a waste of my time entirely. just go to a casino and order a few drinks if you want to practise getting out of the gambling mindset :)
+
+[2]: I'm using the "power" words here cause it's easier to express my point to people who have not felt this way before, but it's so much more than that. the magnificence of everything coming together and all the great feeling of love and self-appreciation, and appreciation for the universe, source, and everything is such a powerful feeling, it's really indescribable -- so I just use the power words for this point.
+
+### 2020-10-12 - (2020-10-03 p2)
+
+#### 
