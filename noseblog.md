@@ -1322,6 +1322,20 @@ anyway, when the galactic impact takes place, from our perspective, it'll feel l
 
 from that point, they'll have tons of technology and lots of understanding about how to keep people away from their connection. in addition to the new ones being born, the solar system will steadily be getting closer and closer to sirius b, so I figure it'll roughly cancel each other out and be much more manageable because I'll be gone, so things will be pretty steady, and it'll appear like society is heading into the tubes at the same time as people are getting more and more enlightened every day -- kind of like an irony almost. like I said, they're tasked with the impossible job of making sure that no one actually becomes enlightened, fighting off the energetic effects of sirius b each year. we'll see how that goes :) it may happen that these sorts of separations may happen again, and/or become more common, once they figure out how they all work. who knows...
 
+### 2020-10-12 11:?? - starting over
+
+@[youtube](https://www.youtube.com/watch?v=5x7Mph8oOIg)
+
+all things attracted collectively or individually have both wanted and unwanted, so when I give these ideas, I'm showing off the unwanted part, and I'll leave it to the reader to determine what the wanted part it. however, to give an example, last night in @[abe-now](2020-10-03) notes I gave the solution to my question regarding how I would go from right now where I'm quite stagnated to, unbelivably impressive impressive utilisation of LOA and incredible eyesight in a short period of time, even thuogh it does not look like I'm making enough improvement fast enough to be more powerful than their systems now, in at least a few years at the rate I'm going... it's because I'm not allowed to get very much momentum, and each time I get reset back I have to start over, but the starting over is getting faster, and I'm neither losing as much ground or resonant to nearly as many bad ideas now, either.
+
+so, while I give the "unwanted" version of the same thought, it doesn't matter to illustrate both because, at best they'll give me more pratise, and at worst, they'll determine it also be to unwanted. doesn't matter to me, because it's my perception that matters.
+
+another example of this is for example when watching stars, I get my consciousness taken away -- more than 2-5 times a night. it's pretty frequent, and it used to really bother me, but I know that even that it's still working out fine. for example, if I were to continue on star-watching uninterrupted, I would say gain say 50 units more in the night. instead, I only get say 20 or something. however, the desire it has created may make the following night *more* productive -- say 60, if I don't mind the increased difficulty. instead I lose consciousness again and I get 22 or something. next night again, say 70... the point is, that number increases faster because of more desire AND additionally, my own capability to keep my consciousness is improving, and having to restart a few times per night, my 0 to 100 speed is improving as well.
+
+so while it looks completely unwanted on the face of it, if one is a master of perception, the seemingly "unwanted" is actually more wanted than the originally wanted part. for that same reason, something that can be seen as "death" (which is just a transition) can go from something unwanted to something more wanted when transitioning into something new and exciting.
+
+### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
+
 ### 2020-09-20 ??:?? you say all manifestations are a win-win huh? what about the serious stuff like murder or rape or slavery or something
 
 @[youtube](https://www.youtube.com/watch?v=o-XGiNzzwso)
