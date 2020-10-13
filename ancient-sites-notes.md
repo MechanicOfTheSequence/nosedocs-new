@@ -1,3 +1,14 @@
+## premises that I assume to be true...
+... and make all of these concepts easier to understand.
+
+I believe that some of the peoples, but likely not all, had mental capabilities that were unmatched by others. seeing that there are so many things in very inaccessable places, I assume that they can fly (as suggested by all the winged and avian deities).
+
+I also assume they had very good eyesight, and likely the ability to project thoughts into 3d space, allowing them to make pecise 3d plans and to produce work with such a quality. tesla is said to have had this capability, and I know from my own experience that this is certainly possible.
+
+they were capable of astral travel and there was some sort of global consciousness. all around the world, some events were so notable that events (especially ones in the heavans, involving the plaetary gods) seems to be universal. they seemed to be able to fly around in the solar system, and potentially the galaxy as well. I believe this is a capability learned from "stargazing" or "staring" (staring directly into a star until an altered state of consciousness is achieved, and one is able to travel around).
+
+additionally, it seems pretty likely that if they were so perceptive, they had the ability to perceive energy and fluid motion. one of the amazing things of these gods is their mastery of acoustic and fluid dynamics. my theory is that they literally were able to "see" it. you can see evidence of this in tesla's work as well. for example, the "tesla turbine" is an incredible invention that shows mastery and abiltity to perceive and manipulate fluids in the imagination. tesla's turbine is to fluid dynamics what these ancient stone boxes and monoliths are to acoustics.
+
 ### longyou caves longyou grottos
 
 @[youtube](https://www.youtube.com/watch?v=VVJTCaBsUHs)
@@ -46,4 +57,5 @@ the stone type may have something to do with it as well, as these niches seem to
 - in @[youtube](https://www.youtube.com/watch?v=r0kKrr4Q0fU) tina notes that sometimes the walls are smooth and other times that they show signs of these tool marks.
   - 1:58 these marks appear to be intentionally made in a mirrored fashion. additionally, on the roof there, it looks like there is a focal point in the centre. I theorise that places like even the osirion were never completed, or that's evidence of the tool they used to extract the stone (different from the one in the unfinished obelisk). however, these tool marks appear to be intentionally focusing something somewhere.
 - it's possible that the tool marks were actually created using some sort of acoustic or energetic signal. it appears that the rock has kind of chipped off, in a non-smoothe way, meaning that the rock chipped and fell away in parallel grooves. (which then had to be excavated).
+- in one of tina's videos, she mentions the cave (which have the tool marks), do not echo. this might be an indicator that these tool marks are designed to *dampen* the reflection of the signal, instead of shape it.
 - clearly this technique is not the same one as the one used in the unfinished obelisk
