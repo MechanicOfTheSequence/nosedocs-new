@@ -118,7 +118,7 @@ solar system claims:
   - this configuration is strangely similar to the "titans" which gaia produced with uranus, which were also 6 males and 6 females -- though I doubt this is the same thing.
   - these eventually individualised about 500kya.
 - 100kya the final versions of the humans were prepared for the planet.
-- when concetrations of humans were in a single area, the higher population density produced imbalances in the planet (because of their symbiotic relationship with the planet and part of the planetary consciousness) which caused geological upheaval which resulted in attracting a number of catastrohes.
+- when concetrations of humans were in a single area, the higher population density produced imbalances in the planet (because of their symbiotic relationship with the planet and part of the planetary consciousness) which caused geological upheaval (eg. attracting a number of catastrohes).
 
 
 ---
