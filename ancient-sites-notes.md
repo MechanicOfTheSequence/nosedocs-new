@@ -59,3 +59,27 @@ the stone type may have something to do with it as well, as these niches seem to
 - it's possible that the tool marks were actually created using some sort of acoustic or energetic signal. it appears that the rock has kind of chipped off, in a non-smoothe way, meaning that the rock chipped and fell away in parallel grooves. (which then had to be excavated).
 - in one of tina's videos, she mentions the cave (which have the tool marks), do not echo. this might be an indicator that these tool marks are designed to *dampen* the reflection of the signal, instead of shape it.
 - clearly this technique is not the same one as the one used in the unfinished obelisk
+
+### geopolymer walls in peru
+
+- clearly these stones were constructed from a geopolymer. however, at the same time, you have the example of the "false doors" and things like that etched directly into existing rocks, so while some of the construction technique is in the ability to control the quality of the stone and its shape with a geopolymer, they also clearly have the ability to soften stone and mould it to their desire. this geopolymer seems to be usually of a limestone quality.
+- in @[youtube](https://youtu.be/x9S4CqY3eSA?t=1010) (and many other places), you can see that there are what appear to be "scoop marks" -- which visually look similar to the same marks which appear around the unfinished obelisk.
+- tina suggests an idea which is that the stones on top were pressed into the bottom ones, which were still plyable. this seems to work, because I cannot see any other way that "lips" in the joinery could possibly be achieved. the "scoop marks" on the stones seem to suggest that they were able to soften the rock somehow, so once the rock is softened, then you would only need to apply pressure from the top to have the lip appear on the bottom. this also could explain the 3d curved intersections between blocks.
+- it's clear that the blocks were all non-uniform for vibrational reasons. whether that is to mitigate seismic damage or because the structures theirselves were designed to be energised and emit some sort of electricity, is unknown. for example, similar structures are found in egypt as well, but I think that one was granite (osirion? or was it another temple?), and so this non-uniform technique of construction seems to be designed to withstand massive amounts of vibration occuring within its structure.
+
+### limestone notes
+
+- it appears that they have the ability to add and remove stone with relative ease. it's not immediately obvious that they can add stone, but there are clear examples of this, like @[youtube](https://youtu.be/OBkgI34mMH0?t=3428). you simply cannot carve out the stone all the way around those letters (that's phonecian), so somehow they had the ability to draw stone on to the tablet like it were some sort of ink. additionally, in many many sumerian reliefs (eg. @[youtube](https://youtu.be/OBkgI34mMH0?t=2147)), you can clearly see the detailed human figures "carved" into the stone but if the rock were soft, then, clearly at some later time, the stone was softened and then the cuneiform writings were simply pressed into the stone, as if it were soft as wet clay.
+- these rocks that were "softened" seem to be limestone usually. it would be nice to get samples of these different tablets tested to see the rock composition (eg. if it was a geopolymer or not)
+
+
+### nubs (and reverse nubs)
+
+- nubs appear on both granite (eg. menkaure) and limestone (eg. peru) type stones.
+
+### unfinished obelisk
+
+- the explanation for why it was unfinished is because it has a crack in it, however, I believe this is false. it's unreasonable for me to think that the builders would see the crack on the top there, continue shaping the surface to be mostly flat, and then continue on extracting the sides of the obelisk all with that giant crack in the top. certainly they would have realised that there was a crack in the stone and halted extraction long before, and not continued on to extract a damaged stone.
+- the next explanation (proposed probably sarcastically by dunn) is that during the extraction of the obelisk, too much force was exerted on the stone during its extraction and that's what broke it. plausible, I guess. doesn't explain why they didn't, after doing all that work, instead use the unbroken rest of it for other stone boxes or smaller statues or whatever.
+- I do not believe those were the reasons why it was halted -- and  and does not explain why there are massive stone structures all over egypt and the rest of planet as well (aswan, balbek, yangshan, easter island, etc.) which were all in the middle of extraction really big monolith when something halted their work.
+  - additionally, in all of these examples of halted construction, the extractions are always the biggest monoliths -- bigger than any of the finished ones, so it appears that globally, all over the earth, people were so energised as to think that they could create bigger monoliths than previously accomplished, when something interrupts them. this idea reminds me a little bit of the tower of babel in concept.
