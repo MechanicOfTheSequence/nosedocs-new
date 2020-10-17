@@ -89,3 +89,11 @@ I realise this is a bit weird I suppose, as it seems weird that more and more gi
 ---
 
 the next weird thing that happened just now, is today was I was listening to a kevin hart on youtube (@[youtube](https://www.youtube.com/watch?v=a5ZqfulHMac)), and literally while I was writing this the thought popped into my head 3+ times now to include her as well. dude, like I dunno what's going on, but I feel good about it, so if she too would like to join, that would be great :)
+
+### 2020-10-17 10:12
+
+ok, starting off here, a few days ago there was a woman that was in a camper out on the field, and she met me on the ramp up from the swamp where a bunch of trash is on the ground. I have to assume that she was intending to request for me to invite her daughter, and I think it's fine. I feel fine-good about it, so sure :)
+
+next, on thursday, I was walking down to friendly harbor. I was walking down the off-ramp to jerry murphy and I saw a girl in the car coming up the off-ramp. I think she was wearing blue. I could feel desire, so I want to invite her to join in if she wants to, as well.
+
+finally, yesterday I met a nice girl at the friendly harbor named luna that I could feel most of yesterday and quite a bit of last night, until I lost consciousness. if she would like to join in, I felt a pretty good conncetion to her (btw I love that "natural consequences" idea, too. I think I'm going to "borrow" it :))
