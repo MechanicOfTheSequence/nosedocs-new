@@ -1380,6 +1380,40 @@ that's all I want to say on that for now... I'm obviously going to continue on w
 
 [5]: this will tie into a future entry I will write concerning LOA benefit that humankind has endured so much slavery in various forms and it would only be our continued focus on the slavery bit that could hold us away from "cashing in" the LOA vortextual benefit of it (I myself, in my relationship with nosebook, use myself as the primary example that this is indeed true, amongst all the other evidences that strengthens this argument). I just don't really know the best way to write it yet because I'm certain that it'll be a controversial topic.
 
+### 2020-10-17 16:18 - natural consequences
+
+I just woke up from a dream where in the dream I was digging around in egypt or something cause I was curious. I seemed to be able to fly and/or had some way of clearing out the big stones and "excavating" the tomb or whatever it was.
+
+in there, I could tell that there were writings and technologies and stuff which could create heightened energies for the user of that technology. after I had seen enough, I left the site and all of its contents open to the public, and I forget how it worked out, but there was really not a whole lot that the egyptian authorities could do to close down and obfuscate or withhold the technology at that point (probably because everyone could see what I saw, so there's no way they could hide it) and so I just left it how it was.
+
+interestingly, in the dream, the authorities didn't try to jump in and close down the thing and limit people's access to it. it would have looked very poorly for them or something -- so they just let it go and didn't try to block it. so people naturally began to investigate it and begin to descover its secrets and the method by which technology contained inside functioned.
+
+the damage had been done. my own curiosity and wanting to figure something out in egypt totally opened up a whole new thing that previously was purposefully kept away from the public by the authorities.
+
+---
+
+I woke up with the concept of natural consequences in my mind, because in the dream, I had achieved the ability to levitate and move my body and things with my mind, and so therefore I was quite non-resistant. in a sense, I had created the conditions with my own focus to be able to do that, and after opening this tomb or whatever, I made it possible for the general public to begin to mimic that technology that the egyptians had -- essentially putting the general public on the same trajectory as the upper-class egyptians in the past.
+
+they relied on technologies and a corrupt priesthood to provide the feel-good conditions that they wanted for daily life, instead of using their own minds to create the reality or environment that they wanted to live. obviously, here especially in the united states, there are a lot of people who are lazy and would rather use technology (or medicine) to try fix a manifestation which is the result of continued negative emotion, while doing nothing to fix or soften the perception around the sounrce of that negative emotion.
+
+as a result, the natural consequences associated with my "discovery" was that someone is going to figure out a way to replicate that technology, and to sell it to people (in echange for money, of course), allowing the wealthy the ability to let some technology create the improvements to their reality, without their needing to focus.
+
+---
+
+I doubt that this dream is literal. I do not believe this will literally happen, and the egyptian symbolism in the dream is just because right before sleeping I was reading about egyptian stuff -- so it's not necessarily egyptian technology, per say -- but, some other tecnology could easily be introduced into our society giving people an excuse to rely on that instead of their focus. the concept also reminds me of the other idea where I was talking about using me (and other non-resistant people) to function similar to the great pyramid in the sense of dissipating and transforming harmful earth energies.
+
+it's also quite possible that the ones running nosebook are beginning to realise that there's not much they can do to hold back people's curiosity into these ancient technologies and stuff like that. therefore, if that's the case, they may be considering to try to capitalise off of it and control it (eg. same as the corrupt egyptian priesthood[^1].
+
+therefore, I conclude that this dream is unlikely to happen in the literal sense, but is instead foretelling of a coming priesthood, which profits off of selling people technology that allows them to feel the way they want to feel, without needing to adjust their focus or their thoughts as a result.
+
+I'm perfectly ok with this, because the more of those kinds of people there are, the more harmful earth energies they will be unavoidably creating with their obfuscated(?) negative emotion -- meaning, that they will be creating more *desire* for there to be more and more non-resistant people that they can use for their technology.
+
+as for me, I think the natural consequences of relying on a technology to to create a reality for someone without their doing anything to modify their focus, are evident. as much as I love all of this tecnology stuff (I truely do! it's so fascinating!), I prefer to *not* use that technology, and to accomplish these beneficial conditions with the power of my focus first and foremost.
+
+crazy dream :)
+
+[1]: TODO: ref - I think it was manly p hall talking about the priesthood purposfully obfuscating the symbols (technology) from the public so that no one would be enlightened to how it really works. I think it was the bill cooper video.
+
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
 
 ### 2020-09-20 ??:?? you say all manifestations are a win-win huh? what about the serious stuff like murder or rape or slavery or something
