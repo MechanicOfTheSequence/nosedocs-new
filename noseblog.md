@@ -811,7 +811,7 @@ all of this is building up more and more mental energy, and thoughts are becomin
 
 after the cataclysm (deluge), we're now in the second pacha[^1], and , and it seems to me that now there is an elite ruling class, because we know this with hatshepsut's obelisk that they were still capable of pulling some big stones out of the ground, anw doing some pretty amazing stonework, and 3d heiroglyphs at that time -- this was the time of moses. so, it seems that the elite ruling class had knowledge of how to create and use these energies.
 
-dispite their ability to harness these energies, the planet is still moving away from sirius b, and so small things are beginning to take place. the lush green egypt is starting to turn slowly to a desert, and other small things that would eventually accumulate. the main thing to note here is that the peoples had some bit to do with it, but this time it's the priests and the kings that have access to this energy, and so by the time the 18th dynasty is in place (hyxos), things are beginning to become very different in the egyptian psyche, as evidenced by the change in art style during the 18th dynasty.
+dispite their ability to harness these energies, the planet is still moving away from sirius b, and so small things are beginning to take place. the lush green egypt is starting to turn slowly to a desert, and other small things that would eventually accumulate. the main thing to note here is that the peoples had some bit to do with it, but this time it's the priests and the kings that have access to this energy, and so by the time the 18th dynasty is in place (hyksos), things are beginning to become very different in the egyptian psyche, as evidenced by the change in art style during the 18th dynasty.
 
 I think that some time (soon?) after the exodus, the comet venus is captured and becomes a planet, moving earth to the 3rd orbit. she's now the "queen of heaven" -- and sits between us and the sun and mercury. this separation (along with the wanging of sirius b's energyies too) turns off a lot of the mental capabilities in the majority of humans, and only the "secrets" to attaining or harnessing that kind of mental energy are held in secret by esoteric and secret societies.
 
@@ -1446,6 +1446,89 @@ we'll see how this goes -- I guess, but at the moment, I only see how beneficial
 
 [2]: today, for example I noticed that I have been especially complainy and much more pissed off (for no reason) than usual. I tried to trace the reason why that would be back to some circumstances, but can't find anything significant enough to be considered the cause of my emotional disposition today. what I do know though, is that whatever it is, I'm resonant to the energy which is why I feel it. while thinking about this problem, I was inspired to write this, so perhaps my inspiration here is kind of providing insight into my conundrum, as it's giving me another opportunity to transform more of that energy into what I want, which means that I'll be getting mad vision upgrades once my perception transforms that energy into something wanted (eg. vision upgrades).
 
+### 2020-10-18 15:21 - getting confused with the pantheon
+
+this morning I listened to a little bit of aaron's sunday message, and he was talking about lucifer, referring to th part in isiah where it talks of lucifer attempting to exault himself above the (brightness of the) stars of God but then was brought low.
+
+this is referring to some time in the past when venus was not only more bright than now, but had a much more eccentric orbit so that it behaved much more like a comet. velikovski talks about, in "worlds in collision" how the planet venus' close approach to earth is what caused the different plagues around the exodus[^1]. there was another piece of evidence that came about recently as well (TODO: get reference to robert's video) where moses was specifically tied to the godess hathor, saying that moses amazed all. that same guy also places the pharoah which was defeated in the red (reed?) sea was none other than thutmos 4, the guy responsible for putting the "dream stelle" between the paws of the sphinx to legitimise his rulership. weird huh.
+
+in addition to that, we know that massive portions of the torah (first 5 books) are pretty severely influenced by sumerian astrotheology. it seems that moses even lifted the akadian story of the reed basket to make moses appear more approachable to the people (making him sound like one of them). inotherwords, there's a lot of marketing going on here.
+
+the 18th dynasty (which is when this happened) was a strange time because it was run by the hyksos (which just means foreign ruler) and the monothiesm that was introduced into egypt during that time. the hyksos were not popular and it's quite evident that a lot of effort was made to erase a lot of this history.
+
+it's quite likely that moses lifted the idea of monothiesm, of one guy that creates all -- both good and evil from this time. I find it strange that they "wandered" in the desert for such a long time. it appears that during this time is likely when moses was perfecting his marketing surrounding his new monothiestic religion, and perhaps I would even hazard a guess that the "wandering" was done on purpose to give moses more time to work out the bugs in the concept, and to write the torah as well.
+
+moses had to have been pretty educated, because he pulls stories from the sumerians, akadians, babylonians, etc. he also must have known about electricity as well:
+
+```
+To mention one, Moses was undoubtedly a practical and skillful electrician far in advance of his time. The Bible describes precisely and minutely arrangements constituting a machine in which electricity was generated by friction of air against silk curtains and stored in a box constructed like a condenser. It is very plausible to assume that the sons of Aaron were killed by a high tension discharge and that the vestal fires of the Romans were electrical. The belt drive must have been known to engineers of that epoch and it is difficult to see how the abundant evolution of static electricity could have escaped their notice. Under favorable atmospheric conditions a belt may be transformed into a dynamic generator capable of producing many striking actions. I have lighted incandescent lamps, operated motors and performed numerous other equally interesting experiments with electricity drawn from belts and stored in tin cans.
+
+  - Nikola Tesla (The Wonder World to be created by electricity, September 9, 1915)
+```
+
+tesla takes a pretty conservative position here, however I postulate that not only did moses know about electricity, he also knew how to operate the pyramid, and the "ark of the covenant" was a bit of that technology. when I talk about the technology, I don't just mean the generation of (unconscious) static electricity. I believe this was a device used for storing "conscious" electricity[^2] -- and the different ways of rubbing, or generating that static/conscious electricity actually begin to create a sort of field, in which heightened states of conscoiusness are achieved (and LOA, dreams, visions, etc all manifest much more rapidly). it seems that this box (and whatever was in it) was able to store this conscious energy and the user of the box was able to consciously direct this energy (though there are some recorded mishaps).
+
+however, it quite puzzles me still why moses would want to relabel venus as YHVH. the exodus happened at the end of the age of taurus, and the beginning of the age of aries (the ram). moses symbolises this with the slaying of the golden calf. interestingly enough, hathor (venus) was associated with cow (taurus), and so it seems deliberate that goddess worship associated with the golden age was no longer something desirable, and now a patriarchical masculine god was given to people to worship.
+
+venus is an interesting planet because she's in the solar system with a whole bunch of dudes. it's a serious sausage fest here, so why take the only female in the solar system and make her a masculine god that's pissed off. it must have been intentional to hide her (the godesses) power. additionally, to villify the only female in the solar system, later on she was given a bads wrap with the whole lucifer thing... I haven't quite figured it out.
+
+---
+
+so follow this idea for a moment. I'm going to rewrite the narrative from the most extreme position and then work my way back from there (in future entries).
+
+it seems that moses takes a lot of akenahten's monotheiestic (sun worship) ideas, along with some mythology from sumer and begins to create this new sun worship. at that time there were all sorts of gods worshipped, and at that time jupiter (baal) was quite popular. it appears that he wants to make the sun the supreme god of them all, out of which all other gods and things (jupiter, mars, earth, evil, good, etc) were created. notice the symbols here that moses now wants to make a supreme god which out of him all things come from, and all people have to be on the same page about this god.
+
+it's a funny idea because now on hindsight, we can look back and see that moses did not unify the pantheon of gods under one superior one, but instead created a masculine deity religion (with disguised goddess worship) which felt superior to the others, and its offshoots (muslim, chistianity, etc.) neither could be in agreement with each other who is superior and warred amongst theirselves. in a lot of ways this was a very telling symbol of the times to come, the age of aries where the aryans manifest most of these symbols in other ways.
+
+back to the revised narrative: moses new monthiestic religion needs some worshippers of this new monothiestic god to turn it into reality. at the time of moses there's a total loser in power (thutmos 4), who ironically I think achieved his power with marketing fluff as well[^3]. the story says that moses again legitimised himself as a defender of the people, by killing someone (this sounds like marketing to me)... moses goes off for a while. we don't know where he goes or what happens during that time, but when he comes back, the slaves (which, considering it was run by the hyksos, which means foreign ruler, the slaves were probably the original egyptian 17th dynasty rulers) of egypt were rescued from this moronic egyptian ruler with a set of events that were quite spectacular.
+
+to make people believe this, moses needed some spectacular events to take place to establish the strength of his new god (amongst the others). I think that moses understood the nature of this conscious energy (though science calls it static in its lowest form), and actually used the great pyramid to influence the orbit of venus to become much more eccentric. I don't really know why, but I can say that in the previous era (and in sumer), goddess worship (of venus/ishtar/innana) was quite popular, and had to be done away with to make way for the new patriarchical aryan boys.
+
+if venus were to suddenly become erratic and (from the perspective of the people) attempt to overthrow the others in brightness (becoming the new "sun") and cause massive amounts of chaos in the solar system as a result, this would be the end of the goddess worship. whether moses made venus' orbit highly eccentric or not or if this was alraedy happening, is unclear, but there seems evidence (see velikovski) that venus around the time displayed much more comet-like behaviour. either way, this was the end of the goddess worship, and the power associated with these fertility rituals remained only for the ones in power to know about.
+
+something like that. I'll eventually update with more ideas as they come.
+
+---
+
+the thing that I want to mention here is the confusion associated with the YHVH thing. there are two ways that I can see this. one is that YHVH is venus (the goddess principal), which is later renamed to and associated with the devil (as lucifer) to further villify this goddess principan. the second is that YHVH is sol, and he (YHVH) "sent" moses and venus to deliver his choosen people from the foreign rulers. I dunno.
+
+however it may have been, I find this stuff kind of fascinating and I don't really know why, but it gets all really confusing trying to figure out and make sense of this whole mess of gods and stuff. it's definitely much more complicated than any modern soap-opera, by far -- and I think that aaron is correct in saying that the whole point of all of this is to not try and put too much emphasis (believe in) or make sense of these external things (planets, gods, etc) to make you or give you the power that you want -- but instead to turn inward and find out that you are divinity within.
+
+one of the things that I think is advantageous of these interesting turns of events, is that I do believe that a man can achieve higher consciousness states from the goddess and sexual states, one must not depend on it and instead to turn within and find that you are a star.
+
+---
+
+let's look at the symbols from this proposed rewrite of the narrative.
+
+- moses is the symbol of transition from the bull to the ram
+  - goddess worship was made a thing of the old relgions, with the new religions being masculine and monotheistic.
+- elijah takes the idea that you don't need to sacrifice physical things in order to believe something, making it available for people to begin to believe a symbolic thing.
+  - the prophets, turn venus into a man, a fallen angel, one rebellious of YHVH that tries to exault himself higher than the established authority (eg. keeping unexaulted masses under control)
+- jesus shows up as the transition from the ram into the fish, and is given as a sacrificial lamb
+  - the need for the romans to get these christains under control, forces them to establish the roman church, which abolishes and rids the earth as much as possible of idolotry, which is the worship mostly of celestial beings and other pagan traditions, essentially ensuring that the "powerful" sacrifices remain in the occult practises, which essentially turns down the amount of catastrophe attracted by the growing masses.
+- I show up as the transition from the fish into the human
+  - I expect that the result will be that in the following generations, nosebook will completely remove any of that conscious energy that anyone could possibly have gotten from sexual (fertility/goddess) worship or any other physical condition.
+    - they will ensure that the only way to achive this kind of conscious energy is if you pay them (this is the new priesthood).
+  - if you accomplish on your own it with your own focus, like I have been showing is possible, they'll try and mitigate its effects as much as they can, fighting as hard as they can against it.
+    - by fighting against it, they'll be amplifying it, which means they'll have to fight harder against it (runaway feedback loop). in this way, I think I am a visual symbol for all to see, of the coming age of aquarius.
+  - I also expect that they will be able to nearly completely remove all of the negative effects associated with the attraction of unwanted by those in charge (see last entry).
+    - the guys in charge must maintain their superiority, so they'll need to make sure that they're visually experiencing more of this conscious energy, meaning they'll be attracting at a stronger rate than ever, meaning that they'll need (desire) to dissipate this negative energy further and further (also a runaway feedback loop).
+
+I don't know how much further it's going to go, but it seems like the guys in charge will get more and more corrupt and powerful, while at the same time, we're going to learn to better and better learn to use our focus to create what it is that we want (and nevermind them).
+
+the reason why I say that I don't know how long it's going to go, because it seems to me like this sort of setup, where they're forcing us to learn to use our focus, instead of the conditions (which they're hoarding for theirselves and neutralising for us). if I assume that the whole 24ky great cycle is a thing, then it means that that this will continue on for at least another 4k or more years, with the the corrupt priesthood getting more and more ridiculous along the way. this seems evident to me because of the symbols associated with the goat which will come into power in 2ky from now, meaning that things will continue to get more and more extreme.
+
+however, at the same time, we'll stadily be approaching sirius b, so at some point (maybe the archer?), I figure either they'll no longer be able to keep up their ways further, or we'll do the paradox thing where we quite literally never get the manifestation, and the acceleration is so tremendous, that its continually growing (evolving) reality in the present (now) moment far surpasses the greatness of a manifestation. we'll have to see :)
+
+it's funny that the it looks like each of the "bad" things that has happened through each of these ages has given the INFECTED ONES with the need to satify their superiority, further capability to force humankind to no longer need or rely on the beneficial conditions for their well-being. we keep getting better and better at it, no matter how much more optimal their conditions are in comparison to ours we keep doing better and better -- which considering LOA, will continue to exacerbate their inferiority complex.
+
+
+[1]: there is another documentary which claims that the plagues were caused by the santorini volcano, and perhaps both could be true. there's a lot of evidence to support that comet's approach to another body induces currents, causing earthquakes and volcanos.
+
+[2]: though science calls this electricity static, this electricity permiates all things, and can contain conscoiusness, and is essentially the building block of what we call "source energy" or the immense quantities of current flowing between celestial bodies out in space -- and from comet/planet to planet like I postulate happened multiple times in the past causing much of the terraforming (grand canyon, etc.) and transferring a bit of that "consciousness energy" between these celestial bodies. clearly we know very little about this energy, and how it creates attractive forces like gravity and atmospheric (double) layers, and determines orbits and stuff.
+
+[3]: one does not need to read much of the dream stelle to realise this is a very ridiculous marketing ploy.
+
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
 
 ### 2020-09-20 ??:?? you say all manifestations are a win-win huh? what about the serious stuff like murder or rape or slavery or something
@@ -1462,7 +1545,7 @@ superior race -> but under what conditions?
 
 war of the titans.
 zeus & cronos battle (eg. serpent & eagle battle)
-one thing I don't really get is why the 18th dynasty (hyxos/semites), made the sphynx such a big deal. sphynx may have also been a falcon or eagle previously. additionally, I don't understand where the lion symbolism comes into play (lion of judah)
+one thing I don't really get is why the 18th dynasty (hyksos/semites), made the sphynx such a big deal. sphynx may have also been a falcon or eagle previously. additionally, I don't understand where the lion symbolism comes into play (lion of judah)
 
 ---
 
