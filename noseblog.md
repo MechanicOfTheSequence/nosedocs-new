@@ -1416,6 +1416,36 @@ crazy dream :)
 
 [1]: TODO: ref - I think it was manly p hall talking about the priesthood purposfully obfuscating the symbols (technology) from the public so that no one would be enlightened to how it really works. I think it was the bill cooper video.
 
+### 2020-10-18 08:03 - more thoughts on natural consequences
+
+when I was younger, my parents figured out it was difficult to punish me (for various reasons but usually because the punishment didn't make me feel bad, or I liked the isolation), so they ended up adopting a form of natural consquences, even though they didn't call it that.
+
+it's a really good system because I learned to go more toward what I wanted, instead of trying to avoid some contrived consequences.
+
+I was thinking about this and that seems to be the case for a lot of people (not all though) -- and it seems that this is the case for those inclined toward going in the direction of what they want. for the ones that like to go in the direction of what they don't want, it works terribly, because they receive those natural consequences.
+
+therefore, for someone to constantly be able to go not in the direction that feels good, and not receive conseqences, they must make contrived consequences for others, and then have some method, by which they're able to avoid the conaseqences (they're above the law or the authority or whatever).
+
+in the extra-terrestrial view of creation, kuthumi talks about how the sirians and the creators built natural consequences right into the system by tying the genetics to this planet and the planetary consciousness. they said that any time there was highehr population density of humans in an area, the effects would be more pronounced and they would attract negative consequences to their thought/emotion. additionally, you have the reflective nature of LOA, meaning that your reality is a reflection of how you feel, and that's how you navigate time.
+
+in the past there was this bizarre concept of a "whipping boy" -- someone responsible for receiving the contrived conseqences (punishment) for their actions. in a sense, this is similar to what I'm proposing when I talk about the idea of dissipating earth's harmful energies (the natural consequences) of their continued negative emotion into less resistant people like myself. I'm essentially saying that I'll absorb their natural conseqences that they're inducing in the planet with their emotion[^1], so I would essentially become their "whipping boy" absorbing their natural consequences.
+
+this is kind of a cool idea because there are a number of advantages to it. first, I get tons of extra practise and it also makes me much stronger as I learn to transform that harmful energy into something wanted[^2]. additionally, once I'm good at transforming that energy, it allows them to be able to give their undivided attention to what they don't want (eg. what feels bad to them) without having to reveive the natural consequences of it. this is a good thing because over time, as they learn to utilise more and more vibrational whipping boys for theirselves, a natural change will occur:
+
+they may be able to be really pissed off and stuff and get really good at being in a constant state of being pissed off all they want (make a full career out of it), but if you've noticed, when they've tried to apply abitrary contrived consequences to me, they've been the ones walking away with mud on their face. it's obvious why that is (if you understand LOA)...
+
+if I'm focused on and giving my attention to what's wanted, no matter how much harmful or paralysing energy they put into my body, I'm *still* going in the direction of wanted even though it's much slower. so, when they go to try and integrate me (who creates reality really quickly, which is why they need to keep slowing me down), into some form of consequences (action), reality gets created really quickly and I walk away more in the direction of wanted, and them more in the direction of unwanted.
+
+what this means is that naturally, they're going to make less and less arbitrary and contrived consequences (which they can get around) to try and avoid their natual consequences. why? because like with me, they'll find that these contrived consequences are actually causing more problems than they're solving, and they're the ones walking away closer to what they don't want than what they do want. leaving us alone, I am certain will be a more beneficial thing than getting their unwanted reality created really fast. they can instead just avoid their natural consequences directly by dissipating that harmful energy into their someone who's capable of dissipating it, or once they're good at it, transforming it (consciously, instead of with sacred geometry like the pyramid) into something beneficial and making them stronger.
+
+there is another advantage too which is that with them able to really give their undivided attention to what doesn't feel good, we're artificially expanding the range of emotion one can feel (as I talked about previously)
+
+we'll see how this goes -- I guess, but at the moment, I only see how beneficial it will be for all of us. I'm gonna be so strong and so good at transforming that energy!!! earth and everyone in it's capacity is really going to expand as well. also, they're going to finally be able to gain the control that they want over their the previously "unavoidable" cataclysms (the natural consequences).
+
+[1]: just like how when I feel good, the air and the weather wants to feel good and warm, just like I do. likewise, when they feel terrible and constantly pissed off, they too are inducing weather and climate effects that feel the same way. the natural consequences work both ways.
+
+[2]: today, for example I noticed that I have been especially complainy and much more pissed off (for no reason) than usual. I tried to trace the reason why that would be back to some circumstances, but can't find anything significant enough to be considered the cause of my emotional disposition today. what I do know though, is that whatever it is, I'm resonant to the energy which is why I feel it. while thinking about this problem, I was inspired to write this, so perhaps my inspiration here is kind of providing insight into my conundrum, as it's giving me another opportunity to transform more of that energy into what I want, which means that I'll be getting mad vision upgrades once my perception transforms that energy into something wanted (eg. vision upgrades).
+
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
 
 ### 2020-09-20 ??:?? you say all manifestations are a win-win huh? what about the serious stuff like murder or rape or slavery or something
