@@ -96,4 +96,4 @@ ok, starting off here, a few days ago there was a woman that was in a camper out
 
 next, on thursday, I was walking down to friendly harbor. I was walking down the off-ramp to jerry murphy and I saw a girl in the car coming up the off-ramp. I think she was wearing blue. I could feel desire, so I want to invite her to join in if she wants to, as well.
 
-finally, yesterday I met a nice girl at the friendly harbor named luna that I could feel most of yesterday and quite a bit of last night, until I lost consciousness. if she would like to join in, I felt a pretty good conncetion to her (btw I love that "natural consequences" idea, too. I think I'm going to "borrow" it :))
+finally, yesterday I met a nice girl at the friendly harbor named luna that I could feel most of yesterday and quite a bit of last night, until I lost consciousness. if she would like to join in, I felt a pretty good conncetion to her (btw I love that "natural consequences" idea, too. I think I'm going to "borrow" it :)) [EDIT: I felt a little resistance after writing it, and then I woke up and felt less -- like it was ok, but I think it's ok to let this sit for a bit. TBD]
