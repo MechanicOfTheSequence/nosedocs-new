@@ -1566,6 +1566,31 @@ that pretty much clears up my inquiry into the subject for me. the only thing th
 
 in a sense the death (or rebirth) process is all about finding a new version of yourself -- something which improves upon the previous you. I don't think you need to die to allow this (reincarnation process) to happen.
 
+### 2020-10-21 21:05 - thoughts on individualisation
+
+ok, now in the video he makes a reference to the idea that you can imagine yourself like a bubble[^1] and the bubble is your karmic structure and the air inside is you. when you pop the bubble, what air is you now? the bubble (or karmic cycle) is what makes you, you.
+
+in this I would have to agree (kinda), and because I was feeling some reactions on it, I would like to offer some thoughts. we humans (especially americans) don't like to think of the idea that you are the universe, and there's no difference between you and those in which you feel are your enemies. that's precisely what he means by a strong karmic structure, however, karmic structure is also what you could consider "preferences".
+
+as I have released more and more resistance, I have noticed that the thing that bothers me less and less is that there are people trying to exert something into my experience. the more and more I understand it all, the more it becomes clearer and clearer that it *is all attraction*. there is no one doing anything to me that I am not already doing to myself.
+
+so, when I move away from these different perceived conflicts, and start going (with focus) toward only the things that are wanted or feel good to me, then what is happening is that my "karma" is no longer an energy that has conflicts or "unresolved differences" with someone. I allow them to exist, and they have no effect on me, unless I'm attracting them into my world. when this happens, I have "released that resistance" or, said in a better way, I'm no longer giving my focus to (attracting) that into my experince, and so they are no longer a part of that "karma".
+
+you can imagine that at some point, I will begin to attract more wanted into my life than unwanted, and this is where the curve "goes off to infinity". when this infinity happens, this is when something makes a transition into a higher energy state or a new species or whatever.. a new completely never-before-seen form capable of holding the new energies -- a new karmic structure if you will begins to appear.
+
+what I believe also happens once the tipping point toward more wanted than unwanted happens, is I gain the ability to retain my consciousness "between incarnations" -- or rather what I talk about the 6th dimension -- source-like perception, and you can now perceive yourself outside of time and in many incarnations.
+
+in a sense, what happens when that happens, is that the bubble does not pop, but instead the bubble is just a bigger and bigger thing as you continue to add on more and more preferences to what it is, and who you really are.
+
+however, notice that the bigger the bubble gets, the more components are needed. if you were a planet with people on it, you would need both bad and good people. you would need to have certain rotation around a sun, etc. your preferences become more diverse and varied, and include things that you previously in human form may have pushed against in your "karmic cycle" -- meaning that you just attracted them in to your expereince. now, as a planet, you can see the value in there being both good and bad, so they can co-exist on your planet, and it's no problem.
+
+the less resistance you have, the more diverse things in your "karmic structure" can exist, and so the bigger your bubble can become, because they're not seen as something to push against anymore. they can be included.
+
+your bubble never gets popped -- and when your bubble is so big that its karmic structure is capable of containing everything inside this universe without pushing against it, you will become a thing *bigger* than the universe, containing universes. I don't think any of us will reach that anytime soon :)
+
+[1]: I like this analogy because everything like planets, stars, humans, etc. all have auras, and one could imagine everything as simply spheres (auras) of energy
+
+
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
 
 ### 2020-09-20 ??:?? you say all manifestations are a win-win huh? what about the serious stuff like murder or rape or slavery or something
