@@ -1529,6 +1529,32 @@ it's funny that the it looks like each of the "bad" things that has happened thr
 
 [3]: one does not need to read much of the dream stelle to realise this is a very ridiculous marketing ploy.
 
+
+### 2020-10-21 20:24 - thoughts on karma
+
+in robert's new video on the soul (@[youtube](https://www.youtube.com/watch?v=Ev1_JTzagkI)), there is a yogi talking about karmic structures and the different "layers" of your body... he outlines physical, mental (imagination), and energetic (emotional). then a transition layer between physical and non-physical (which I call source), followed by the bliss body.
+
+I suggest that there are actually 7 layers, and the mental (imagination) layer is also a transition between the energetic/pranic (emotional) layer and the physical layer. I found out yesterday that the "location" of this world is called "devaloca" -- a transitional place where gods and humans mix and can interact. some have also called this layer "astral". you will notice that while the imagination is also pretty much "non-physical" in the sense that it does not in itself modify the physical world. however, when embued with emotional (prana/orgone/vril) energy, that imagination can begin to take on physical form.
+
+---
+
+the next simplification I would like to make is in what he talks about when he says "karma". he's just saying LOA (eg. frequency vibration, attraction). so, for example he says that when you die, your physical body is separated from your mental and energetic bodies -- and when there is a strong karma, then it takes a while to find another body, and during this time the now disconnected from non-physical body continues on in ghost form working out its karma, and the stronger the karma, the longer it takes to work this out.
+
+this can all be super simplified with LOA. abraham says that when you die, you leave behind all of your resistant (physical) self and reemerge into non-physical. I believe they're right, so how can it be both ways? it seems like there's a contradiction here, however there is not. I struggled with this after reading a bunch more of the other kuthumi stuff as well.
+
+if you think about this from a physical human perspective, and you recognise that it's only attraction, then it makes perfect sense. imagine that you had been giving a lot of negative attention to some strong feeling thing and then you die. when you leave behind all of the physical bits, which means that the physical body will stop operating (die), the mental and energetic body are also left behind. these exist as really subtle energies which science does not recognise which people could interpret as a "ghost"
+
+however, I must stress that they are energy, and so therefore are governed by LOA. you cannot perceive a ghost that you are not yourself resonant or harmonious with. these physical vibrations created from emotion I think do exist, and likely explains human/animal sacrifice. when these beings make their transition into non-physical, they'll leave behind the vibration (emotion) of fear behind, and I think it's upon that energy that the sacrificer is trying to use that energy. remember, energy or any vibration has both sides to it. it goes both toward and away from the source (or wanted), and so because energy is energy, you *can* turn someone else's fear into something wanted for yourself -- it's just not very effective.
+
+---
+
+so I got a little off-track there, but as this guy was talking I realised the answer to my own question about death and karma and stuff. the energy left behind will behave in the karmic way that he's describing, however, that's only the residual energy left behind in your transition process. who you really are (the non-physical bit) immediately makes its transition. you could imagine that the stronger the "momentum" of that emotional energy that the person had before they made their transition, the more powerful and lengthy their "ghost" will remain in physical.
+
+however, these ghosts are nothing to be scared of though, and if you ever find yourself interacting with them (I have in my past), they are only there to visually (or audibly) indicate to you how resonant you are with these concepts, and getting "rid" of them is as easy as finding the better feeling (more in alignment with your source) place of perceiving that same thing (aka, working up the emotional scale).
+
+I say going up the emotional scale because the energy which embues these ideas and makes their manifestation physcical is that emotional/vril/orgone energy, and so they can only affect you if you're on the same frequency with that concept (ghost) in an emotional way.
+
+
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
 
 ### 2020-09-20 ??:?? you say all manifestations are a win-win huh? what about the serious stuff like murder or rape or slavery or something
