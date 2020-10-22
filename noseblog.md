@@ -1554,6 +1554,17 @@ however, these ghosts are nothing to be scared of though, and if you ever find y
 
 I say going up the emotional scale because the energy which embues these ideas and makes their manifestation physcical is that emotional/vril/orgone energy, and so they can only affect you if you're on the same frequency with that concept (ghost) in an emotional way.
 
+### 2020-10-21 20:47 - thoughts on reincarnation
+
+he continues on in that video (it's going to take me forever to finish this video, lol) talking about how if you die with a strong karmic structure, then it will take a long time for "you" (that is the real non-physical you) to find another body. however, if you die peacefully, and without a lot of karma, then you can find another body rapidly.
+
+I hadn't really thought about this before. what he's essentially saying is that the longer your emotional body (karmic) continues to exist here on earth, you cannot reincarnate. this means that karma is only a human thing... so think about it: the longer that you continue to feed and nourish that emotional ghost body with your perception of it (holding it in existence), then you cannot yet return to earth in a new body, until that has finally dissipated. that means that the "karmic cycle" is entirely a heman-made experience by giving our attention to these "ghosts" (their disincarnate emotional bodies) instead of who they really are now (the non-physical "pure positive energy" that abraham talks about).
+
+---
+
+that pretty much clears up my inquiry into the subject for me. the only thing that remains now is the new question of whether we can "block" someone's reincarnation by perpetuating their existance on this physical plane as something that they are now not. it doesn't seem likely that this is the case, and doesn't make any sense why that would be, and for that to be true, it assumes that there can only be one version of me in physcal at a time, which I know is certainly is not true.
+
+in a sense the death (or rebirth) process is all about finding a new version of yourself -- something which improves upon the previous you. I don't think you need to die to allow this (reincarnation process) to happen.
 
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
 
