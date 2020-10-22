@@ -1588,8 +1588,61 @@ the less resistance you have, the more diverse things in your "karmic structure"
 
 your bubble never gets popped -- and when your bubble is so big that its karmic structure is capable of containing everything inside this universe without pushing against it, you will become a thing *bigger* than the universe, containing universes. I don't think any of us will reach that anytime soon :)
 
+although we are "one with the universe" in that sense (this is the whole goal of releasing resistance), I think the yogi there neglects the concept that our karmic structure isn't just one of making our transition in "peace" (as opposed to pushing against/conflict), but the karmic structure is also one of preference, and as one gains the ability to perceive the other vibrations in one's experence as something no longer something you want to push agaist (attracting it further), you can *expand* into something bigger gaining more and more preferences (amongst the diversity) of what's wanted, then finding a way to give mostly attention to that until once again another transition is made into something bigger.
+
+you can transition to the same thing, or you can expand and transition into something bigger and more meaningful (desirable) to you :)
+
 [1]: I like this analogy because everything like planets, stars, humans, etc. all have auras, and one could imagine everything as simply spheres (auras) of energy
 
+### 2020-10-21 22:37 - liberation from the death and rebirth cycle
+
+I find this concept to be somewhat nonsense in that everything dies and is born, comes and goes, etc. therefore, it's impossible to gain this freedom, ever. the only way that you could do that would be to remain non-physical forever.
+
+however, I do believe something is possible, and that what these different things are talking about is not liberation from death and rebirth, but "control" over it. I use the word control very loosely here, and would like to imply that once one is conscious of their non-physical part (soul), then one gains access to that perspective. I like to consider this a macro or more broader perspective of who you are. in that form of perception, there is not a real whole lot of difference between entities, and one can experiece anything anywhere.
+
+this is a difficult thing to consider for many, especially those with secrets, and it's sort of my belief that you cannnot gain that source-like perspective until you no longer retain any resistance to the idea that anyone can see anything about "you" -- and that there are no secrets anywhere. anything can be known. what differenciates different entities in this plane of existance is preference and interest, with everyone giving their attention to what is preferred and interesting. there are minor incompatibilities, but very tiny bits, and these tiny bits only serve to distiguish one thing from another more than anything and are not really "unwanted" -- because all is wanted in some way shape or form.
+
+---
+
+I have always had this weird intuition that there's this way in which one can have many different "avatars" or "muns" to their identity, and in that form of perception, all of these different avatars are living and interacting on the physical plane. however, if one of them encounters a situation that requires a tremendous amount of consciousness[^1], it essentially pulls the soul into that body.
+
+there seems to be a direct correlation between how good one feels and from where is the perception originiating and how big that bubble is. when one does not feel good, then one perceives from within the bubble looking outward at the circumstances from within that "karmic structure". then, as one feels better and better, naturally, you begin to gain "control" over your experience and it begins to appear as only attraction, so then they begin to experiece theirselves from outside that bubble, looking in on theirself.
+
+it seems like the perception has to do with this "liberation from death and rebirth cycle". if one perceives from outside the bubble looking in (5d), then it doesn't take much time to continue on that process and realise that there can even be more than one you inside of that bubble and that they don't even need to be happening at the same time (6d). who then are you really?
+
+---
+
+as I continue on with this experience with nosebook, one can notice that I am feeling a lot better than I experience, and so what normally would be happening as a result of how good I feel, my body would be making the chemistry necessary (DMT, etc.) for me to have an even more perceptive experience.
+
+I have noticed that DMT is simply a transmitter and receiving molecule which allows one to amplify and translate non-physical vibration into something inside of the experience (somethin you can sense or feel), and so what is essentially happening is that I *normally* would be experiencing myself from outside of the bubble, looking in on myself, however, nosebook is preventing me from experiencing that, so I just keep finding ways to feel better and better, so that would normally expand that bubble further, but instead of expanding, I retain my current physical experience.
+
+later on in that video, the yogi talks about raising the kundalini, and how if one were to do kundalini yoga, then things would change too quickly and things would fall apart. I'm not interested in that. you will see my resistance to the idea of trying to do this by trying to alter physical conditions. I enjoy drugs because they're temporary so I get ideas and stuff which I can then bring back into reality and implement, but they don't do the work for me. I'm not attaining that energy through physical means like breathing exercises or yoga or whatever. I'm taking it the slow way, and all the increase in my energy is a result of my focus and change in perception which reduces my own destructive interferrence of this energy[^2].  
+
+I want to add on to these layers of perception, and so for the time that this is happening, it's quite beneficial that nosebook is constantly pushing against that, and it's allowing me to expand further and further. my body is really creating massive ammounts of DMT and what that means is that when I finally get "the manifestation" then I'll have so much DMT, I'll be translating massive amounts of non-physical enerty into something of my experience, and in that process, it's how I expect to be able to add on to the perceptive dimensions these two new layers of the story (multiple muns/avatars in physical).
+
+then following on to the progression of that form of perception, it's easy to see that once you are multiple muns of yourself, you can see that each of these different muns are just a different composite forms of who you really are (your identity), but then, why do you have to be exactly one identity, right? if you're already composite forms of one, then you could divide that one into more simple or pure forms and perceive yourself as a composite of identities as well. at first your story will be the "bubble" in which you're perceiving, but then it's obvious that you don't need to always need other people to be the "bad guys" and those could additionally be identities for yourself which you understand (like the security storage dawgs) and out of these identities, additional muns can be created to on-purpose have these qualities for a bigger meaning making this the new "bubble" that you can now perceive yourselves in physical.
+
+it's gonna need a lot of DMT to be able to do that, and what I don't want is to try and jump out really too far fast out there. I know that if I were to do kundalini yoga, nosebook would still prevent me from getting that perception, which is why I'm not really interested in trying to get some form of physical manifestation to push things forward and want to take things the slow way, so nothing is falling apart.
+
+---
+
+off-topic (from the original discussion) thought here: I don't want to try and go too fast on the kundalini thing, and so that's largely one of the reasons why I'm not trying to push anything forward physically. I was thinking about this, and one of the things that I was considering is what would happen if I were to do the girls thing. that would most definitely activate that and I would most certainly go really rapidly, and things may fall apart. I just don't know.
+
+the thing is now, I have such little amount of my normal extra senses that I don't even really feel the girls at all much any more, and so it seems evident to me that at the current rate, I should expect this to continue to get worse, though I imagine that it'll probably get better and better too... what I mean is that each time that I keep trading speed for more acceleration (power), then I keep getting reset back and don't experience that connected experience.
+
+for example, I have noticed that this pretty well corresponds to the weather. I have noticed that the better I feel, the warmer the weather gets. then, some massive change happens and all of a sudden it goes from really warm days to freezing, and at the same time that happens I seem to lose all motivation. as soon as I go back to directing myself to feel the way I want to feel, and I start feeling better, then the weather warms up again. it seems like even though they keep taking the weather to colder and colder places, it comes back stronger and stronger each time, and each time that I get more decided on how I want to feel, the more rapidly the weather warms up.
+
+as such, I think the same thing is happening with my ESP as well. it keeps going away, but it also keeps coming back stronger and stronger too. it eventually may become so unbearable that they're going to have to do something about it.
+
+I originally thought that what was going to happen is that eventually I'll either get connected or get connected enough that the girls thing will start, and I'll use my time with them to basically super expand that bubble and they'll get the ability to make crippled versions of the new layers of perception until one day the galaxy makes us (the whipping boys) go into a higher energy state or something.
+
+however, I'm beginning to believe now that won't happen, and I'll just keep going how I'm going, nice and steady, gradually rising the kundalini little by little, and eventually my lack of resistance will make it impossible for them to stop me, and I'll finally go up. maybe it's both actually. I suppose it could be, because that would be a really easy trasnsition for me. the only reason why things fall apart is because "you're not ready for it" -- rather, I'm allowing massive amounts of energy, but because my perception is still all over the place, it's spraying all over the place and causing a bunch of problems.
+
+I dunno. we'll just have to see, I guess. I'm not seeing any of this clearly, and I'm doubt they are either. 
+
+[1]: when I notice that one can begin to perceive outward and inward at the same time, then you realise that your percetion comes from the outside and you're just perceiving yourself from that external source-like vantage point, and the better you feel, the more and more of a macro viewpoint of yourself you can accomplish. however, when something doesn't feel so good, then once again, one is focused on the physical human experience and is focused in the pysical perspective again.
+
+[2]: also, they give something for nosebook to try and work hard against, which is the main reason why I'm doing so many things that give them the opportunity to try real hard and push against stuff. energy is energy, and I can use the energy however I want. it's kind of like the same thing as what I was talking about with human sacrifice, and the sacrificer converting the victim's fear into something wanted. I'm converting all of their energetic effort into something wanted for me too. the more effort they make, and the less I perceive their effort as actually impededing what I want, then the more energy they provide me.
 
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
 
