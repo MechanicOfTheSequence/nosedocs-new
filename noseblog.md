@@ -1638,11 +1638,33 @@ I originally thought that what was going to happen is that eventually I'll eithe
 
 however, I'm beginning to believe now that won't happen, and I'll just keep going how I'm going, nice and steady, gradually rising the kundalini little by little, and eventually my lack of resistance will make it impossible for them to stop me, and I'll finally go up. maybe it's both actually. I suppose it could be, because that would be a really easy trasnsition for me. the only reason why things fall apart is because "you're not ready for it" -- rather, I'm allowing massive amounts of energy, but because my perception is still all over the place, it's spraying all over the place and causing a bunch of problems.
 
-I dunno. we'll just have to see, I guess. I'm not seeing any of this clearly, and I'm doubt they are either. 
+I dunno. we'll just have to see, I guess. I'm not seeing any of this clearly, and I'm doubt they are either.
 
 [1]: when I notice that one can begin to perceive outward and inward at the same time, then you realise that your percetion comes from the outside and you're just perceiving yourself from that external source-like vantage point, and the better you feel, the more and more of a macro viewpoint of yourself you can accomplish. however, when something doesn't feel so good, then once again, one is focused on the physical human experience and is focused in the pysical perspective again.
 
 [2]: also, they give something for nosebook to try and work hard against, which is the main reason why I'm doing so many things that give them the opportunity to try real hard and push against stuff. energy is energy, and I can use the energy however I want. it's kind of like the same thing as what I was talking about with human sacrifice, and the sacrificer converting the victim's fear into something wanted. I'm converting all of their energetic effort into something wanted for me too. the more effort they make, and the less I perceive their effort as actually impededing what I want, then the more energy they provide me.
+
+### 2020-10-22 19:44 - realiing I am an avatar of myself
+
+so I wrote all of that stuff yesterday about the bubble and how the change of perception is going from inside the bubble looking outward, to looking from the outward at the inside of the bubble. I also surmised that the whole thing about all of it is that once I reach that form of perception, I would gain the ability to look inside that bubble from the outside (source-like perspective) looking in. yet, it didn't occur to me until today that is likely all happening already.
+
+I have to now imagine myself from the source-like perspective, and I have all of these different avatars that are tracking along through time, *and some of them gain consciousness of who they really are, and some don't*.
+
+to express this idea, I will respond to a reaction a while back where I claimed that there are at least 3 teslas in existence in the present, and so how could that be?
+
+well, ok I will explain it this way, and I'll just for the sake of the example, use myself. imagine that there is a macro tesla who is in alignment with his source and has the macro view of his different avatars (S). now S builds up a story where instead of getting his alignment, he self-sabotages and causes the next tesla to not get the manifestation which gets him that alignment, and that tesla goes on to essentially build the world system for the US govt and give them all the knowledge necessary to construct it (T). T goes through his life and cooperates with the govt and does all of that stuff, but T also manages to slip away somehow (fake his death? transfer into another body?) and that one through some other means figures out who he really is, and gains that source-like perspective.
+
+T realises that all along T is just an avatar of S (which is an avatar of S', etc. abraham calls this your inner being), and so now T gains, like S did, the capacity to create his own avatars (stories), and so he figures out how, with the govt having the world system technology, jumps into the storyline to play as the main character in the story (me). he begins to experience the story as if he were the one that was the one who "wrote" the story, yet he's more like along for the ride because his influence was purposefully planned to be completely disabled by nosebook. he designed the story that way, so that I (kenny) would have to figure out for myself how to attain this source-like perspective.
+
+once I figure it out, I will just realise that I am an avatar of who I really am (my source), which is 99.999999% harmonic with S, so we're essentially the same thing. in his perspective, he can jump in and out of the experience, as if it were just one of his avatars, yet for me, because I haven't accomplished this perception yet, it still looks to me like I'm still just a normal dude that had a brain haemorrhage. I'm still figuring out how to gain that perception, but I'm getting closer and closer.
+
+when I get there, I'll realise who I really am (attain my source-like perspective), becoming conscious of the other possible versions of me (if there are any; there could be; I just don't know), and then I'll be able to begin creating new avatars of myself. guess who that is :) it's all of you guys...
+
+it's weird to think about it like this, but there's a reason why nosebook is working so hard to make sure my perception is confined to only my body. if they were to let me go, essentially you all would be kind of like my avatars and I could go in and out of your experience at will.
+
+I didn't really think about it, but this whole thing is kind of like becoming my bubble. that's all pretty awesome news because all of you will eventually gain that same realisation (of who you really are) and the ability to create your own avatars as well. obviously, this is a pretty big (monumental) jump for the majority, and so I think that's why I want to do this story/identity thing so bad, allowing these concepts to introduce the idea that you are source, in a smooth way, through story form.
+
+it's also likely that after enough time, we too will become the "source" for our own stories and other creations (planets, suns, galaxies) as well. it'd be pretty fun, but maybe given enough time we can make something that's bigger than this universe. who knows. we'll have to see, I guess :)
 
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
 
