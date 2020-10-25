@@ -101,3 +101,9 @@ finally, yesterday I met a nice girl at the friendly harbor named luna that I co
 ### 2020-10-18 21:18
 
 just now I was listening to @[abe-now](2020-10-10 p1), and at around 41:00, there is a letter sent about a woman's 11yo daughter that has anxiety around following the rules. she feels good to me, and I was quite distracted by the feelings that I was receiving. I had to take a break from the workshop cause I couldn't concentrate. I'm back now and I decided I wanted to invite her to join if she wants to :)
+
+### 2020-10-24 23:47
+
+I was watching robert's latest video on lucifer and fire symbolism (@[youtube](https://youtu.be/jf0woIGB25Q?t=498)) and he was talking about the yazidi culture. I didn't specifically feel any direct connection to anyone that I saw in any of the photos in that video, but I did keep thinking to myself that it would be really cool to have some yazidi girls joining in too.
+
+I don't really know what more to say, other than that. I'm just sort of putting it out there so that LOA can take it from there.
