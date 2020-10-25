@@ -72,10 +72,22 @@ the stone type may have something to do with it as well, as these niches seem to
 - it appears that they have the ability to add and remove stone with relative ease. it's not immediately obvious that they can add stone, but there are clear examples of this, like @[youtube](https://youtu.be/OBkgI34mMH0?t=3428). you simply cannot carve out the stone all the way around those letters (that's phonecian), so somehow they had the ability to draw stone on to the tablet like it were some sort of ink. additionally, in many many sumerian reliefs (eg. @[youtube](https://youtu.be/OBkgI34mMH0?t=2147)), you can clearly see the detailed human figures "carved" into the stone but if the rock were soft, then, clearly at some later time, the stone was softened and then the cuneiform writings were simply pressed into the stone, as if it were soft as wet clay.
 - these rocks that were "softened" seem to be limestone usually. it would be nice to get samples of these different tablets tested to see the rock composition (eg. if it was a geopolymer or not)
 
+### zodiac symbolism
+- paveen says these statues in this temple have reference to zodiac https://www.youtube.com/watch?v=mEYUs7HBv3s
 
-### nubs (and reverse nubs)
+### nubs (and reverse nubs/holes)
 
 - nubs appear on both granite (eg. menkaure) and limestone (eg. peru) type stones.
+- they seem to have something to do with balance. see reverse nubs here: https://youtu.be/CgFnRoFMHwQ?t=1069
+- bunch of holes here: https://www.youtube.com/watch?v=mEYUs7HBv3s additionally, the circular stone columns on the lower part look as if they need to be turned on a lathe to make those kinds of shapes, however, they are the same stone as the wall. somehow the builders had lathe-like tecnology *without* turning the stone!!
+
+### reptialian symbolism
+
+- sri lanka king ravana, https://www.youtube.com/watch?v=Lqi9mchzexw
+
+### coral castle
+
+- "obelisk" is taurus constellation. says: "made 1928. moved 1939. born 1887 in latvia EL"
 
 ### unfinished obelisk
 
