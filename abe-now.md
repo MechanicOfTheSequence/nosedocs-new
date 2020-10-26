@@ -87,7 +87,7 @@ this is about the make more decisions topic, and I've been becoming more and mor
 
 [2]: I'm using the "power" words here cause it's easier to express my point to people who have not felt this way before, but it's so much more than that. the magnificence of everything coming together and all the great feeling of love and self-appreciation, and appreciation for the universe, source, and everything is such a powerful feeling, it's really indescribable -- so I just use the power words for this point.
 
-### 2020-10-25 - (2020-10-17 p1)
+### 2020-10-25 16:?? - (2020-10-17 p1)
 
 #### (15:33) - vibration
 
