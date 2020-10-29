@@ -1849,21 +1849,6 @@ the naysayers would say that's just not possible because if there are 10000 prod
 
 the naysayers may also bring up the idea of economics, where sales gives more economic resources to create new research and development, and again I agree in a physical world, but in a vibrational world, there are no limit to how many different feelings you can feel to give birth to these alternate models.
 
----
-
-this is really hard to explain. I'm going to try though.
-
-as a thought experiment, let me use an abstract (perhaps dream-state) person to describe this concept. imagine that there was this amazing guy that began to appeared to 10k[^8] people in their dream state at night. all of those 10k people really liked this guy and perceived (individually) that he was a sort of premonition to a future reality where he would show up for reals in their life. each of these 10k are all creating (vibrationally with their desire) a guy in their dream state that they really like.
-
-they dream about him all the time and nosebook becomes aware of this, becasuse he's really popular to dream about and he has magical capabilities, so nosebook wants to cash in on this guy. nosebook prevents his appearance in dream to those original 10k, and is instead rented/sold to some 1M individuals. those 10k people who were dreaming about the guy initially feels like this dream guy totally disappears, for them in their dreams, but they can still feel him all the time, so they continue to believe that eventually he will show up. they're not able to have their relationship manifestation of this guy for quite some time. all the while, all those 1M are enjoying him in their dreams quite nicely.
-
-so, for some long period of time there are a whole lot of other people enjoying this guy, and he remains off-limits to the original 10k. as time continues on, just like people enjoying my visual capability before I'm capable of receiving it, the 1M renting and enjoying this guy are creating a big vortex for the 10k later.
-
-at some point, he somehow transforms into something new, and he's no longer perceivable by the 1M renters anymoro. when that happens, the desire that was created in each of those 10k oringial individuals will manifest into some sort of dream-state dude or maybe even reality. what I'm saying is that when he makes the transition from his old form to the new form, he will make that transformation for each of those 10k originals uniquely, and will show up as the product of their unique desire and contain the unique aspects desired by each of them, in addition to all of the aspects appreciated by those 1M renting him out. in fact, the more people that uniquely desire him, the more diversity of him there will be... eg. if there were 10x more, he would contain all of the aspects desired and appreciated by those 100k and 1M people at the same time, however, with each of those 100k activating (attracting) their unique attributes of him.
-
-so, in a sense, the more competition, or the more scarce the resource is, the bigger the manifestation it is, and it's only the perceived limitation that obfuscates the improvement. for example, in a race, only one person can finish "first", so there's only one "winner" -- however, the desire from the contestants provides makes it possible for those cars, legs, boats, microprocessors (whatever) to go faster. so while the limited resource is that there's only one "winner", the whole group benefits from the competition. vibrationally, this is even more.
-
-I'll explain more in the future, but what I'm trying to get at here is that I'm certain that there are no limits, so why not take advantage of it? if we can make more than one "last" (which then becomes the first), we have gone from serial to very diverse parallel. I'm leaving this explanation purposefully in a difficult spot here. the part missing is the alteration of perception because I'm not talking about physical things, but energetic (feeling) things.
 
 [1]: this is where I begin my character transition from moses to elijah.
 
@@ -1879,7 +1864,22 @@ I'll explain more in the future, but what I'm trying to get at here is that I'm 
 
 [7]: I have accomplished the ability to change this more static state very rapidly, and in my opinion, it is my most cherished capability. this ease of change is what makes me much more womanlike, while still mainaining many masculine features, and I think this flexibility is the basis upon which the hermaphodite is made.
 
-[8]: 10k is an arbitrary number that isn't too big that it sounds like too many people, but neither too small that it's perceived as a small group. it means nothing...
+### 2020-10-29 17:18 - another thought experiment: 5th ray illusion
+
+this concept is hard to explain and I didn't do a very good job at it. there's a deeper meaning here which is elusive. it used to be a continuation of the previous entry, but I think it needs more work. t
+
+as a thought experiment, let me use an abstract (perhaps dream-state) person to describe this concept. imagine that there was this amazing guy that began to appeared to 10k[^8] people in their dream state at night. all of those 10k people really liked this guy and perceived (individually) that he was a sort of premonition to a future reality where he would show up for reals in their life. each of these 10k are all creating (vibrationally with their desire) a guy in their dream state that they really like.
+
+they dream about him all the time and nosebook becomes aware of this, becasuse he's really popular to dream about and he has magical capabilities, so nosebook wants to cash in on this guy. nosebook prevents his appearance in dream to those original 10k, and is instead rented/sold to some 1M individuals. those 10k people who were dreaming about the guy initially feels like this dream guy totally disappears, for them in their dreams, but they can still feel him all the time, so they continue to believe that eventually he will show up. they're not able to have their relationship manifestation of this guy for quite some time. all the while, all those 1M are enjoying him in their dreams quite nicely.
+
+so, for some long period of time there are a whole lot of other people enjoying this guy, and he remains off-limits to the original 10k. as time continues on, just like people enjoying my visual capability before I'm capable of receiving it, the 1M renting and enjoying this guy are creating a big vortex for the 10k later.
+
+at some point, he somehow transforms into something new, and he's no longer perceivable by the 1M renters anymoro. when that happens, the desire that was created in each of those 10k oringial individuals will manifest into some sort of dream-state dude or maybe even reality. what I'm saying is that when he makes the transition from his old form to the new form, he will make that transformation for each of those 10k originals uniquely, and will show up as the product of their unique desire and contain the unique aspects desired by each of them, in addition to all of the aspects appreciated by those 1M renting him out. in fact, the more people that uniquely desire him, the more diversity of him there will be... eg. if there were 10x more, he would contain all of the aspects desired and appreciated by those 100k and 1M people at the same time, however, with each of those 100k activating (attracting) their unique attributes of him.
+
+so, in a sense, the more competition, or the more scarce the resource is, the bigger the manifestation it is, and it's only the perceived limitation that obfuscates the improvement. for example, in a race, only one person can finish "first", so there's only one "winner" -- however, the desire from the contestants provides makes it possible for those cars, legs, boats, microprocessors (whatever) to go faster. so while the limited resource is that there's only one "winner", the whole group benefits from the competition. vibrationally, this is even more.
+
+I'll explain more in the future, but what I'm trying to get at here is that I'm certain that there are no limits, so why not take advantage of it? if we can make more than one "last" (which then becomes the first), we have gone from serial to very diverse parallel. I'm leaving this explanation purposefully in a difficult spot here. the part missing is the alteration of perception because I'm not talking about physical things, but energetic (feeling) things.
+
 
 
 
