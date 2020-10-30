@@ -1881,6 +1881,42 @@ so, in a sense, the more competition, or the more scarce the resource is, the bi
 I'll explain more in the future, but what I'm trying to get at here is that I'm certain that there are no limits, so why not take advantage of it? if we can make more than one "last" (which then becomes the first), we have gone from serial to very diverse parallel. I'm leaving this explanation purposefully in a difficult spot here. the part missing is the alteration of perception because I'm not talking about physical things, but energetic (feeling) things.
 
 
+### 2020-10-29 17:42 - thinking about doing something instead of just doing it
+
+the last few months or so I have been experiencing extreme lethargy in a lot of different places of my life. it started out with my programming, and then began to invade a lot of different portions of my life. up until now, often times what I did was, especially if it was something I didn't want to do, is to think out the task until I feel like I want to do it, because usually the process of thinking it out elevated my desire to do it.
+
+however, I first noticed that with star-watching if I thought about doing it, the less I actually felt like doing it -- which was opposite of how it used to be. as a result, I know now that every time I get out there and start walking I feel good, and I really enjoy the trip out to go star-watch, so I just do it. I don't think as much about it anymore. I just do it.
+
+same thing with my sleep. I noticed that if I wake up and the thing I do is I think about getting up, then there's much less likelihood that I'll actually get up. I have to just get up.
+
+---
+
+so my problem here is how do I reconcile this with how I am? I don't do stuff that I can't feel, because I know that if I do something that I'm not feeling, it either fails or it doesn't go well in some way. I've found that I have to find a way to feel like I want to do it, if I'm going to do it.
+
+so, take for example my room. usually, I don't want to clean it, so I don't. I want to clean it though (just like I want to program), but I never end up doing it, because as soon as I think about cleaning, at first it feels like I want to clean more, but then soon thereafter, I no longer feel like cleaning, almost as if the desire has vanished.
+
+I have noticed this on a number of other topics as well. it happens a lot when I want to write something (notice how often the subjects on the bottom there stack up, and only very rarely do I actually getting to write these ideas down), or for example I want to respond to tina, or I want to write a program to begin presenting these different concepts I'm accumulating in a nicer format than these text files. or, get my programming files off of the mac, or whatever. these ideas seem to evaporate, it seems.
+
+I believe the solution to this problem is what people call "living in the now" -- which is constantly making action and thought based on how I feel, and essentially thinking less and less. my source knows all of the stuff that's important to me and knows the best way for me to get there, so all I have to do is to continue to find ways to feel good, and all of that stuff will work itself out.
+
+I know this is the right way, because it essentially makes my life automatic, almost as if I'm observing myself (5d perception), yet even if nosebook is capable of keeping me from that form of perception, once I master how I feel and the ("living in the present") actualisation of that, they won't be able to keep that from me -- whether I visually perceive things differently or not.
+
+I'm just going to be acting more upon the feeling in the momnent that I get it, instead of thinking about it. it's all about living in the present, and navigating between emotions that feel good but don't have much desire in them (eg. bordom, accepting, ok, content, satisfied, ...), and letting your source take care of the different actions necessary to realise your desires. we'll have to see what happens here.
+
+---
+
+there's good reason for this. you will notice that when you look at the emotional scale, there are a whole lot more words to describe the negative end of the scale than the positive end. I can think of tons more words to add in on the bottom end, and to our brains, they do have validity. however, on the higher end, all of these emotions come with an unexplainable portion to them. the lower ones do too, but to a less extent. for example, I could feel anger, and that anger is really the culmination of all of the times that someone has (for example) interrupted me or something, and though I feel anger, the underlying thing behind it is the desire to be able to express myself. all emotions have an underlying desire and logic to them, even if it's not immediately apparent what it is.
+
+so, when you feel good, let's say content or hopeful, again there's a "reason" (or logic) to why you feel that way, but also there is a desire as well. when you feel content or satisfied, notice that the underlying desire is virtually undetectable. I believe that this is kind of the way to go and what abraham describes as a soft (gentle) desire, because when when you're not mixing your desire into the emotion, there's less "negative" or unwanted aspect to it. if you really want something and you feel very hopeful about it, if it dosn't come the way you want it to come, then you feel an equal amount of disappointment.
+
+therefore, the less amount of desire mixed in with the emotion is present, the easier it is for you to be guided by your source to move around between the things that do matter to you (what's really important). the reason is, that your desire is known by your source, and the way toward it is found in the good feeling emotions. if you're moving toward it, then it feels good (think if this like blueshift), and if you're moving away from it, it feels worse right.
+
+well, now it becomes more and more obvious why the best things are always found in the "next logical step/state" -- and they don't really feel like something big or amazing to them, because they no longer contain that "wanted/unwanted" "desire/dispair" possibility within the emotion... it's much "softer" and feels more natural. it feels more natural, because you already feel like how you want to feel, so it's a small jump.
+
+you navigate time with your emotions, and desire is the indicator that you want to feel some way. if that emotion is a long distance from where you are, then the desire (to feel a certain way) will be strong. however, if you are very nearby to feeling that way, the desire will not feel very strong, because you already feel quite a bit like that reality. the less of a big jump, the better.
+
+obviously now, you must begin to wonder about the navigation of time and sex, because if what I'm saying is true, then sex basically always means a big jump in time. you cannot have sex, and feel like you normally do (at least it's not physically possible for a man anyway). this concept opens up a lot of more questions, which is why I ended on it :)
+
 
 
 ### 2020-10-25 ??:?? - horus the aquarian deity
