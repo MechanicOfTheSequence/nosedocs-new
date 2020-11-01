@@ -107,3 +107,7 @@ just now I was listening to @[abe-now](2020-10-10 p1), and at around 41:00, ther
 I was watching robert's latest video on lucifer and fire symbolism (@[youtube](https://youtu.be/jf0woIGB25Q?t=498)) and he was talking about the yazidi culture. I didn't specifically feel any direct connection to anyone that I saw in any of the photos in that video, but I did keep thinking to myself that it would be really cool to have some yazidi girls joining in too.
 
 I don't really know what more to say, other than that. I'm just sort of putting it out there so that LOA can take it from there.
+
+### 2020-10-31 23:05
+
+yesterday matt posted another video with some card tricks in it, and I didn't think much about it, however later when I was up on the field, it sort of became obvious that I wanted to invite diana (@[youtube](https://youtu.be/BbnbfKbgf5Q?t=575)) to join in if she wants. pretty unexpected, but I like it :)
