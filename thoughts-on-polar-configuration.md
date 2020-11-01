@@ -26,7 +26,7 @@ She (like Sekhmet) was also the wife of Ptah and mother of Nefertum and the lion
 
 sekhmet (venus) is wife of ptah (vulcan), and they had a lion child called maahes.
 
-osiris (saturn), brother and husband of isis was remembered while in dominion as a time of bliss (golden age of saturn). seth (mercury) murders osiris (saturn)[^1] and isis recollects his body parts. osiris becomes lord of the underworld and isis conceives and gives birth to horus, the red one (mars/jupiter?) from osiris (saturn)[^3].
+osiris (saturn), brother and husband of isis was remembered while in dominion as a time of bliss (golden age of saturn). seth (venus?) murders osiris (saturn)[^1] and isis recollects his body parts. osiris becomes lord of the underworld and isis conceives and gives birth to horus, the red one (mars/jupiter?) from osiris (saturn)[^3].
 
 I'm guessing that some sort of prophecy comes about telling of the return (or something) of horus, in lion form, and this is visually represented to complete the prophecy when the sun rises in the east on the equinox in leo (sphinx statue), which is called "horemakhet" -- which is a combination of horus (mars/jupiter?) and maahes (the lion child of venus and vulcan).
 

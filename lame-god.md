@@ -1,0 +1,35 @@
+### the lame/limping god that creates pandora
+
+on line 560, this is the story of the limping god (identified on line 945 as hephaestus) forming pandora out of the clay of the earth, and other gods giving her things to make her a terrible punishment to the people.
+
+however, the part about his lameness seems unexplained. zeus and hera seem to have a virgin birth competition, zeus conceiving athena, and hera conceiving hephaestos. they seem to be something like opposites of the same thing. even zeus and hera (who are brother and sister) seem to be female and male versions of the same person.
+
+ok, so then there's another part here where different stories about hephaestos seem to overlap. in line 886, it says metis was going to give birth to very wise children capable of overthrrowing zeus. he decides that he wants to have control over this, so then he puts athena into his belly so "that the goddess might devise for him both good and evil". he bears athena, and then later the story picks up and tells how hera, bears hephaestos out of the strife (quarrelling) with zeus (line 929a). this is essentially going to be the representation. hephaestos is born without zeus' conception (virgin birth), and is going to be hera's rendition of the prophecy (which zeus stopped) of metis' next child being "a son of overbearing spirit, king of gods and men". essentially hephaestos is this son, instead of being born from exceptionally wise metis, instead is born out of quarreling hera.
+
+ok, so now, there are some more peices to put together here. in the hesiod, the story of how hephaestos became lame is not told, other than he's famously limp/lame. in the illiad where hephaestos mentions his mother hera was at fault for his being thrown out of heavan, it says because "she wanted to hide me for being lame", but the other time in the illiad, zeus throws him out of heaven because he helped hera.
+
+a bit of a contradiction here because it seems that hera threw him out because she wanted to hide him for being lame, and zeus threw him out for helping hera. in other words, one account has him lame from birth (and the reason he was thrown out), and the other has him gaining his lameness as a result of being thrown out.
+
+now, we analyse [typhon's similarity to vulcan](!typhon-vulcan-similarity) as he too was thrown out of heavan by zeus and became injured after landing on earth.
+
+
+---
+
+[560] So spake Zeus in anger, whose wisdom is everlasting; and from that time he was always mindful of the trick, and would not give the power of unwearying fire to the Melian21 race of mortal men who live on the earth. But the noble son of Iapetus outwitted him and stole the far-seen gleam of unwearying fire in a hollow fennel stalk. And Zeus who thunders on high was stung in spirit, and his dear heart was angered when he saw amongst men the far-seen ray of fire. Forthwith he made an evil thing for men as the price of fire; for the very famous Limping God formed of earth the likeness of a shy maiden as the son of Cronos willed. And the goddess bright-eyed Athene girded and clothed her with silvery raiment, and down from her head she spread with her hands a broidered veil, a wonder to see; and she, Pallas Athene, put about her head lovely garlands, flowers of new-grown herbs. Also she put upon her head a crown of gold which the very famous Limping God made himself and worked with his own hands as a favour to Zeus his father. On it was much curious work, wonderful to see; for of the many creatures which the land and sea rear up, he put most upon it, wonderful things, like living beings with voices: and great beauty shone out from it.
+
+[886] Now Zeus, king of the gods, made Metis his wife first, and she was wisest among gods and mortal men. But when she was about to bring forth the goddess bright-eyed Athene, Zeus craftily deceived her with cunning words and put her in his own belly, as Earth and starry Heaven advised. For they advised him so, to the end that no other should hold royal sway over the eternal gods in place of Zeus; for very wise children were destined to be born of her, first the maiden bright-eyed Tritogeneia (Athene), equal to her father in strength and in wise understanding; but afterwards she was to bear a son of overbearing spirit, king of gods and men. But Zeus put her into his own belly first, that the goddess might devise for him both good and evil.
+
+[924] But Zeus himself gave birth from his own head to bright-eyed Tritogeneia (Athene), the awful, the strife-stirring, the host-leader, the unwearying, the queen, who delights in tumults and wars and battles. But Hera without union with Zeus -- for she was very angry and quarrelled with her mate -- bare famous Hephaestus, who is skilled in crafts more than all the sons of Heaven.
+
+[929a] But Hera was very angry and quarrelled with her mate. And because of this strife she bare without union with Zeus who holds the aegis a glorious son, Hephaestus, who excelled all the sons of Heaven in crafts. But Zeus lay with the fair- cheeked daughter of Ocean and Tethys apart from Hera . . . ((lacuna)) deceiving Metis (Thought) although she was full wise. But he seized her with his hands and put her in his belly, for fear that she might bring forth something stronger than his thunderbolt: therefore did Zeus, who sits on high and dwells in the aether, swallow her down suddenly. But she straightway conceived Pallas Athene: and the father of men and gods gave her birth by way of his head on the banks of the river Trito. And she remained hidden beneath the inward parts of Zeus, even Metis, Athena's mother, worker of righteousness, who was wiser than gods and mortal men. There the goddess (Athena) received that31 whereby she excelled in strength all the deathless ones who dwell in Olympus, she who made the host-scaring weapon of Athena. And with it (Zeus) gave her birth, arrayed in arms of war.
+
+[945] And Hephaestus, the famous Lame One, made Aglaea, youngest of the Graces, his buxom wife.
+
+Homer, Iliad 18. 136 ff (trans. Lattimore):
+Hephaistos addressing his wife Kharis: "She [Thetis] saved me when I suffered much at the time of my great fall through the will of my own brazen-faced mother [Hera], who wanted to hide me for being lame."
+
+Homer, Iliad 1. 568 ff (trans. Lattimore):
+Hephaistos addresses his mother Hera: "There was a time once before now I was minded to help you, and he [Zeus] caught me by the foot and threw me from the magic threshold, and all day long I dropped helpless, and about sunset I landed in Lemnos, and there was not much life left in me. After that fall it was the Sintian men who took care of me."
+
+Plato, Republic 378d (trans. Shorey):
+"But Hera's fetterings by her son and the hurling out of heaven of Hephaistos by his father [Zeus] when he was trying to save his mother from a beating, and the battles of the gods in Homer's verse are things that we must not admit into our city either wrought in allegory or without allegory. For the young are not able to distinguish what is and what is not allegory."
