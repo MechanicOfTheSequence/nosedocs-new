@@ -1918,6 +1918,49 @@ you navigate time with your emotions, and desire is the indicator that you want 
 obviously now, you must begin to wonder about the navigation of time and sex, because if what I'm saying is true, then sex basically always means a big jump in time. you cannot have sex, and feel like you normally do (at least it's not physically possible for a man anyway). this concept opens up a lot of more questions, which is why I ended on it :)
 
 
+### 2020-11-01 04:23 - eye of ra and hathor
+
+I was watching the video @[youtube](https://www.youtube.com/watch?v=m_FvDOzf0J4) where robert (different one than the usual robert) was talking about the connection with da-vinci and the great pyramid of ros-tau (taurus mountain). matt has already done a great job of connecting the giza platau to the taurus constellation which you can watch here: @[youtube](https://www.youtube.com/watch?v=OE9y_-q5jT8), however in that video robert shows the eye of ra above jesus in the painting cause I never paid much attention to this eye of ra before.
+
+turns out, the eye of ra (right eye) is personified by a goddess. sometimes it's a lion (sekmet/bastet), and sometimes it's a cow (hathor). then, there's a myth which has horus fight seth for the throne of osiris. set removes horus' left eye (eye of horus / thoth).
+
+set is an interesting figure because he's usually associated with the planet mercury, and is associated with serpent symbology. I like to think that set is like the "destructive" version of mercury (7th ray), and thoth is the creative side of mercury. this is probably why set destroys horus' left eye (this is thoth's eye). there are variations to the story, but the one I like the most is when thoth goes to restore the eye, it has been replaced, so he turns the eye into a serpent which is placed on the brow where "it could rule the whole world" making it the effective ruler of the world (eg. the all-seeing eye symbolism on the *one* dollar bill).
+
+interestingly enough the set guy is perceived by the greeks as synonymous with typhon. typhon, I believe has [many more similarities to vulcan](!typhon-vulcan-similarity) than to thoth, actually, but the symbolism is clear that this is the "destructive aspect" of either mercury or vulcan[^1].
+
+in the same way that different aspects are represented as the deity, sekmet (then lion) is the "destructive" side of venus (1st ray), and hathor (the cow) is the creative side of venus.
+
+ok, so that was the setup, because here's where it gets juicy...
+
+in da-vinci's last supper, robert shows that there is an *eye of ra* above jesus, which I find interesting because I would have assumed that the eye of ra, which is associated with the goddess sekmet/hathor would go over mary, and not over jesus. I would have guessed the eye of horus to go over jesus, because afterall, horus is the [reborn deity](!reborn-deity).
+
+---
+
+I don't really know how to express this next part very well, but I understand the symbolism there. I'll explain: I had a brain haemorrhage where my left-eye (thoth's eye) was disabled, and when it happened, I had a definite experience where I met jesus and he entered into my *heart*. this isn't an uncommon thing for people to experience relating to interactions with jesus. however, for me I had a paralysed side, and the key to "unlocking" the paralysis of my left-side, was to begin to learn to "accept" and integrate my emotions into my every-day experience. along the process (involving various psychedelics), I came to begin to perceive my right-brain (left-side) as a demanding little girl with insatiable desire. in berlin when I was going through various extraordinary experiences, learning, I associated this dorment partially paralysed side with the 1st ray (desire) female (emissive), eg. hathor/venus.
+
+essentially, what I'm saying is that through various psychedelic experiences, I began to identify my left-side, which I personified originally as jesus, to later be this sekmet/hathor 1st ray female that was sort of stuck inside of me. I always identified my right-side as vulcan, the husband of venus in mythology. in the sirian guide, vulcan is paired with saturn and venus in the triad, which is another weird thing too
+
+anyway, that was a lot of symbols to explain that I don't find it weird that this picture da-vinci is identifies jesus as having the eye of ra (personfifed by hathor/venus), and not mary. it perfectly fits my experience with jesus, and then resulting paralysis of my left side (or eye of thoth).
+
+if that myth has any value to it, then when thoth returns to restore my left eye, he will notice that another eye (developed by me) has regrown in its place, and so therefore the previously extracted left eye of thoth will transform into a serpent, being placed on the forehead "where it could rule the whole world."
+
+let's just plug in the symbols here: set, the serpent symbology associated with the planet mercury (eg. the serpent nosebookers guys that are trying to run the show with their hermetic super powers), gets in a fight with horus over the throne of osiris (saturn), and set destroys horus' left thoth eye, forcing him to grow his own replacement. after growing his replacement the stollen left-eye from horus is turned into a serpent and used by nosebook so "it could rule the whole world."[^2]
+
+---
+
+there's another strange thing associated with the opposites found in these symbols, because in the zodiac, opposite the taurus (hathor) is the serpent and the eagle -- however, opposite the lion (sekmet) is the symbol of the man (horus). this is probably the original distinction between the eye of ra symbolising the goddess (and is also called the eye of thoth[^3]) and opposite the eye of horus.
+
+inside of the great pyramid (located in the ros-tau (taurus) mountains) is the symbol of the bull (hathor), yet very much out of the ordinary, is the the combination of these other two symbols just outside in the sphinx, eg. hora-maket or horus of the two horizons. which two horizons? well, logic says that the sphinx is most likely referring to when the sun (eye of ra) is rising in the east, man is facing to see it, while the part facing west, the hindquarters, is in the direction opposite, which is the constellation of the lion.
+
+make what you want from it. it's all very weird to me.
+
+[1]: the typhon guy is also banished by zeus to exist in tartarus, which is where the serpents are banished to live.
+
+[2]: another variation of the story is one that is told by the festival of drunkenness illustrated by matt here: @[youtube](https://www.youtube.com/watch?v=4gWtr5lKycw) and @[youtube](https://www.youtube.com/watch?v=fP9-C8w5L1U), which appears to be a retelling of an ancient story where sekmet destroys many people and ra satiates her with red beer. this was probably a prehistoric event, remembered only as myth. later after ra subdued her, she was known as the loving hathor[^4].
+
+[3]: I find it very strange that the same symbol for the eye of ra (that is the light of the sun), is directly connected with the goddess personified as sekmet/hathor, yet at the same time is connected with the moon in the symbolism for the eye of thoth. the personification of this eye as sekmet (1st ray female) and as thoth (7th ray male) is interesting because these are the alpha and omega (the beginning and the end), the most extreme ends of duality coming together (the snake eating its tail); the hermaphodite (hermes/aphrodite fusion).
+
+[4]: interestingly enough, the 18th dynasty saw a resurgance in the cult of the sphinx, which was about the time of the exodus, because the exodus seems to be correlated with the planet venus, which, if velikovski is correct, the events that took place are a kind of retelling of the story related in "the book of the heavenly cow" where sekmet (as the eye of ra) is unleashed on humankind. at the same time (18th dynasty). at the same time, there was increased worship to anhur which is a *male* lion figure associated with war, so if the exodus is the time of the bronze age collapse, and then the following aryan invasion, or if seen symbolically, the beginning of the age of aries, a male lion figure in another variation of the myth instead goes searching for the eye (sekmet or mehit). it all gets very complicated with egyptian myths, probably because they used pictures instead of names for the characters...
 
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
