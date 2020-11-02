@@ -27,7 +27,7 @@
 - consort is hathor (venus)
 - re-horakhty a fusion of ra and horus, or horus of the two horizons
 - parents are osiris (saturn) and isis (sirius a)
-- sister is bastet (sekmet, lion venus)
+- sister is bastet (sekhmet, lion venus)
 - brother is anhur (mars)
 
 #### khnum
@@ -119,23 +119,23 @@ Ra has a change of mind and prevents the eye from killing all of mankind. Red be
 
 anhur is a lion headed god from the thinis...
 
-eye of ra (right eye) is personified by a goddess. sometimes it's a lion (sekmet/bastet), and sometimes it's a cow (hathor).
+eye of ra (right eye) is personified by a goddess. sometimes it's a lion (sekhmet/bastet), and sometimes it's a cow (hathor).
 
 one myth has horus fight seth for the throne of osiris. set removes horus' left eye (thoth's eye).
 
 set is like the "destructive" version of mercury (7th ray), and thoth is the creative side of mercury. this is probably why set destroys horus' left eye, and thoth (or hathor) restores.
 
-in the same way, sekmet is the "destructive" side of venus (1st ray), and hathor is the creative side of venus. there may even be additional interpretation to this because sekmet takes on a loving form as bastet as well.
+in the same way, sekhmet is the "destructive" side of venus (1st ray), and hathor is the creative side of venus. there may even be additional interpretation to this because sekhmet takes on a loving form as bastet as well.
 
-in da-vinci's last supper, there is an eye of ra above jesus, which I find interesting because I would have assumed that it would go over mary, and not over jesus. I would have guessed the eye of horus to go over jesus, however it's the eye of ra which is the goddess principal, personified by hathor/sekmet.
+in da-vinci's last supper, there is an eye of ra above jesus, which I find interesting because I would have assumed that it would go over mary, and not over jesus. I would have guessed the eye of horus to go over jesus, however it's the eye of ra which is the goddess principal, personified by hathor/sekhmet.
 
 I don't really know how to express this very well, but I had a brain haemorrhage where my left-eye (thoth's eye) was disabled, and when it happened, I had a definite experience where I met jesus and he entered into my heart. interestingly the key to "unlocking" the paralysis of my left-side, was to begin to learn to "accept" and integrate my emotions into my every-day experience. along the process (involving various mushroom trips and MDMA), I came to begin to perceive my right-brain (left-side) as a demanding little girl with insatiable desire. in berlin when I was going through various extraordinary experiences, learning, I associated this dorment partially paralysed side with the 1st ray (desire) female (emissive), eg. hathor/venus.
 
-essentially, what I'm saying is that through various psychedelic experiences, I began to identify my left-side, which I personified originally as jesus, to later be this sekmet/hathor 1st ray female that was sort of stuck inside of me. I always identified my right-side as vulcan, the husband of venus in mythology.
+essentially, what I'm saying is that through various psychedelic experiences, I began to identify my left-side, which I personified originally as jesus, to later be this sekhmet/hathor 1st ray female that was sort of stuck inside of me. I always identified my right-side as vulcan, the husband of venus in mythology.
 
 anyway, I find it interesting that this picture da-vinci is identifying jesus as the eye of ra (personfifed by hathor/venus), and not mary.
 
-there's another strange thing associated with the opposites of these symbols, because opposite the taurus (hathor) is the serpent and the eagle -- yet opposite the lion (sekmet) is the symbol of the man (horus). inside of the great pyramid (located in the ros-tau (taurus) mountains) is the symbol of the bull (hathor), yet very much out of the ordinary is the the combination of these other two symbols: hora-maket which is horus of the two horizons. which two horizons? well, logic says that it's likely referring to when the sun (eye of ra) is rising in the east, man is facing to see it, while the part facing west, the hindquarters, is in the direction of the constellation of the lion which is exactly the opposite side.
+there's another strange thing associated with the opposites of these symbols, because opposite the taurus (hathor) is the serpent and the eagle -- yet opposite the lion (sekhmet) is the symbol of the man (horus). inside of the great pyramid (located in the ros-tau (taurus) mountains) is the symbol of the bull (hathor), yet very much out of the ordinary is the the combination of these other two symbols: horemakhet which is horus of the two horizons. which two horizons? well, logic says that it's likely referring to when the sun (eye of ra) is rising in the east, man is facing to see it, while the part facing west, the hindquarters, is in the direction of the constellation of the lion which is exactly the opposite side.
 
 continuing on with this sym
 
