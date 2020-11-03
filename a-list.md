@@ -123,3 +123,7 @@ then, just now I was ... it was weird because I felt something when abraham said
 and then when I was thinking about it, it felt strongly to me that I want to invite the other girl that was mentioned in the end as well: the one which esther met at "random" on the street with her mother and they shared a moment together enjoying each other so much.
 
 that makes me wonder, because it seems like there was a connection between that quote above and the sudden realisation that I wanted to invite her as well... I guess, if one day I meet her, I'll ask her :)
+
+### 2020-11-03 09:48
+
+I want to make sure and invite the daughters of robert grant and muhammad ibraheem just in case they want to join. yesterday I felt some confusion on the subject, but last night I feel like it's ok to invite them if they want to join, as well.
