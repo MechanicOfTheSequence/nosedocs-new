@@ -2081,6 +2081,79 @@ so, what I'm saying is, for as long as it's desirable to have people inhibiting 
 
 [5]: likely what is happening is that because my right is disabled, I'm either creating a "virtual" right side or I'm merging both sides' function into the left, so all of me is on the left there. I don't know much about genetics, but I think the chromosomes come in pairs, so each one needs a match. if I have somehow created a new "virtual" (or real) implementation, giving me an extra something, then it needs to be matched. with my left-side disabled, then the autonomic function associated with that previous right-hemisphere, will begin to rebuild in the left, however the right side is still operational and physical, just not accessible by me (nosebook has it under their control), so I'm essentially getting my left to do the work of both sides, which should create like an "unmatched pair" or some sort of charge imbalance (who knows how this stuff replicates), and then you can imagine that later when I'm procreating with the girls, both xy from me will be used because I've implemented both in one hemisphere, and both xx from her will be used as well, making xxxy. probably this will result in the child retaining the normal two hemispheres, but then they will each be divided into two more (probably forward and reverse, matching the visual (physical) and neo (desire) cortexes). that makes sense to me because the neo is where desire originates from, and the visual is at the opposite end of the brain, where physical stuff is perceived. typically, in the middle is where the motor function (or e-motion comes from, which is why it's so easy to read someone's emotion by their animation). anyway, I dunno really how it will be, but if I had to guess, this would be my best guess...
 
+
+### 2020-11-03 07:46 - hermaphodite?
+
+one of the funny reactions that I was getting last night to the hermaphodite thing I talked about yesterday was that kids would come out having literally both male and female parts. I doubt this. I meant hermaphodite in the sense that it has aphrodite (xx) plus hermes (xy) in the same body, totaling 48 chromosomes. it has a y-chromosome, so I'm pretty sure it'll come out looking like a boy -- just having more x-chromosomes.
+
+to understand this, I must go back to the way to my brain is functioning. when I had the brain haemorrhage, it happened in the motor strip, which is a thin strip that runs down thn side of the brain, dividing it into two parts: the forward part which is mostly the neo-cortex (I experience this as the origin of desire -- in the forehead there), and the back part which is where I experience physicality, like the visual cortex and stuff. I don't know all of the parts of the brain so I'm talking about my experience, which could be a little different than traditional understanding of how the brain works. I've also noticed that the brain has opposite sides, so while I may experience the visual aspect for my left-eye in the right-hemisphere, there's a whole lot that goes on in the left-hemisphere before it even gets to the visual cortex on the left.
+
+or take for example how I experience movement: when I had to relearn how to move, it was very strange, because you think that left-side movement happens on the right, but before that there feels to me to be a negative desire that happens on the left-hemisphere first -- kind of like, well, like a tesla coil. the primary coil (left) makes the magnetic field, then when that collapses, it induces a current in the opposite (right) hemisphere, which then moves my left side. this is why it appears the the synchronisation of the hemispheres is so important, because you need both to move one side of your body.
+
+obviously when the brain experiences damage of some sort, it rebuilds that circuitry in another part of the brain and reroutes the signals to the new part. this isn't anything special. you can live and operate with only one hemisphere, and even at that, it can probably be even a partial hemisphere. your brain is only the circuitry which converts the signals of who you really are into physical impulses which move parts of your body and do stuff. that's it. you don't exist in your body.
+
+therefore, when you experience damage of any kind, your body (especially the brain) can return back to previous functioning or even make circuitry for new function as well. I'm certain that people who have "psychic" capabilities have extra circuitry in their brain to do something with those signals. obviously, people who choose to ignore those signals will never develop circuitry in their brain to transmit and receive those signals. "geniuses" probably have other circuitry. the brain is very malleable, and can conform/adapt to many different situations.
+
+my brain is no different than anyone else's -- just I had extra stresses on it which caused it to develop further. I don't really know how this worked, but the way I would estimate it to be is I experienced my "masculine" side in my left-hemisphere (the right side) and my feminine side in my right-hemisphere. when I was growing up, I kept trying to be left-handed, but different influences prevented that from happening. I really liked my visual and imaginative side and essentially lived in my imagination. so for whatever reason, I wasn't allowed to become a dreamer in that sense. I kept being pushed toward more masculine things probably by my father. I too wanted to be a programmer but I couldn't figure out the logic stuff. it just didn't make any sense to me. after the brain haemorrhage, that completely changed as soon as my right-hemisphere was disabled and I was forced to start using my left-hemisphere more. I began to start using my logic much more successfuly, and all of a sudden stuff that I had intuited started to make logical sense.
+
+this was huge for me, but the more I learned logic, the more emotional I became. I didn't really understand why this is until later, but it's because logic is symbolic and emotion is conceptual. when you look at a concept you have all these different aspects or feelings (vibrations) which make up the full concept (perceived usually as a full concept[^1]), however when looking at a symbol, it's the opposite direction: viewing a symbol, you will see it split outward (or downward) into all sorts of different resonating concepts. both of these can be viewed the opposite direction, too -- so for example, when you see a bunch of concepts, they can be reduced to a bunch of symbols and those symbols can match other symbols. I learned from one robert that it looks like this is the basis upon which pattern recognition happens. I learned from another robert[^2] that this is the essence of the transmission of esoteric knowledge[^3].
+
+anyway, I discovered that the front of my head (where the neocortex is) is where my brain does most of the conversion from vibrational into impulse, so I would estimate that on the left, the 5th ray (emotional centre) is located in the front (LF), while my 3rd ray (logical/structural) is located in the more physical back (LB).
+
+on the right, when I accepted jesus into my heart, I described this as a 1st ray female. I would have to imagine that she's in the front (RF), and the back is where the 7th ray would be (RB). because this hemisphere is disabled, these functions must be virtual (or non-physical).
+
+the way I see it, for men we get a pre-programmed y-chromosome, and that, depending on the person takes on one of the hemispheres. then, I believe, that the other takes on the opposite side. I experience them as two completely different personalities, however most people are completely oblivious to this because it appears to them like they are only one person. usually, the language side is the dominant one which I think for most is the left (right hand), however people who developed more their visual aspect will respond more in the right hemisphere. I map these as (along with their corresponding planets):
+
+***this is how I experience them and does not reflect on others' experience***
+
+- RF - desire
+  - venus/jupiter[^5]
+  - 1st ray female
+- LF - logic/structure/symbol
+  - saturn[^6]
+  - 3rd ray male
+- LB - emotion/concept
+  - mars/vulcan[^4]
+  - 5th ray male
+- RB - physical/visual
+  - mercury
+  - 7th ray male
+
+you will notice that there are 3 males and one female there, so yyyx. I think that's because these, like I mentioned are like the primary coils and so they activate their opposite in the hemisphere, so xxxy. this is my theory anyway of how I perceive it. I perceive each of these different aspects individually. let's look at the progression:
+
+1. perception of singularity. a person experiences theirself as one aspect. they usually say I am a man or a woman, and that's all they see. later, they may differentiate the prersonality a bit.
+  - for a woman, her personality is entirely created, so she takes on aspects of her mother/father/lovers/rolemodels/influences and creates a composite personality.
+  - for a man, this is often imposed in some way, and it's usually one of the jupiter, saturn, mars, or mercury types. many men feel they fail to live up to these expectations. it's unusual that a man will choose the venus, vulcan, or reborn saturn prototype
+  - not yet capable of perceiving that they have an opposite side.
+
+2. perception of duality. this is when a person begins go gain more direction and begins to at least at first maybe recognise that they have an opposite side.
+  - for men, this is the realisation that they have a childlike or feminine side (venus) and that side can be anything it wants to be. it is completely open to become whatever.
+  - for women, this is the beginning of the realisation that they too have another side to them, and they can begin to express theirselves in any other way that they want. it could be another venus, or it could be a male prototype, or it could be a composite of their masculine influences. it's completely up to her to make it whatever she wants it to be, but she often doesn't realise that it's also completely up to her creativity how she wants to express this.
+
+3. perception that inside of you, you contain all of creation. this is when you really can be whatever you want to be.
+  - still figuring this one out, but it's what I have been labeling the hermaphodite, because it's where desire is connected to the physical, and the manifestation of this desire is nearly instant -- or at least as long as it takes you to believe it (belief is a feeling -- 5th ray)
+  - I believe that this is the recognition that you have the ability to express these four major aspects in any way that you choose. the remaining 3 are not to be worried about.
+    - 2nd ray (relational) connects to the structre, conceptual, and source aspects, meanint that you don't have to worry about it. just because you desired to see the relation, then source highlights/indicates/reveals these relations to you conceptually or symolically (depending on the situation) in real time.
+    - 6th ray (imagination) connects to the conceptual, structual and source aspects as well. anything you desire, if you do not yet know it, you begin to feel (which feels good depending how close you're getting to source of the concept), and that can reveal anything to you that you wish to know.
+
+so it's interesting to note that I show off a progression. I'll leave it to the reader to ponder what I mean by the transitions from jupiter -> venus, mars -> vulcan, and saturn -> horus (reborn osiris)
+
+---
+
+ok, enough about that. I wonder how it'll really manifest... if you can't tell, what I'm doing by speculating like this, I'm purposefully introducing resistance (lerning from good ol' saturn here), to delay the manifestation further. I see no point in trying to micromanage this manifestation at all, but knowing me, there are likely purposeful errors added here designed (from a non-physical perspective) to intruduce some doubt. I think we really need some good strong doubters to this crazy 48 chromosome idea with lots of valid reasons why it's just not possible, know what I mean?
+
+[1]: this isn't 100% true for me. it's just it becomes really complicated to try that concepts can also be aspects of another concept, and they just keep making bigger concepts. concepts are the building upward direction. symbols are the going downward into resonating aspects direction.
+
+[2]: I purposefully didn't want to identify either because both of them are very good at perceiving conceptual and symbolic things.
+
+[3]: the knowledge is fragmented into symbols, and when you know where to look (at the resonant concepts) it begins to create a bigger picture which is completely obfuscated by the perceived details. meaning, that to perceive the symbol, one must find a way to reduce the amount of details in a way which exposes the underlying concepts, and then those concepts form together to show the bigger picture or symbol. or, you could go in reverse: start with the concept which has many aspects to it, so now you need to define a number of symbols which can be given unnecessary detail to obfuscate the transmission and people will perceive the details and not the concept.
+
+[4]: although I identify this planet as vulcan, I realise that vulcan (the planet) does not exist. I believe that this is 5th ray male energy, and it's predecesor was aries, and emotionally aligned men to war.
+
+[5]: this is also a funny one too because I think that for compatibility purposes, jupiter was chosen to be the 1st ray female. I don't really know how it could have happened, but I find it interesting that hera is so much like zeus -- almost like she's his female version. anyway, something happened at some point in our history when venus took this influence over. I find it interesting that athena was born from zeus, and vulcan was born from hera. these are both the transitional planets.
+
+[6]: this one is also an interesting one too, because in the non-physical, the 3rd ray is really none of our business. it's completely unnecessary to try and figure out who or how, or when or what is the way it will manifest. trying to figure that out or to micromanage that is trying to be saturn-like. this same saturian energy manifests itself in the form of dependence so that he can be perceived as powerful (cause he's needed), causing the monopoly mentality. instead of tryint to figure out the logic (the who/when/where/how), instead one needs to guide their conceptual focus in the physical realm, and let the symbols work theirselves out. in the myths. saturn is incapacitated by his own logic and something bad happens. this destruction is recollected by isis, and she gives birth to horus -- the reborn saturn. I'll let the reader discover for theirself what this means, but time is like a string and you can influence it to make bigger peaks where you want them, but don't try and micromanage it. the beauty of symbols/logic is their discovery. when they come as a surprise everything fits in exactly perfect, and it makes something *meaningful* or symbolic -- but the way there is conceptually or emotionally.
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
