@@ -128,3 +128,14 @@ solar system claims:
   - additionally, after the fight between the olympians and the atlantians, they were banished to a lower earth dwelling, tartarus -- almost as if the inner earth is where the remnants of the atlantians live and dwell since the battle.
 - since the idea of holding up the heavens could also be referring to the "celestial spheres", then this could be referring to the addition of another celestial sphere
   - this sort of coincides with my theory that the planet mercury was created as a result of the great pyramid's transformation of the planetary energies into something else during the massive influx of energy which happened around the same time as the deluge which is when atlantis was submerged.
+
+----
+
+1/7 = 0.142857
+
+14 = 7 * 2
+28 = 7 * 4
+59 = 7 * 8 + 1
+
+49 | 1 | 49
+7x7 | 1 | 7x7 

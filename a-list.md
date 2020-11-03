@@ -111,3 +111,15 @@ I don't really know what more to say, other than that. I'm just sort of putting 
 ### 2020-10-31 23:05
 
 yesterday matt posted another video with some card tricks in it, and I didn't think much about it, however later when I was up on the field, it sort of became obvious that I wanted to invite diana (@[youtube](https://youtu.be/BbnbfKbgf5Q?t=575)) to join in if she wants. pretty unexpected, but I like it :)
+
+### 2020-11-02 21:36
+
+just now watching @[abe-now](2020-10-24), I could feel very strongly the first girl (the 13 year old daughter) that was in the hospital, and I wanted to invite her to join if she wants to. she feels very good.
+
+then, just now I was ... it was weird because I felt something when abraham said:
+
+> "by speaking what you want, calibrating to what you want, letting them witness you doing the work. when you feel negative emotion, own it -- even say it out loud and do something about it -- and let them witness you using your guidance system on purpose, and then thriving in the exact way that you want"
+
+and then when I was thinking about it, it felt strongly to me that I want to invite the other girl that was mentioned in the end as well: the one which esther met at "random" on the street with her mother and they shared a moment together enjoying each other so much.
+
+that makes me wonder, because it seems like there was a connection between that quote above and the sudden realisation that I wanted to invite her as well... I guess, if one day I meet her, I'll ask her :)
