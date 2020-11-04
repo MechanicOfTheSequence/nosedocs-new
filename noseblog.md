@@ -2201,6 +2201,12 @@ I can imagine that nosebook won't have their setup perfect, and sometimes it's q
 
 when I say a relationship will either stagnate if there are too much water, or it'll get out of control if there is too much fire. what I mean by these water and fire symbols is that these are vibrational. fire is a plasma created because of some interaction with oxygen, but in it's essence, it gets more intense as rapidly as it can, consuming the fuel which is contributing to its growing intensity. water is the exact opposite. water also interacts with oxygen, in that it evaporates, but in the essence of water, it tends toward stagnation. I like to think of fire as an amplifier (at a consumption cost), and water as a dampening effect so I think of them in these energetic terms
 
+for example, if I have an impulse or a desire, I think of that like a fire -- a spark, but then if I neutralise it, I throw water on it and it creates a biproduct of steam and smoke (usually). this can happen internally, or it can happen in a relationship where one person is kind of like a "wet blanket", however what I'm trying to illustrate here is that trying to get the balance of these (in this case water/fire) elements from a relationship, is always a fool's errand. you have to find that inside of yourself, and while it may have been sufficient for a time to look for this in a relationship, or maybe even take the (sometimes non-relationship) road of recognising that you are more than just what you appear to be on the outside. what I'm trying to accomplish is that the person can become even more than just that, and can have 3 or 4[^1] completely programmable meta emotional/conceptual state machines (or personalities).
+
+in the future, I want to begin talking about how the correlation of these to the different "rays" is very helpful in designing the personality, with this being essentially the most basic types, and then archetypes added on later. remember though that I want to add (2-4) new layers (or rays) as well, the most physical ones being a time component, and antoher being a meta-archetype or meta-identity ray that the time component uses.
+
+---
+
 air and earth seem to be spatially oriented. air always expands indefinitely, continually trying to get as far away from other particles, and earth is static, however earth is a conductor, and air is not. earth is also a vibrational lattice, and air is not, so they seem to be much more related to conduction/insulation or transmission/absorption of energy. these seem to have an effect in relationsips as well, but I do not yet see it clearly.
 
 at any rate, every person contains all of the elements, with some amount of each activated at any time. it appears that the amount of the element isn't constant and tends to depend on the evironment and mood (set and setting) of the person. I haven't figured out yet what kinds of emotions yield more of each element, but as I'm writing this, I think it could be a fun exercise to try and figure out the different elements for me personally for each emotion on the scale (for everyone it'll be unique).
@@ -2208,6 +2214,8 @@ at any rate, every person contains all of the elements, with some amount of each
 anyway, the mixture of fire and water is a great one for me to look at because they contrast so well. it's the easiest of the elemental relationsips to understand, I think.
 
 developing...
+
+[1]: it's also possible that nosebook makes a "crippled" version of this, giving people only access to two of their state machines, taking command of the physical and desire expressions (just like they have done in my right hemisphere) to ensure that they are mostly under their control, as long as they remain in a non-resistant state, just like me in the dream-state. this is what I was referring to as the new hybrid slaves. more on this in the future.
 
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
