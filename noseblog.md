@@ -2196,6 +2196,19 @@ I can imagine that nosebook won't have their setup perfect, and sometimes it's q
 
 [1]: not calling moses out here, but it sounds to me like he purposefully indoctrinated the isrealites in the desert for 40 years to really believe that they need to give up their beliefs in these various planet gods, and instead accept a new monothiestic god that ensures you feel shame. I don't have it all figured out yet, but I think that there are more than one history of moses that happened (he too made a time split) and in one of the timelines, he really did do a great thing, but in the timeline we're on now, I think the exodus was one of pharaoh's disaster mitigation plans. the hardening of pharaoh's heart was an illusion that he was playing to get these disgruntled peoples out of egypt, then out on the desert, he indoctrinated them into original sin, shame for not obeying this invisible god (that only the cool-kids had access to), and banished their goddess worship (melting of the calf/hathor). he was serpent doing very serpent things, imo.
 
+
+### 2020-11-03 23:02 - what do I mean by water and fire
+
+when I say a relationship will either stagnate if there are too much water, or it'll get out of control if there is too much fire. what I mean by these water and fire symbols is that these are vibrational. fire is a plasma created because of some interaction with oxygen, but in it's essence, it gets more intense as rapidly as it can, consuming the fuel which is contributing to its growing intensity. water is the exact opposite. water also interacts with oxygen, in that it evaporates, but in the essence of water, it tends toward stagnation. I like to think of fire as an amplifier (at a consumption cost), and water as a dampening effect so I think of them in these energetic terms
+
+air and earth seem to be spatially oriented. air always expands indefinitely, continually trying to get as far away from other particles, and earth is static, however earth is a conductor, and air is not. earth is also a vibrational lattice, and air is not, so they seem to be much more related to conduction/insulation or transmission/absorption of energy. these seem to have an effect in relationsips as well, but I do not yet see it clearly.
+
+at any rate, every person contains all of the elements, with some amount of each activated at any time. it appears that the amount of the element isn't constant and tends to depend on the evironment and mood (set and setting) of the person. I haven't figured out yet what kinds of emotions yield more of each element, but as I'm writing this, I think it could be a fun exercise to try and figure out the different elements for me personally for each emotion on the scale (for everyone it'll be unique).
+
+anyway, the mixture of fire and water is a great one for me to look at because they contrast so well. it's the easiest of the elemental relationsips to understand, I think.
+
+developing...
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
