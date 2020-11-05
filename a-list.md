@@ -149,3 +149,7 @@ I guess it's for the best, because after-all I my desire is to figure out how to
 ### 2020-11-05 16:02
 
 yesterday I mentioned a lost cat on a sign that I had seen near belvista in @[noseblog](2020-11-04 08:02), and I didn't think much about it. anyway, earlier today I was walking back and I looked at the sign and I was thinking about what I said when I began to feel something when I noticed her email: amanda.p.campbell@... (I think). I didn't get it at first but now I want to invite her to join if the wants to :)
+
+### 2020-11-05 16:07
+
+I'm also reminded of a sign that I saw the day it snowed (day before?), on the corner of nottingham and troy for a yard sale. I remeber the street was a street I had never haerd of ... something 158? I really can't remember the street, but it doesn't matter. the yard sale sign had stars drawn on it, and that's what made me think that it was perhaps a message. anyway, I want to invite her to join in too if she wants to :)
