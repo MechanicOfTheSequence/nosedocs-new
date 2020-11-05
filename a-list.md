@@ -153,3 +153,7 @@ yesterday I mentioned a lost cat on a sign that I had seen near belvista in @[no
 ### 2020-11-05 16:07
 
 I'm also reminded of a sign that I saw the day it snowed (day before?), on the corner of nottingham and troy for a yard sale. I remeber the street was a street I had never haerd of ... something 158? I really can't remember the street, but it doesn't matter. the yard sale sign had stars drawn on it, and that's what made me think that it was perhaps a message. anyway, I want to invite her to join in too if she wants to :)
+
+### 2020-11-05 16:11
+
+finally, I have been putting this off for quite some time now, but I want to remember that there were two older girls at the apartment complex that attracted my attention a few times. one has a white fluffy dog and the other I described as "bouncy". I said I want to remember them so they don't get lost in the shuffle, cause there were definitely times when I liked the way they felt, but then at other times it feels confusing and unsure. I want to decide on these in a future date because I feel there is resistance and stuff, that I don't want to give a definitive right now and to figure it out later when I'm more clear headed.
