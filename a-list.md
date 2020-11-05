@@ -127,3 +127,7 @@ that makes me wonder, because it seems like there was a connection between that 
 ### 2020-11-03 09:48
 
 I want to make sure and invite the daughters of robert grant and muhammad ibraheem just in case they want to join. yesterday I felt some confusion on the subject, but last night I feel like it's ok to invite them if they want to join, as well.
+
+### 2020-11-04 16:58
+
+yesterday (11-03) and the day before (11-02) I wanted to see a jack-o-lantern on the porch of one of the apartments I walk through on the way to the fiold. the first time I heard some sort of scream (not a bad scream) from a girl. I wasn't sure if it was a girl that was signalling that she wanted to join, but it happened again yesterday, and I'm fairly certain that it was. anyway, I want to extend the invite to her if she wants to join. I really like the way she feels. can't wait to meet her :)
