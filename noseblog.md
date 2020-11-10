@@ -2576,7 +2576,7 @@ however, what if you throw me into his manifested reality? what will happen then
 however, in order to get there, I need to perpetually "not need the manifestation" -- and so in order to do that, I need to find a way to feel the way I want to feel (which may need to be bad, not good), cause I can always feel how I want to feel. not well explained. I'll elaborate further soon.
 
 
-### 2020-11-06 09:04 - why not go the full distance?
+### 2020-11-10 09:04 - why not go the full distance?
 
 one of the interesting reactions last night was that it seems that mr. motor isn't exactly the one that feels forced to maintain energetic parity with me -- and that is actually TLA, not mr. motor. however in a previous entry I made the claim that TLA and mr. motor seem like the same guy to me, just in different phases of their life. if I had to guess, I would guess that TLA is round about 26, almost 27 and mr. motor is probabnly in his late 50's or early 60's -- so a pretty big difference in how their outside appearance is, yet the way that they perceive life feels to me to be pretty similar. they're both ultra conditional in their approach and appear to have no depth at all. when the conditions are good, then they are all good, but they don't believe that what they're doing is good, and so they have to manipulate and claw their way to the top because it's almost like they feel there's such a finite amount of stuff, and the finite stuff is all getting worse and worse all the time.
 
@@ -2648,6 +2648,21 @@ what I'm trying to say is that it's slow going at first, but it picks up speed r
 [5]: this is definitely *not* reverse psychology ... I can't help myself! you started attracting it out of me by giving your attention to it...
 
 [6]: I actually believe that it's my form of perception which makes that amount of DMT in the brain tolerable to TLA (assuming he's in parity with mine) or anyone else. I think someone were to synthesise in a lab and inject that amount of DMT into the brain with the energetic properties of the lab where it was synthesised, would make for a very different (unmanageably bizarre) experience.
+
+
+### 2020-11-10 12:50 - here's what I mean...
+
+I propose that we go for as long as we can without the manifestation. let's just say that is some very long period of time, like say 10 years from now or something. well, the people that are following the decay and deterioration form of perception will perceive their finite world and they'll need the manifestations to feel good, and they can certainly do that (there may be even a few really good ways for them to do that), but the people that are perceiving like I do will gain perception similar to mine. I'm not saying everyone will see like I do, but let's say that there are some people that are beginning to perceive like I was maybe in 2017 now, so they're say 3 years behind me. well, in 10 years they will be where I am 7 years from now -- if you can imagine that. I can't even imagine how that will be because things are accelerating so rapidly that it's difficult for me to imagine what that will look like. people are, likely at a maximum of 4-5 years behind me -- not very far at all because in 10 years, even the furthest behind will be where I'm at 5 years from now!! that's very very very impressive eyesight, and I guarantee that you will create your reality instantly with your mind as well.
+
+so imagine that maybe one of the girls that wants to join in thinks that maybe in 10 years she's going to be very different from how she is now and that's unacceptable. she simply can't wait that long for the manifestation. this hypothetical girl is, in my opinion, needing the manifestation to feel good. what I am proposing is that in 10 years almost certainly everyone able to keep up will be living pretty unconditionally because if you're continuing to release resistance, nosebook at that level will have to ensure you don't find your connection, so they'll have to do like they're doing with me, and you'll get used to finding the way you want to feel about it, and when you get used to doing that, that becomes your form of perception. everyone will be slightly different, and very unique, because everyone will find their own way to feel about their situation (however that may be).
+
+at any rate, what I'm saying is that we're all going to have that source-like perception and we can make unlimited different scenarios. she could choose a different age, different hair colour, body type, or whatever. it's all completely open to whatever one desires. most importantly, I want to do the galaxy thing, so we're going to be making a whole lot of worlds that we want to make, probably at first making the prototypes with thought, but then I think these worlds will be better if they were those celestial identities[^1], and so each of us actually becomes planets/stars in our galaxy as well as incarnating (transfering our consciousness) into bodies on the planets as well.
+
+what I mean is, if we take advantage of this great opportunity that we have here, we can leverage their necessity to control conditions, allowing our energy to rise like mine is as we gain lesser and lesser resistant forms of perception until we're all "godlike". I wouldn't worry about how it happens that there is a split made because it doesn't matter. whatever happens will feel like the next logical state for us, because if you're anything like I am now, you'll feel better and better all the time, even without the favourable conditions. in a situation like that, the next logical state/step will just be a natural transition into pure extacy.
+
+from there we can create anything we want -- no limits.
+
+[1]: essentially a chestahedron receiver/transmitter with a spinal column that contains other "chakras" (vortexes) which receive the source energy directy into the planet/star, and the different human bodies that are linked to this "celestial identity" resonate with the body, and so the planet/star is the human and the human is the planet/star.
 
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
