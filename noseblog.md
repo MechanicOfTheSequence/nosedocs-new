@@ -2664,6 +2664,43 @@ from there we can create anything we want -- no limits.
 
 [1]: essentially a chestahedron receiver/transmitter with a spinal column that contains other "chakras" (vortexes) which receive the source energy directy into the planet/star, and the different human bodies that are linked to this "celestial identity" resonate with the body, and so the planet/star is the human and the human is the planet/star.
 
+
+### 2020-11-10 23:11 - a good disaster?
+
+one of the reactions I got (probably from nosebook) was why I went out of my way to speculate on TLA's age. I mean, I thought it was obvious because I was showing the comparison between mr. motor and TLA in age, so different times in their life. when your young you feel like the whole world is available for your taking, but as you get older, then you could easily have a very different appearance, even though the perception is pretty much the same (eg. the difference between TLA and mr. motor).
+
+I then went on to talk about how the idea of deteriorating chi energy and the idea that you need to guard it from thieves, protect it from corruption[^1], etc. are all agrarian concepts that I beive have their origins in the "aryan mentality". it's quite likely that this aryan mentality comes originally from atlantis but it's the same concept to me because the atlantians needed to protect their pure bloodline whatever, yada yada yada. it comes around to this idea of defensiveness and the perception that everything (even people) are like ammunition and so therefore are all expendible.
+
+when you're young, then this sort of "everything is finite and expendible" concept doesn't really make much difference, because you're being expended by the power structures above and when they feel good about your efforts, then you can feel good too. however, as soon as you get a little older, all of a sudden there are new younger ones that are threatening your position of power, and so the effort is to try and expend the young ones and ensure that they are subject to your wishes. you do this by making them feel good when you're doing what they want, and are punished, so as to make them feel bad when they are not.
+
+there is an absolute abhorance to anyone that is not able to be punished or able to be expended by them[^2]. if someone shows up which does not feel bad when they get punished or enslaved, then this is a real threat. they also do not like the idea of unlimited or "free" energy, when this is clearly the case to be found all throughout nature. they must ensure that everyone believes in decay and deterioration -- and any time that anyone comes up with some device or anything which models itself after these natural laws is suppressed.
+
+in the previous entry I gave the example of weeds as being a reproductive champion, and it's true that weeds come and go all the time and are quite short lived, so that example may not have been the best. consider instead the oak tree. the oak is regarded as a very wise tree in its older age. many cultures who have any sense of nature revere this tree. oak trees also "spray their seed everywhere" and if you've ever been around oak trees, on the ground, there are often hundreds of tiny little saplings all over the place. almost none of them grow up to be a big tree like where they came from, so they make these sort of bush like things. it's almost as if they know that they are living in the shadow of the giant oak above them.
+
+however, if a squirrel takes that acorn out from under the shadow of the giant oak and puts the acorn in the ground somewhere else, I have seen that these saplings actually grow up looking from the very beginning as if there were aspiring to be a tree, not just a shub in the shadow of the giant above.
+
+small tangent there. the point is that nature is constantly expanding and growing to become more than it was previously. the newer generations are always superior to the older ones, and there is unlimited potential.
+
+a while ago, there were these these white guys that learned to live with nature... the druids, the picts, the american indians, and more which believed in the unlimitedness of nature and the constant cycles of rebirth and regeneration, but in nearly every case some militaristic faction came and wiped them out, forbiding their nature worship and installing a priesthood which teaches decay and deterioration, but if you do the right things, when you eventually die from deterioration, you can enjoy something great in the *afterlife* where it all comes together in a place without deterioration[^3].
+
+it's easy to see why they would be so opposed to this idea, because if energy is "free" and can get it without doing the stuff the priesthood says they have to do, then certainly the younger ones will overtake the ones on top. in fact this is already what happens, and the standard story of any king is that he has to fight and claw his way to the top, then suppress anything that challenges his superiority, then as he gets older and older, believing their own nonsense, get the best priests to try and give them the things that they can do to hold on to their life-force for as long as possible, eventually being overthrown and cast away. in order to prevent that their efforts aren't completely erased, they need to arrange an elaborate burial or some sort of memorial to that their legacy lives on, even after their body is gone.
+
+---
+
+wow, nice setup there :) so why would I speculate on TLA's age? well, the reaction was that it wasn't mr. motor, but instead his younger counterpart which would be trying to maintain parity with me on my perception, achiving the ability to create anything with his mind and manifest whatever he wants, as if he were a god... well, if the timespan on which this happens is the proposed 2038 timeline, then that's 18 years. I gave the example of ~10 years because it's easier to see but imagine for a moment that it is 15-18 instead. that would put him right into his early 40's, which is right about when the deterioration begins its mental onset[^4], which means that at the very peak, when we part ways, he'll be right at the beginning of his plumet downward into "old and useless" -- which is absolutely hilarious to me. almost certainly this will be a nosedive of epic proportions.
+
+in fact I find it to be such an invigorating concept because it fits in perfectly with the concept I was presenting as a whole, which is that you give this guy a big thing (maybe not a whole galaxy, but perhaps just a planet) and then let his epic sense of failure grow to such a height that he's hardcore attracting his destruction, however he doesn't want to die or to give up his power, so he needs a "saviour" to come and bail him out[^5]. well, what a perfect time to work on the new x7 and x8 models, in exchange for his continued position of power -- know what I mean?
+
+[1]: the origin of this idea was thinking about growing mushrooms. in the easy no fail way to grow mushrooms, there's all kinds of possibility of contamination, and you have to divide the micelium into reproductive groups and stuff and coax them to fruit under certain conditions, which seems like a lot of effort because they grow fine in nature and nature is filled with dirt and germs and stuff. also they don't need to be coaxed to fruit either. it rains and they just pop right up.
+
+[2]: they also dislike honest people, because they can't maintain their illusion as easily.
+
+[3]: there are many versions of this, with the common features being some sort of works (or things you need to do) to be able to earn your way into this non-deteriorating environment -- controlled of course by the priesthood.
+
+[4]: probably 45-46 is the worst because now you're halfway to 50, and 50 is old.
+
+[5]: why do I use the "saviour" symbolism here? well, because as I postulate, they're an era behind, so while the people they "have power over" (they don't really) are developing their aquarian individual freedom, from their perspective they're just now beginning to realise the piscean concepts like group thinking that they taught us all to have previously. therefore, now they now need a pack leader and a saviour (just like they told us all we needed in the pisces age). reality is a reflection of your beliefs, and you can try to avoid that reality from manifesting for as long as possible, but it's eventually going to manifest. it won't be exactly like that -- just a resonance of the past.
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
