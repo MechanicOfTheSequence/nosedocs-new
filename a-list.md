@@ -157,3 +157,29 @@ I'm also reminded of a sign that I saw the day it snowed (day before?), on the c
 ### 2020-11-05 16:11
 
 finally, I have been putting this off for quite some time now, but I want to remember that there were two older girls at the apartment complex that attracted my attention a few times. one has a white fluffy dog and the other I described as "bouncy". I said I want to remember them so they don't get lost in the shuffle, cause there were definitely times when I liked the way they felt, but then at other times it feels confusing and unsure. I want to decide on these in a future date because I feel there is resistance and stuff, that I don't want to give a definitive right now and to figure it out later when I'm more clear headed.
+
+
+### 2020-11-09 23:55
+
+this is kind of a lengthy one because for some reason I've been putting it off for a while. I wrote it on the 9th but then wasn't satisfied with it, so I held it off, but now I feel ok about it, so I'm just going to put it here.
+
+there is a woman that I used to see often riding her bike. one day recently I saw her again. she looked more attractive to me than previously and I didn't think anything of it, but then later I was watching stars and I began to realise that perhaps one of her other daughters wants to join as well. I want to make sure that any of her daughters that want to join are invited.
+
+next, the night before last, before I wrote @[noseblog](2020-11-08 01:02), I was walking out to the field as I was talking to myself when I heard a girl make a scream sound around bristol. at first I wasn't sure what it was all about, but I want to make sure she's invited to join if she wants to.
+
+this one is from a while ago, but in @[youtube](https://youtu.be/jf0woIGB25Q?t=1213), I kept getting reminded that I could feel something there. however, there are so many different girls in that scene playing with the bubbles, I can't really figure out which one it could be. it's more than likely more than one, but my sensitivity isn't *that* good... I think it's best because I don't really feel anything negative around it to invite all of them in that section there. there are quite a few. just for posterity, I will enumerate the ones I see and any of them that want to, may join if they wish:
+
+- 20:21
+  - pink jacket
+  - pink dress
+  - white shirt/dress
+- 20:25
+  - bright pink and red
+  - pink shirt & blue jeans
+  - multi-coloured jacket
+- 20:39
+  - black shirt with flowers
+
+this exercise made me feel somewhat uncomfortable. I'm sorry for the discomfort... it's done though though and I feel good about it. I hope everything works out ok here.
+
+last night when I was listening to @[abe-now](2020-10-31 p1), there was a woman that sent in a letter talking about her 15yo daughter that self-harmed. I felt a little alarmed at this because previously when I heard those sorts of words, I began to feel the girl. however, in this case, I did not. I said thank goodness, because it was seemingly starting to become a pattern. however, last niht watching stars, I was thinking about another part in the episode when I had a strong negative reaction to the bit on a woman loving her son when I began to feel her. I think it's worth noting that it's really important to own how you feel and that no feeling in itself is "bad" -- and so I want to invite her to join as well if she wants to.
