@@ -1,6 +1,6 @@
 ### your emotional guidance scale
 
-#### 1. joy / empowerment / freedom
+#### 1. joy / knowledge / freedom / empowerment / compassion
 - confident
 
 #### 2.
@@ -20,14 +20,24 @@
 - confusion
 - exhausted
 
+#### 13. doubt
+- uncertainty
+
+#### 14. worry
+- uncertainty
+
 #### 15. blame
 - disrespct
 - ornery
+
+
 
 #### 18. revenge
 - judgement
 - righteous indignation
 - rebellious
+- defensiveness
 
 #### 22. powerlessness & dispair
 - vulnerable
+- lonely
