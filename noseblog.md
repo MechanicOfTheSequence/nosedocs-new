@@ -2795,6 +2795,13 @@ I guess nothing really matters more than your perception
 
 [1]: which is why I believe that moses really smoothed over a lot of rough edges in the garden of eden story, because clearly his sources were sumerian, with the flood account and such, yet he decides to rewrite the slavery bit instead as a fall out of ideal conditions. in my mind, adam and eve after becoming physically focused, either from "eating from the tree of the knowledge of good and evil", ejactulating in sex, or genetic manipulation -- doesn't matter to me. the point is, they became physically focused and noticed that some conditions are better than others, and as they now perceived their slavery as something "bad" or "evil", then they fell out of those ideal conditions (probably some sort of induced dream-state).
 
+
+### 2020-11-12 03:32 - it still has to feel good to get there
+
+judging by the reactions, it feels like maybe people are jumping to conclusions. I didn't say anything more than it's all perceptual :) what I mean is, it still has to feel good, and I have to match how it feels, and it has to match how I feel. there's still quite a bit of difference between how they feel, I am certain.
+
+however, in a kind of funny way, this is illustrasting exactly what I wrote, which is that it's all perceptual -- because quite literally we're still in exactly the same place... :)
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
