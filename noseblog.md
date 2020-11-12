@@ -2772,6 +2772,29 @@ you can see that to have the most rapid increase in perception, the conditions (
 
 [4]: I doubt they double. it's some form of accelerating growth, but it's not a simple exponent. I don't really know how this works.
 
+
+### 2020-11-11 23:18 - needing not the manifestation (part 80, hehe)
+
+there are a few different ideas floating around on this one, and I don't really care what it is because what I want to explain here is that it doesn't matter.
+
+personally, I really like the idea of continuing on for as long as we can go. if nosebook wants to get a bunch of timelines or someting going where the girls can have their manifestation there, then that's fine by me. the other idea that they can do is to take some of the children from these timelines and find a way to get their consciousness into them. they should be able to shape-shift and have power over their appearance, and so even though it appears like we are here and it looks like not much is happening, that's because we keep getting reset back. meanwhile, on those timelines where the manifestation is happening and children are being born, then they will continue to grow up. finally, either they find a way to transfer their consciousness into them or whatever, then new timelines can be made where these gnomitos are essentially used as stand-ins for me, and even ridiculous illusions can be made where at first they look like I do, then once they're with the girl (or girls), they they can look like an improved version of me, so as to give the illusion to her that she's improving me.
+
+there are a lot of different things that can be done actually, but I'm sure they'll figure something out. the advantage of that technique of using offspring to appear like me in alternate timelines is that then these can be pure demiurge offspring, and I have nothing to do with them. they're simply other people pretending to be me in my/our genetics. this probably would be the worst possible manifestation, which I think is important because the faster these bodies deteriorate, the faster they'll need a bailout. the new models also would also all be at least half-awful as well, making all future iterations even more difficult than previously imagined. it would also give them ~20 years to get their whole setup going and runing smoothly before the deterioration train arrives.
+
+I figure, as long as they have me constantly improving their conditions, then they'll constantly be feeling better and better and things will continue to go better and better for them for the duration that I'm continuing without the manifestation.
+
+the other option is to try and make the manifestation have much more unwanted in it, so that it keeps creating more desire. the third option is to simply just have the manifestation and approach the ceiling.
+
+the thing is that I have been learning through all of this is that bad and good do not exist. bad and good only exists when one looks at the physical conditions[^1], and when I look at something with source-like perception, I can see that on the wanted path is what I want (obviously), but also on the unwanted path is what I want, too -- but, even more wanted than the wanted path. it just appears in the physical like the unwanted path.
+
+therefore then, having now the ability to see that the physically unwanted path is actually the path of most wanted (as long as I maintain my ability to perceive it like source does), when then means that the ideal (wanted) becomes the undesirable (unwanted), and the undesirable (unwanted) now becomes the desirable (wanted). so then, what if, I were still unable to control my conditions and I were to have the ideal (now unwanted) be forced upon me? what then? is that not a form of my own perception to again find a way to perceive the now less ideal manifestation as the wanted manifestation?
+
+it really all is perceptual, and only your perception limits you from getting what you desire -- AND -- all paths are the right path, so things really are "always working out for you" -- and that you "can't get it wrong" -- and since even the most wanted manifestaion is also the least ideal, then there's always something more to want, so you can't get it done, either.
+
+I guess nothing really matters more than your perception
+
+[1]: which is why I believe that moses really smoothed over a lot of rough edges in the garden of eden story, because clearly his sources were sumerian, with the flood account and such, yet he decides to rewrite the slavery bit instead as a fall out of ideal conditions. in my mind, adam and eve after becoming physically focused, either from "eating from the tree of the knowledge of good and evil", ejactulating in sex, or genetic manipulation -- doesn't matter to me. the point is, they became physically focused and noticed that some conditions are better than others, and as they now perceived their slavery as something "bad" or "evil", then they fell out of those ideal conditions (probably some sort of induced dream-state).
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
