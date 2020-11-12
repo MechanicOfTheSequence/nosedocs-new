@@ -2732,6 +2732,46 @@ what I mean is, that now that nosebook has such a strong influence over more peo
 
 [1]: it's interesting that each of these catastrophes happened when the earth at the peak of "globalised society"
 
+
+### 2020-11-11 21:18 - what do I mean by ceiling?
+
+a few weeks(?) ago (I think it was around @[noseblog](2020-10-21 22:37)) I was talking with mom about the different transitions between the different dimenisions in perception, and I explained that 4d has a kind of ceiling to it -- or maybe I said 5d. I can't remember now, and it's all garbled now, so I'm not going to try.
+
+anyway, I explained that on the way up the vision upgrades, one will reach a ceiling at some point, because it becomes increasingly more difficult to have the beneficial conditions necessary to continue to get vision upgrades. it would become prohibitively more expensive, and also have the adverse effect that if you were to, for whatever reason, run into something that feels terrible, you will have a big mess to clean up -- which usually isn't a problem for people with money or powerful positions, so they are typically the ones trying to get their vision upgrades with conditions[^1].
+
+there is certainly a ceiling though and that ceiling is your present conditions. let's back up though to explain. the visual level that you're at (eg. the amount of DMT your brain is producing) is directly reflected by how good you feel (or how much serotonin you have), so the better you feel the better you see. most of your serotonin exists in your stomach which is where you experience the majority of your emotions, and so there is a direct correlation between how you are doing emotionally (eg. how you percive your present circumstances) and how well you see. if you can get your present circumstances to feel good from whatever conditions (drugs, sex, vibration, brain stimulation, etc.), then you can boost that energy up.
+
+as I mentioned in the previous entry, this energy seems to be directly correlated to your chi, or emotional energy, and it seems that both serotonin and DMT are the chemical manifestations of the flow of your orgone/sex/chi energy. therefore, the ceiling that I was talking about is your perception. conditions can only get you so far, and if the conditions are getting you further than your perception allows for, you will notice a steady decline in that chi energy because your own thoughts and feelings are resisting the reception of more of this energy from source, and so therefore you will need more conditions act as the antenna to receive that energy for you. you can however receive as much of that energy as you are capable of allowing. there is literally no limit[^2].
+
+---
+
+you can however look at a manifestation as a ceiling as well. every manifestation has both wanted and unwanted. if the amount of unwanted approaches zero, then also you will hit a ceiling, because again the conditions are so nice that they do not cause you to want more for a while. this is why the manifestation always slows you down, just like the beneficial conditions will eventually slow you down as well.
+
+in order to continue to expand your perception to be more, you have to want to expand your perception, which, if you're feeling pretty good in all the great conditions, then that basically means your expansion of perception will only be found in not as great conditions. if you can feel good in beneficial conditions, then there's very little unwanted, so little desire and little growth. if you can feel good in terrible conditions, then there's very little wanted (so mostly unwanted), which means a lot of desire, and if you can allow that desire, it will propel you toward how you feel.
+
+imagine it like this. I will use an emotional scale where -0 is boredom and +0 is contentment. imagine it as two magnets superimposed within each other, containing both polarities. one is attracting which is your desire, and one is repelling, which is your own perception. these magnets happen when two frequencies are similar, so the more in sync they are, the more attractive they are. when your perception is resistant to how the thing feels, then you push it away (rather drifting away from each other because it's only attraction and everything is moving). you are resistant to your desires.
+
+
+if you feel 1000 and your circumstances are at 100 and your desire is 10000, then it produces desire to get to 1000, and that desire will propel you toward how you feel. obvious.
+
+if you feel 1000 and your circumstances are also at 1000, then the difference is 0, so you're right there in boredom/contentment and there is very little desire. you are at the ceiling. also obvious.
+
+however, if your physical conditons are at 1000 and you feel like a -100, then your conditions will feel like 900 even though they're 1000. additionally, LOA will act on the negative emotion and will cause you in some time (t2) to feel worse. so say at t2 you're now feeling -200 but your conditions are still at 1000, this creates desire to feel better of an additional 100 but your 1000 conditions will actually feel like 800. now, you must look for at least 1100 conditions to feel as good as before and >1100 to feel better. even though this gap is widening, their desire to feel better is growing (even if they never allow it to happen, continuing to look to the conditions). desire is getting more and feeling is getting worse. if desire is increasing 100 and feeling is decreasing 100, then it's a net 0, so any improvements are only experienced in the improvement of conditions. obviously conditions have diminishing returns to them[^3]
+
+finally, if your physical conditions are at 0 and you feel like a 1000, again LOA will act on that and cause you to feel at t2 say 1100 instead, and let's say that your physical conditions also remain the same, so it will add an additional 100 desire. this desire makes it even easier in t3 to feel at least 1200 or more. although it appears in the physical that the person has reached a ceiling because physical conditions are remaining the same, the way one feels is growing and so is desire. if they're both increasing at 100, then increase is 100, and 100 more is in the bank for t+1. in this example, but unlikely in real-life, the next t those numbers will double[^4]
+
+---
+
+you can see that to have the most rapid increase in perception, the conditions (the manifestation) has to be the worst. I think this may have been something that jesus was explaining to people, about the benefit of non-ideal conditions as a requisite for expansion (as long as someone is able to continue on improving their perception and find a way to feel good even in the worst situation), yet I think the finding a perception to feel good bit got purposefully omitted. instead, the priests likely turned it into a concept of self-sacrifice and poverty mentality and service to the church as a means to attain piety... which is exactly the opposite. nice.
+
+[1]: I believe this is the reason why it's said that it is more difficult for a camel to do something impossible than for a rich person to enter the kingdom of heaven. meaning they are too reliant on conditions to get them to that kingdom.
+
+[2]: the only two limits are the physical capability of your body. this can be a problem if your reception of the energy is done physically and not by your own allowance or non-resitance of the energy. if you allow more than your body was designed for, then your body will find a way to allow that energy. this is not a problem. the only other problem must be some sort of finite amount of energy, but this is also infinite because there is always at least as much energy as your allowing, because there's always at least as much as your desiring, which is pretty much always more than you're able to receive. your desire always makes more and your desire will find a way to allow it too, even if some transitions need to be made. it is unlimited.
+
+[3]: this is what I estimate happened with the atlantians. they were continuing to grow their physical conditions to feel better and better, which gave them the manifestation they were looking for, which is increased perception, while at the same feeling worse and worse.
+
+[4]: I doubt they double. it's some form of accelerating growth, but it's not a simple exponent. I don't really know how this works.
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
