@@ -2802,6 +2802,21 @@ judging by the reactions, it feels like maybe people are jumping to conclusions.
 
 however, in a kind of funny way, this is illustrasting exactly what I wrote, which is that it's all perceptual -- because quite literally we're still in exactly the same place... :)
 
+
+### 2020-11-14 23:26 - trying to find things for me to do
+
+the last two (three?) times I was asleep, there were numerous dreams about trying to find something for me to do -- with the emphasis on trying to keep me busy. last night, I woke up from the dream because it caused a stir. they were convincing me that I didn't want to do any programming, by leading me to say that "until I can use my computer with my mind, it doesn't make a whole lot of sense to try and progam things" ... which was fine, cept the next part seemed to bother them which is why I woke up, because I said I want to make small diagrams and stuff, which they didn't like .. so I said, ok then maybe if some of the girls want to make some of these things, I can just sort of direct them, because it's so slow to try and type on a keyboard and stuff, maybe they want to do all that typing (or maybe they have brain-computer interfaces, I dunno).
+
+I don't really care. they want to delay the manifestation for as long as possible, and I'm pretty ok with that. I suppose they're going for what I suggested in the beginning part of @[noseblog](2020-11-11 23:18).
+
+I also became aware of their reliance on me to maintain their image. they absolutely don't want me to get connected, and it seemed like that if I did, then they wouldn't have their super sweet setup they've got going right now. I don't really know how to describe it, but if they didn't have me continually making them feel better and better all the time, they would rapidly begin to decline (because of their own beliefs) like I mentioned in @[noseblog](2020-11-11 21:18). it's absolutely crazy how they've built up this whole big thing on something so fragile. I dunno I'm completely bewildered.
+
+---
+
+anyway, I guess this is sorta what's happening. I literally see the remake of what I'm realising happened around the time of atlantis and stuff. I don't know if there will be a literal cataclysm or not (probably, right?), but they want to see how far they can take things. I guess that's what we're going to endeavour to do these next years. I mean, it's already what I'm doing, but now it feels like they're on board with the idea. I think they have some sort of plan where they can avoid the catastrophe and stuff and then emerge from their hiding spots and have commplete control over whatever of the world is left. I wonder if they're going to do get rid of enormous monoliths and stuff.
+
+I guess I need to find something to keep me busy for the next 18 years or whatever (besides star-watching, I guess). or, it's also possible that it all works out, too. I have no idea. I don't really care anymore.
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
