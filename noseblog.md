@@ -2873,6 +2873,74 @@ this is really what the whole value of not needing the manifestaion is. it's get
 
 [12]: no one gets anything for free, you know. probably, what leve someone pays for is where they will normalise you to be at -- whether it's a boost or a limitation. that way they can arbitrarily setup their new caste system and keep people where they're supposed to be, and only upgrade them to the next clearance level after they've performed enough arbitrary whatevers to get there. it most certainly *won't* be based on how you feel, cause the guys running the show feel terrible.
 
+
+### 2020-11-15 07:06 - the four hemispheres
+
+a while back I was contemplating this idea of perceiving the "four corners" of the zodiac, not as 4 quarters of a circle, but instead as two half-circles overlaid on top of one another. this makes sense when one contemplates the quaternion having 720(degrees), or two full rotations of a circle, to illustrate rotation. you could see it as in the centre, turning all the way around to your left is not the same as turning all the way around to the right, but in this example, I want to instead visualise it as 4 hemispheres with one pair north-south with their axis on the east-west, and the other two hemispheres on the east-west with their axis on the north-south.
+
+for this example, I will use this configuration for the 4 poles[^1]:
+
+- north pole
+  - saturn
+  - 3rd ray (logic/structure - intellectual willpower)
+  - eagle/serpent
+- south pole
+  - vulcan
+  - 5th ray (mental/emotional - concept, essence, feeling)
+  - bull
+- east pole
+  - venus
+  - 1st ray (desire - emotional willpower)
+  - lion
+- west pole
+  - mercury
+  - 7th ray (physical - data, process, mechanism, concrete)
+  - human
+
+therefore when you look at now the "four corners" you get the following:
+
+- north-east
+  - +saturn  +(logic/structure - intellectual willpower)
+  - +venus   +(desire - emotional willpower)
+  - -vulcan  -(mental/emotional - concept, essence, feeling)
+  - -mercury -(physical - data, process, mechanism, concrete)
+- south-east
+  - -saturn  -(logic/structure - intellectual willpower)
+  - +venus   +(desire - emotional willpower)
+  - +vulcan  +(mental/emotional - concept, essence, feeling)
+  - -mercury -(physical - data, process, mechanism, concrete)
+- south-west
+  - -saturn  -(logic/structure - intellectual willpower)
+  - -venus   -(desire - emotional willpower)
+  - +vulcan  +(mental/emotional - concept, essence, feeling)
+  - +mercury +(physical - data, process, mechanism, concrete)
+- north-west
+  - +saturn  +(logic/structure - intellectual willpower)
+  - -venus   -(desire - emotional willpower)
+  - -vulcan  -(mental/emotional - concept, essence, feeling)
+  - +mercury +(physical - data, process, mechanism, concrete)
+
+this applies to the x4 configuration, because what I want to show here is that not only can you perceive parts of the zodiac as having different effects, the brain cycles can also be perceived in a simplar way, and not just as a single scalar but as two scalars instead. it's also quite possible that there are, by default 2 of these happening at once, hence the 4 hemispheres. so to simplify this I will just consider the 4 vectors in this example: two for each axis.
+
+it's important to instead focus on the differences aspects of the 4 hemispheres here because you have to think of them as two opposite effects. just as the primary coil in the tesla coil creates a magnetic field which collapses, inducing a current in the secondary, the opposite hemisphere does the opposite. the cycle in the brain happens a number of times per second and may "turn" in a specific direction. if you think of the brain like rocking from side to side, (see @[youtube](https://youtu.be/7Fn-26Jmi5E?t=35)), then you could imagine that it is kind of like "turning" -- and a scatter-brained person will not get this rocking effect, with parts of the brain firing at both sides.
+
+it's optimal to synchronise the rocking of the hemispheres with guided thought or meditation, or even using binaural beats, as researched by the monroe institute, so as to begin a turning inside of the head. I believe this is optimal because with each part of the brain beginning to take its turn to fire, there will be less "contradictory vibration" which may occur as a result. this also seems related to the corpus collosum which seems to regulate how the different sides of the brain doesn't communicate. obviously if the brain is cycling regularly, the corpus collosum wouldn't be needed, and both sides of the brain would be beginning to be used.
+
+I think by default the chaos in our world ensures that, each of these 4 vectors has some positive value, but if the brain is synchronised, then you could imagine that two of those vectors are rocking in unison, as illustrated by the nothing grinder.
+
+to describe the value of these vectors, let us take the easy example of desire. we know that it originates mostly in the neocortex, but it seems to be triggered by something else happening somewhere else. I propose that this is the opposite hemisphere, the physical side is responsible for this. this idea is backed up by abraham when they say that when you observe (eg. physical senses), then you have a response to it, and you come to conclusions based on your preferences, what you want. in other words, your physical senses create desire. this is automatic and does not need to be taken advantage of.
+
+you can also see that the conceptual side often inspires thought in the structure (mental willpower) side, and vice versa. they can also war with each other of you feel something, then immediately logically shoot it down as not relevant (even though you obviously felt it for some reason). looking at those four corners, you can see that there are kind of like bad zones to be avoided. for example, you can see the following configurations that never work:
+
+- saturn - vulcan
+- venus - mercury
+
+which are the two axes. which, in this example, is the deifinition of "split energy" -- because one cannot desire (venus) and observe (mercury) at the same time and not cause split energy. likewise, one cannot conceptualise (vulcan) and rationalise (saturn) at the same time. they simply create split-energy no matter how you look at it.
+
+I believe that this setup is actually similar to the galaxy or solar system rotations, and you could even imagine things like thoughts becoming so condensed in the mind of the solar system or the galaxy, they become stars or planets, which then, in turn also have major thoughts coming into condensed form within their sphere's of influence as well. OH THAT's really cool!! I'll have to think on that more...
+
+[1]: this example is not definite at all, and actually may have the poles -90(degrees) offset. I'm not terribly sure if saturn is north or if venus is north. I can also see good reason for why venus should be south, and also for why vulcan should be west. I provide it only as an example and allow the reader to come to their own conclusions.
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
