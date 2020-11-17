@@ -17,8 +17,10 @@
 #### 5. optimism
 
 #### 6. hopefulness
+- gratitude
 
 #### 7. contentment
+- gratitude
 
 #### 8. boredom
 - letting go
@@ -41,6 +43,8 @@
 
 #### 14. worry
 - uncertainty
+- concern
+- safety
 
 #### 15. blame
 - disrespct
