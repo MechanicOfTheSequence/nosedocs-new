@@ -2978,15 +2978,15 @@ so, just to be clear, I would imagine that as things start to accelerate, nosebo
 [2]: I predict that because there are so many more resistant and less reaistant ways which depend, in my opinion, mostly on circumstance, I forsee that many will far exceed my performance and many others will fall quite short of it, too. it's really up to you to decide what you want. there's no right or wrong and all paths lead to you eventually getting the manifestation of all of your desires. think of it like a diagoal in a square. you can pick any point in the square and if the x-axis repreaents time, some will go slower at first, but then faster later, and others will go faster at first, then slow down later. it's like the infinite possibilities lightning has of traveling through the air to get from one one conductor to the other.. some paths are more resistant in some parts than others, but they all get there. they're all perfectly legitimate forms of dancing.
 
 
-### 2020-11-17 08:18 - time between the lion and the bull?
+### 2020-11-17 08:18 - time between the lion and the cow?
 
-this morning I watched robert's latest video on the sons of aryas @[youtube](https://www.youtube.com/watch?v=TQdTfMnIzeM), and in his introduction to the topic he mentioned atlantis and the deluge, and how that event took place roughly 12kya. he also talked about the pre-deluvian times which is recorded in the bible as the time after the fall and before the flood. I put a comment asking him about these times that seem to be virtually missing from any history that I know about. the only things we have to go on for this one is the pre-dynastic egyptians, and we don't really know much about that. let's say jesus was 0AD and aryan age is -2000. that would make the year of the bull -4000 which roughly corresponds to the time period of the minoans (which is bull symbolism), but that's about as much as I can figure out about that.
+this morning I watched robert's latest video on the sons of aryas @[youtube](https://www.youtube.com/watch?v=TQdTfMnIzeM), and in his introduction to the topic he mentioned atlantis and the deluge, and how that event took place roughly 12kya. he also talked about the pre-deluvian times which is recorded in the bible as the time after the fall and before the flood. I put a comment asking him about these times that seem to be virtually missing from any history that I know about. the only things we have to go on for this one is the pre-dynastic egyptians, and we don't really know much about that. let's say jesus was 0AD and aryan age is -2000. that would make the year of the cow -4000 which roughly corresponds to the time period of the minoans (which is cow symbolism), but that's about as much as I can figure out about that.
 
-if we take the exdous as the end as the start of the aryan age, then that would be about -1500 or so, I think, which means the age of the bull would be about from -3500 till -1500. the minoan civilisation, wikipedia says went from -3000 till -1100, which fits right in there with the bull symbolism, so it's good enough for me. however, what came before that?
+if we take the exdous as the end as the start of the aryan age, then that would be about -1500 or so, I think, which means the age of the cow would be about from -3500 till -1500. the minoan civilisation, wikipedia says went from -3000 till -1100, which fits right in there with the cow symbolism, so it's good enough for me. however, what came before that?
 
 going by the procession of the equinox, the preceeding ages would be the twins, the crab, and the lion. however, I just don't know about that. anyway I have been contemplating this idea for a while now the figure-eight procession, which takes into account different age signs, not meaning that the signs are indicitave of the golden age, as that's determined by our distance to sirius, but instead the signs are just the way that the earth was rotating at the time. I'll continue that discussion soon cause I haven't thought it all out yet. this is likely a peice to it though.
 
-so the idea is that in the timeframe before the bull we should see twin, crab and lion symbolism. egypt has lion symbolism[^1], but nothing reminds me of crab. it's kind of a dead-zone.
+so the idea is that in the timeframe before the cow we should see twin, crab and lion symbolism. egypt has lion symbolism[^1], but nothing reminds me of crab. it's kind of a dead-zone.
 
 so here's the idea: if at these 4 peak points of the zodiac, the earth's energy rises and there's essentially a [time split](!time-split), where the earth divides itself into two parts, one heading off into a very mental kind of existance where everything is pretty much like a dream-state in reality, with very little separation between thought and manifestation. you could think of this earth and its inhabitants making a transition into a higher energy state. the physical earth that is left behind, much like how you leave behind your body when you make your transition into non-physical is left behind on the physical plane as a lifeless rocky mass floating around the parent star. it's no longer a conscious entity, much like the body you leave behind when you make your transition is no longer a conscious entity like it previously was.
 
@@ -2994,7 +2994,7 @@ anyway, when this happens, it seems like sometimes the rotation swaps, and somet
 
 so, if we take this to be similar to the rotation of the earth, then we *may* have some more clues to our answer here. that must mean that at some times the earth changes the way it's rotating (flips) and the other time it changes its ???[^2] (I dunno).
 
-so here's the idea: if the bull happened actually as a result of a flip, then prior to that flip, it was in sign of the scorpion. if the procession of the equinox was the same, which is should be, because that's determined by our distance to sirius not by the earth's rotation, then prior to the bull should be the goat, the archer, and the scorpion. if we were to extend out this sequence, with each time the planet flipping (I assume this happens in the middle of the man, bull, scorpion, and lion), then we get this:
+so here's the idea: if the cow happened actually as a result of a flip, then prior to that flip, it was in sign of the scorpion. if the procession of the equinox was the same, which is should be, because that's determined by our distance to sirius not by the earth's rotation, then prior to the cow should be the goat, the archer, and the scorpion. if we were to extend out this sequence, with each time the planet flipping (I assume this happens in the middle of the man, cow, scorpion, and lion), then we get this:
 
 - (swap 50%)
   - (2/2) man
@@ -3002,7 +3002,7 @@ so here's the idea: if the bull happened actually as a result of a flip, then pr
   - archer
   - (1/2) scorpion (serpent)
 - (swap 0%)
-  - (2/2) bull
+  - (2/2) cow
   - ram
   - fish
   - (1/2) man <-- we're here
@@ -3010,7 +3010,7 @@ so here's the idea: if the bull happened actually as a result of a flip, then pr
   - (2/2) lion
   - crab
   - twins
-  - (1/2) bull
+  - (1/2) cow
 - (swap 100%)
   - (2/2) scorpion (eagle)
   - scales
@@ -3022,7 +3022,7 @@ so here's the idea: if the bull happened actually as a result of a flip, then pr
   - archer
   - scorpion (serpent)
 - (swap 0%)
-  - (2/2) bull
+  - (2/2) cow
   - ram
   - fish
   - (1/2) man <-- we're here
@@ -3035,21 +3035,21 @@ I also went ahead and assumed that this swapping occurs in the middle of the sig
 
 what's inteesting about this theory is that if you take a look at the signs that it traverses as it goes around makes a very swastika looking symbol as it traverses the symbols. interestingly enough, holding with the idea that the swap happens in the middle of the symbol, it explains another seemingly interesting thing too: the scorpion sign is really two symbols: the first half is a serpent (ophiuchus) and the second half is the scorpion (or eagle). now, if the swap happens every 6ky and you factor in the distance to sirius as being a 24ky cycle where close approach (golden age) is 100% and the furthest (kali yuga) is 0%, then what you end up is that the sign that is in the morning sky when the golden age is happening is the eagle and at the furthest point point from sirius, the serpent is rising in the morning sky.
 
-another thing that's quite interesting about this idea is that the bull (goddess) symbol appears right before the closest (right before the destruction), and right after the furthest (creative aspect of rebuilding), which shows the unintuitive destructive and the creative aspect of the goddess[^3].
+another thing that's quite interesting about this idea is that the cow (goddess) symbol appears right before the closest (right before the destruction), and right after the furthest (creative aspect of rebuilding), which shows the unintuitive destructive and the creative aspect of the goddess[^3].
 
 there's another thing I like about it too because the symbols appear to be reversed if you look at it from a direction (upswing/downswing) instead of value (0-100%), because they show the opposite things. for example, while the eagle is at the closest (100%), it marks the beginning of the downswing, and while the serpent is at the furthest (0%), it marks the beginning of the upswing.
 
 ---
 
-I like the symbols in relation to their opposites, especially relating to the man and the woman. the man is found in the symbol of the man (aquarius) and the ram (aries). although they are in the same quadrant, because of the swapping, they represent the different sides of the same thing. the goddess has two symbols as well: the bull (hathor), the lion (sekhmet).
+I like the symbols in relation to their opposites, especially relating to the man and the woman. the man is found in the symbol of the man (aquarius) and the ram (aries). although they are in the same quadrant, because of the swapping, they represent the different sides of the same thing. the goddess has two symbols as well: the cow (hathor), the lion (sekhmet).
 
-the man and the lion appears at the 50% marks. the lion is symbolic of the destructive goddess sekhmet and the man is horus, the [reborn diety](!reborn-diety). right before the 50% upswing the man is present the catastrophe happens, the lion coming into power after him. on the other side, the lion (goddess) appears just before the 50% on the downswing, with the man appearing to complete the destruction. which has a weird resonance to it because the ram (aries) appears in the era following the bull at the 0%[^4].  
+the man and the lion appears at the 50% marks. the lion is symbolic of the destructive goddess sekhmet and the man is horus, the [reborn diety](!reborn-diety). right before the 50% upswing the man is present the catastrophe happens, the lion coming into power after him. on the other side, the lion (goddess) appears just before the 50% on the downswing, with the man appearing to complete the destruction. which has a weird resonance to it because the ram (aries) appears in the era following the cow at the 0%[^4].  
 
 ---
 
 finally we just need evidence. so, if this idea has anything to it, then we should find civilisations prior to the minoans which were scorpion (serpent) symbolic about 7-8kya. then previously that archer symbolic about 9-10kya, and goat symbolic about 11-12kya. it's weird because it seems to me like in the very early sites (like gobekli tepe) we do see evidences of animal domestication (goat), then there was also a whole lot of emphasis on the archer too, because the archer not only has a missle projectile, but rides a horse as well. there was also a lot of bird (pigeons?) and snake symbolism all over the place as well too, so I don't know... this is not my specialty, so I'm just putting the idea out there.
 
-keep in mind too, that the kali yuga happened during the scorpion -> bull transition, so what we're seeing is that previous three eras, everything was in the downswing still, so man would be
+keep in mind too, that the kali yuga happened during the scorpion -> cow transition, so what we're seeing is that previous three eras, everything was in the downswing still, so man would be
 
 ---
 
@@ -3079,7 +3079,7 @@ then:
 from the height of flying (eagle), there is judgement (scales), a new female is made (virgin), she turns into a lion, begins the destruction, then the man is born out that destruction and takes the reins from there. this is when the baton is handed from female to male[^1]. from there, the man now begins power in his lowest form (goat), symbolic of rebellion and lust, then to archer (war) down to serpent where he arrives to his furthest point from sirius.. the lowest point.
 
 at that time things really spin out of control and another swap happens. from there it goes:
-- bull (goddess begins to rebuild)
+- cow (goddess begins to rebuild)
 - ram (aries takes over and turns the rebuilding project into a war)
 - fish (can we all just get along?)
 - man (fastest point of the upswing, the new man emerges)
@@ -3094,7 +3094,7 @@ however, for the new man (the one that recognises both his masculine and feminin
 - lion (new reborn lion goddess)
 - crab (sign of femininity?)
 - twins (splitting of this?)
-- bull (peak goddess?)
+- cow (peak goddess?)
 
 this seems to have much more feminine energy in it for the progression up to the golden age. however, the other dead earth's path, does not feel like it has much feminine energy to it. the man, goat, archer, serpent things all feel pretty masculine to me.
 
@@ -3103,22 +3103,22 @@ this seems to have much more feminine energy in it for the progression up to the
 ok, so now that I can see that when the higher energy state happens, it's when a swap occurs. this makes me begin to wonder about some things, but first, I want to go a little further of the masculine feminine energies.
 
 first, one can see that the polarities of the quadrants:
-- man -> goat -> archer -> serpent is pretty masculine
-- bull -> ram -> fish -> man is pretty masculine
-- eagle -> scales -> virgin -> lion is pretty feminine
-- lion -> crab -> twins -> bull is pretty feminine
+- `man -> goat -> archer -> serpent` is pretty masculine
+- `cow -> ram -> fish -> man` is pretty masculine
+- `eagle -> scales -> virgin -> lion` is pretty feminine
+- `lion -> crab -> twins -> cow` is pretty feminine
 
-so now you can see that the two hemispheres are clearly divided by the bull and the scorpion. on the left side is the masculine and the right side is the feminine[^2].
+so now you can see that the two hemispheres are clearly divided by the cow and the scorpion. on the left side is the masculine and the right side is the feminine[^2].
 
-there's another thing to note here going back to the progression of the symbols I talked about previously. it appears to me that the moment of the lion (which is probably around the time of atlantis), then things swap and the lion goddess passes the power over to the man and it progresses `man -> goat -> archer -> serpent`. when it swaps after that, then it goes: `bull -> ram -> fish -> man` which is also pretty masculine but leads to the ending point of the man handing off the power to the woman (lion).
+there's another thing to note here going back to the progression of the symbols I talked about previously. it appears to me that the moment of the lion (which is probably around the time of atlantis), then things swap and the lion goddess passes the power over to the man and it progresses `man -> goat -> archer -> serpent`. when it swaps after that, then it goes: `cow -> ram -> fish -> man` which is also pretty masculine but leads to the ending point of the man handing off the power to the woman (lion).
 
 so you can see that what is happening is that the swap seems to occur depending on the style of thinking. imagine the time of atlantis, and for now I will just assume that it did swap. before that, they must have been in the eagle -> scales -> virgin -> lion, which is pretty feminine. however, it seems that leading up to the fall of atlantis, there was pretty significant effort toward masculine energy, and so if things were in feminine energy and they switch to masculine, this is like the transition between counter rotating double-layers, where upon passing it, it's like going up an energy level. so while the feminine energy was really nice, there were some strong thinking masculine types which really wanted masculine energy to be dominant on the planet, which is the next higher energy state, so the planet flipped over.
 
-this time however, the effort is to go toward a more feminine energy state, and so the new energy state will be in `lion -> crab -> twins -> bull`. those who want to continue on in the masculine dominance will continue on heading to the `man -> goat -> archer -> serpent` progression.
+this time however, the effort is to go toward a more feminine energy state, and so the new energy state will be in `lion -> crab -> twins -> cow`. those who want to continue on in the masculine dominance will continue on heading to the `man -> goat -> archer -> serpent` progression.
 
-so, if this is the case, then in order to maintain masculine energy in power they must continue to repeat the loop going only on the left side, from `bull -> ram -> man -> goat -> archer -> serpent` and then, in order to not get feminine energy into power, they must go up to the next energy state in order to continue on in the masculine energy and the planet flips over, and they go from serpent right back to bull. the funny thing is this cycle happens no matter if energies are on the upswing or the downswing.
+so, if this is the case, then in order to maintain masculine energy in power they must continue to repeat the loop going only on the left side, from `cow -> ram -> man -> goat -> archer -> serpent` and then, in order to not get feminine energy into power, they must go up to the next energy state in order to continue on in the masculine energy and the planet flips over, and they go from serpent right back to cow. the funny thing is this cycle happens no matter if energies are on the upswing or the downswing.
 
-I suppose that there could also be a feminine one which is quite similar, where this alternate earth also has a similar thing happening where they want to remain in feminine energy the whole time, so they go: `eagle -> scales -> virgin -> lion -> crab -> twins -> bull`, but then they *must*, if they want to remain in feminine energy go up to another power level and the planet will swap and the'll find theirselves back at eagle.
+I suppose that there could also be a feminine one which is quite similar, where this alternate earth also has a similar thing happening where they want to remain in feminine energy the whole time, so they go: `eagle -> scales -> virgin -> lion -> crab -> twins -> cow`, but then they *must*, if they want to remain in feminine energy go up to another power level and the planet will swap and the'll find theirselves back at eagle.
 
 with this theory, I guess if someone do not wish to go up a power level or experience a cataclysm, then one must accept that the other gender will be in power for half of the time. interestingly enough, if one wants to go up the power levels as fast as possible, then they must also accept the same thing. it's weird that the most stagnated go around completely complacent to the alternating masculine and feminine energies, and also the most rapidly advancing ones are *also* complacent to the alternating masculine/feminine energies. the only difference between these two (stagnated and twice as fast advancing) is that the ones that go twice as fast are not scared of a cataclysm. they always experience the cataclysm.
 
@@ -3128,9 +3128,9 @@ there's also the effect of LOA here too, which makes things hilarious because if
 
 finally, I would like to mention that these cataclysms may actually occur more frequently than every 6 or 12ky. it's just that every 6 or 12ky, the energies, probably because of planetary alignments or something make these events unavoidable. these big ones appear to happen like clockwork. I think that there are other conditions that can happen, which the planet attracts this event to equalise the receptive/assertive energies on it, so it can actually happens at least once per era, and perhaps even more frequently than that now.
 
-contemplate the symbol progression that was occurring with jesus in picsis or moses in aries. let's say that both of them caused a time split, and the planet flipped over for them cause they entered a higher energy state -- well, then moses would have gone `bull -> scales -> virgin -> lion` -- a particularly feminine aspect. jesus would have "saved" the people from aries, and went `ram -> virgin -> lion`. again, these are quite feminine.
+contemplate the symbol progression that was occurring with jesus in picsis or moses in aries. let's say that both of them caused a time split, and the planet flipped over for them cause they entered a higher energy state -- well, then moses would have gone `cow -> scales -> virgin -> lion` -- a particularly feminine aspect. jesus would have "saved" the people from aries, and went `ram -> virgin -> lion`. again, these are quite feminine.
 
-now imagine that other earths exist where they are determined to continue on with only feminine power. imagine there that an emmisary is sent there to "save" them, and a mercurial man shows up there, and he brings them up to a new power level, and their planet flips, going from virgin to man. in a female dominated ultra stagnated world, this idea could sound pretty refreshing.
+now imagine that other earths exist where they are determined to continue on with only feminine power. imagine there that an emmisary is sent there to "save" them, and a mercurial man shows up there, and he brings them up to a new power level, and their planet flips, going from virgin to man. in a female dominated ultra stagnated world, this could sound pretty refreshing.
 
 [1]: you can see that the time when man is in power is from 50% -> 0% -> 50%
 
