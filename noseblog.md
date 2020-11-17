@@ -2977,6 +2977,80 @@ so, just to be clear, I would imagine that as things start to accelerate, nosebo
 
 [2]: I predict that because there are so many more resistant and less reaistant ways which depend, in my opinion, mostly on circumstance, I forsee that many will far exceed my performance and many others will fall quite short of it, too. it's really up to you to decide what you want. there's no right or wrong and all paths lead to you eventually getting the manifestation of all of your desires. think of it like a diagoal in a square. you can pick any point in the square and if the x-axis repreaents time, some will go slower at first, but then faster later, and others will go faster at first, then slow down later. it's like the infinite possibilities lightning has of traveling through the air to get from one one conductor to the other.. some paths are more resistant in some parts than others, but they all get there. they're all perfectly legitimate forms of dancing.
 
+
+### 2020-11-17 08:18 - time between the lion and the bull?
+
+this morning I watched robert's latest video on the sons of aryas @[youtube](https://www.youtube.com/watch?v=TQdTfMnIzeM), and in his introduction to the topic he mentioned atlantis and the deluge, and how that event took place roughly 12kya. he also talked about the pre-deluvian times which is recorded in the bible as the time after the fall and before the flood. I put a comment asking him about these times that seem to be virtually missing from any history that I know about. the only things we have to go on for this one is the pre-dynastic egyptians, and we don't really know much about that. let's say jesus was 0AD and aryan age is -2000. that would make the year of the bull -4000 which roughly corresponds to the time period of the minoans (which is bull symbolism), but that's about as much as I can figure out about that.
+
+if we take the exdous as the end as the start of the aryan age, then that would be about -1500 or so, I think, which means the age of the bull would be about from -3500 till -1500. the minoan civilisation, wikipedia says went from -3000 till -1100, which fits right in there with the bull symbolism, so it's good enough for me. however, what came before that?
+
+going by the procession of the equinox, the preceeding ages would be the twins, the crab, and the lion. however, I just don't know about that. anyway I have been contemplating this idea for a while now the figure-eight procession, which takes into account different age signs, not meaning that the signs are indicitave of the golden age, as that's determined by our distance to sirius, but instead the signs are just the way that the earth was rotating at the time. I'll continue that discussion soon cause I haven't thought it all out yet. this is likely a peice to it though.
+
+so the idea is that in the timeframe before the bull we should see twin, crab and lion symbolism. egypt has lion symbolism[^1], but nothing reminds me of crab. it's kind of a dead-zone.
+
+so here's the idea: if at these 4 peak points of the zodiac, the earth's energy rises and there's essentially a [time split](!time-split), where the earth divides itself into two parts, one heading off into a very mental kind of existance where everything is pretty much like a dream-state in reality, with very little separation between thought and manifestation. you could think of this earth and its inhabitants making a transition into a higher energy state. the physical earth that is left behind, much like how you leave behind your body when you make your transition into non-physical is left behind on the physical plane as a lifeless rocky mass floating around the parent star. it's no longer a conscious entity, much like the body you leave behind when you make your transition is no longer a conscious entity like it previously was.
+
+anyway, when this happens, it seems like sometimes the rotation swaps, and sometimes it doesn't. I'll come to this theory soon, but my theory is that probably why there are no lion, crab, and twin civilisations is because the zodiac was upside down. the major question I have with this theory regards the rotation direction, so it's still an unanswered thing for me. for this entry, I will just assume the rotation stays in the same direction and the planet flips over. however, there is another possibility that one must consider regarding the parallels to the sine-wave. at the peaks, the direction changes and it makes a reversal. in the centre, things also make a change but it's more like a reversal of flow. if you think about electricity, 5V meaans 5V of electrons are forward flowing, say from A to B. -5V mean that the same quantity (5V) of electrons are now backward flowing from B to A. in AC electricity, current flows in both directions, so instead now you have to take into account what is happening to the voltage: is it increasing or is it decreasing. at the peaks, it reverses increasing/decreasing. at the centres, it reverses the forward/backward direction.
+
+so, if we take this to be similar to the rotation of the earth, then we *may* have some more clues to our answer here. that must mean that at some times the earth changes the way it's rotating (flips) and the other time it changes its ???[^2] (I dunno).
+
+so here's the idea: if the bull happened actually as a result of a flip, then prior to that flip, it was in sign of the scorpion. if the procession of the equinox was the same, which is should be, because that's determined by our distance to sirius not by the earth's rotation, then prior to the bull should be the goat, the archer, and the scorpion. if we were to extend out this sequence, with each time the planet flipping (I assume this happens in the middle of the man, bull, scorpion, and lion), then we get this:
+
+- (swap 50%)
+  - (2/2) man
+  - goat
+  - archer
+  - (1/2) scorpion (serpent)
+- (swap 0%)
+  - (2/2) bull
+  - ram
+  - fish
+  - (1/2) man <-- we're here
+- (swap 50%)
+  - (2/2) lion
+  - crab
+  - twins
+  - (1/2) bull
+- (swap 100%)
+  - (2/2) scorpion (eagle)
+  - scales
+  - virgin
+  - (1/2) lion
+- (swap 50%)
+  - (2/2) man
+  - goat
+  - archer
+  - scorpion
+- (swap 0%)
+
+I'm not totally sure about this configuration cause like I said, I don't really know what happens on the other 2 points, but I find it likely that a flipping occurs every 12ky. plato talks about the reversal of the sun rising in the west, and if the planet flipped north and south but remained rotating the same direction, the north would be in the south and the south in the north. this is further evidenced by the fact that "lower egypt" is in the north, and "upper egypt" is in the south... so it's pretty likely that the planet flipped over during the time of the deluge.
+
+I also went ahead and assumed that this swapping occurs in the middle of the sign, not at the edge of it. I have no idea if this is true or not, so the diagram may need to be adjusted. what I mean is, we're leaving the sign of the fish and going to the man, so what I'm saying is I don't know if it'll swap at the middle of the man, or if we'll instead go to the lion.
+
+what's inteesting about this theory is that if you take a look at the signs that it traverses as it goes around makes a very swastika looking symbol as it traverses the symbols. interestingly enough, holding with the idea that the swap happens in the middle of the symbol, it explains another seemingly interesting thing too: the scorpion sign is really two symbols: the first half is a serpent (ophiuchus) and the second half is the scorpion (or eagle). now, if the swap happens every 6ky and you factor in the distance to sirius as being a 24ky cycle where close approach (golden age) is 100% and the furthest (kali yuga) is 0%, then what you end up is that the sign that is in the morning sky when the golden age is happening is the eagle and at the furthest point point from sirius, the serpent is rising in the morning sky.
+
+another thing that's quite interesting about this idea is that the bull (goddess) symbol appears right before the closest (right before the destruction), and right after the furthest (creative aspect of rebuilding), which shows the unintuitive destructive and the creative aspect of the goddess[^3].
+
+the man and the lion appears at the 50% marks. the lion is symbolic of the destructive goddess sekhmet and the man is horus, the [reborn diety](!reborn-diety). right before the 50% upswing the man is present the catastrophe happens, the lion coming into power after him. on the other side, the lion (goddess) appears just before the 50% on the downswing, with the man appearing to complete the destruction. which has a weird resonance to it because the ram (aries) appears in the era following the bull at the 0%[^4].
+
+---
+
+finally we just need evidence. so, if this idea has anything to it, then we should find civilisations prior to the minoans which were scorpion (serpent) symbolic about 7-8kya. then previously that archer symbolic about 9-10kya, and goat symbolic about 11-12kya. it's weird because it seems to me like in the very early sites (like gobekli tepe) we do see evidences of animal domestication (goat), then there was also a whole lot of emphasis on the archer too, because the archer not only has a missle projectile, but rides a horse as well. there was also a lot of bird (pigeons?) and snake symbolism all over the place as well too, so I don't know... this is not my specialty, so I'm just putting the idea out there.
+
+keep in mind too, that the kali yuga happened during the scorpion -> bull transition, so what we're seeing is that previous three eras, everything was in the downswing still, so man would be
+
+---
+
+the reason why I bring this up, is that it seems like perhaps 2/4 times it doesn't swap. this seems to be in alignment with the sine-wave idea. however the evidence seems
+
+[1]: the lion symbolism seems to come from a time much much further back into antiquity when sekhmet was very destructive, and not referring to a time immediatelye after a deluge
+
+[2]: polarity and rotation?
+
+[3]: unintuitive because at the height, she brings the change which begins the decline, and at the lowest, she is the symbol of the reversal from decline to creativity.
+
+[4]: is this is the exodus / bronze age collapse (1177BC) time and related to the aryan invasion?
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
