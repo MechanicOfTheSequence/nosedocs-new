@@ -3020,8 +3020,14 @@ so here's the idea: if the bull happened actually as a result of a flip, then pr
   - (2/2) man
   - goat
   - archer
-  - scorpion
+  - scorpion (serpent)
 - (swap 0%)
+  - (2/2) bull
+  - ram
+  - fish
+  - (1/2) man <-- we're here
+- (swap 50%)
+
 
 I'm not totally sure about this configuration cause like I said, I don't really know what happens on the other 2 points, but I find it likely that a flipping occurs every 12ky. plato talks about the reversal of the sun rising in the west, and if the planet flipped north and south but remained rotating the same direction, the north would be in the south and the south in the north. this is further evidenced by the fact that "lower egypt" is in the north, and "upper egypt" is in the south... so it's pretty likely that the planet flipped over during the time of the deluge.
 
@@ -3031,7 +3037,13 @@ what's inteesting about this theory is that if you take a look at the signs that
 
 another thing that's quite interesting about this idea is that the bull (goddess) symbol appears right before the closest (right before the destruction), and right after the furthest (creative aspect of rebuilding), which shows the unintuitive destructive and the creative aspect of the goddess[^3].
 
-the man and the lion appears at the 50% marks. the lion is symbolic of the destructive goddess sekhmet and the man is horus, the [reborn diety](!reborn-diety). right before the 50% upswing the man is present the catastrophe happens, the lion coming into power after him. on the other side, the lion (goddess) appears just before the 50% on the downswing, with the man appearing to complete the destruction. which has a weird resonance to it because the ram (aries) appears in the era following the bull at the 0%[^4].
+there's another thing I like about it too because the symbols appear to be reversed if you look at it from a direction (upswing/downswing) instead of value (0-100%), because they show the opposite things. for example, while the eagle is at the closest (100%), it marks the beginning of the downswing, and while the serpent is at the furthest (0%), it marks the beginning of the upswing.
+
+---
+
+I like the symbols in relation to their opposites, especially relating to the man and the woman. the man is found in the symbol of the man (aquarius) and the ram (aries). although they are in the same quadrant, because of the swapping, they represent the different sides of the same thing. the goddess has two symbols as well: the bull (hathor), the lion (sekhmet).
+
+the man and the lion appears at the 50% marks. the lion is symbolic of the destructive goddess sekhmet and the man is horus, the [reborn diety](!reborn-diety). right before the 50% upswing the man is present the catastrophe happens, the lion coming into power after him. on the other side, the lion (goddess) appears just before the 50% on the downswing, with the man appearing to complete the destruction. which has a weird resonance to it because the ram (aries) appears in the era following the bull at the 0%[^4].  
 
 ---
 
@@ -3050,6 +3062,79 @@ the reason why I bring this up, is that it seems like perhaps 2/4 times it doesn
 [3]: unintuitive because at the height, she brings the change which begins the decline, and at the lowest, she is the symbol of the reversal from decline to creativity.
 
 [4]: is this is the exodus / bronze age collapse (1177BC) time and related to the aryan invasion?
+
+### 2020-11-17 11:47 - more thoughts on the swastika procession of the zodiac
+
+I noticed some more things because on the downswing there is an interesting symbol progression. it goes from:
+- eagle (flying)
+- scales (judgment)
+- virgin (new woman created from the judgment)
+- lion (she's grown up now and destroys - sekhmet, fastest point of the downswing)
+then:
+- man
+- goat (lust/rebellion)
+- archer (war)
+- serpent (lowest point)
+
+from the height of flying (eagle), there is judgement (scales), a new female is made (virgin), she turns into a lion, begins the destruction, then the man is born out that destruction and takes the reins from there. this is when the baton is handed from female to male[^1]. from there, the man now begins power in his lowest form (goat), symbolic of rebellion and lust, then to archer (war) down to serpent where he arrives to his furthest point from sirius.. the lowest point.
+
+at that time things really spin out of control and another swap happens. from there it goes:
+- bull (goddess begins to rebuild)
+- ram (aries takes over and turns the rebuilding project into a war)
+- fish (can we all just get along?)
+- man (fastest point of the upswing, the new man emerges)
+
+at the fastest point of the upswing, again things spiral out of control for the old man, and the earth leaves them behind, and they continue on. I have often wondered why my intuition tells me that in the coming time split, the higher energy state will be experienced in the lion, and the lower energy state (dead planet) will continue on without a swap. this makes sense because that means that the coming signs for the man on the dead planet (the one that didn't flip) will experience will be:
+- man
+- goat
+- archer
+- serpent (their highest point. peak golden age)
+
+however, for the new man (the one that recognises both his masculine and feminine sides) will experience the swap going to a higher energy state. the planet will flip over and the progression will be:
+- lion (new reborn lion goddess)
+- crab (sign of femininity?)
+- twins (splitting of this?)
+- bull (peak goddess?)
+
+this seems to have much more feminine energy in it for the progression up to the golden age. however, the other dead earth's path, does not feel like it has much feminine energy to it. the man, goat, archer, serpent things all feel pretty masculine to me.
+
+---
+
+ok, so now that I can see that when the higher energy state happens, it's when a swap occurs. this makes me begin to wonder about some things, but first, I want to go a little further of the masculine feminine energies.
+
+first, one can see that the polarities of the quadrants:
+- man -> goat -> archer -> serpent is pretty masculine
+- bull -> ram -> fish -> man is pretty masculine
+- eagle -> scales -> virgin -> lion is pretty feminine
+- lion -> crab -> twins -> bull is pretty feminine
+
+so now you can see that the two hemispheres are clearly divided by the bull and the scorpion. on the left side is the masculine and the right side is the feminine[^2].
+
+there's another thing to note here going back to the progression of the symbols I talked about previously. it appears to me that the moment of the lion (which is probably around the time of atlantis), then things swap and the lion goddess passes the power over to the man and it progresses `man -> goat -> archer -> serpent`. when it swaps after that, then it goes: `bull -> ram -> fish -> man` which is also pretty masculine but leads to the ending point of the man handing off the power to the woman (lion).
+
+so you can see that what is happening is that the swap seems to occur depending on the style of thinking. imagine the time of atlantis, and for now I will just assume that it did swap. before that, they must have been in the eagle -> scales -> virgin -> lion, which is pretty feminine. however, it seems that leading up to the fall of atlantis, there was pretty significant effort toward masculine energy, and so if things were in feminine energy and they switch to masculine, this is like the transition between counter rotating double-layers, where upon passing it, it's like going up an energy level. so while the feminine energy was really nice, there were some strong thinking masculine types which really wanted masculine energy to be dominant on the planet, which is the next higher energy state, so the planet flipped over.
+
+this time however, the effort is to go toward a more feminine energy state, and so the new energy state will be in `lion -> crab -> twins -> bull`. those who want to continue on in the masculine dominance will continue on heading to the `man -> goat -> archer -> serpent` progression.
+
+so, if this is the case, then in order to maintain masculine energy in power they must continue to repeat the loop going only on the left side, from `bull -> ram -> man -> goat -> archer -> serpent` and then, in order to not get feminine energy into power, they must go up to the next energy state in order to continue on in the masculine energy and the planet flips over, and they go from serpent right back to bull. the funny thing is this cycle happens no matter if energies are on the upswing or the downswing.
+
+I suppose that there could also be a feminine one which is quite similar, where this alternate earth also has a similar thing happening where they want to remain in feminine energy the whole time, so they go: `eagle -> scales -> virgin -> lion -> crab -> twins -> bull`, but then they *must*, if they want to remain in feminine energy go up to another power level and the planet will swap and the'll find theirselves back at eagle.
+
+with this theory, I guess if someone do not wish to go up a power level or experience a cataclysm, then one must accept that the other gender will be in power for half of the time. interestingly enough, if one wants to go up the power levels as fast as possible, then they must also accept the same thing. it's weird that the most stagnated go around completely complacent to the alternating masculine and feminine energies, and also the most rapidly advancing ones are *also* complacent to the alternating masculine/feminine energies. the only difference between these two (stagnated and twice as fast advancing) is that the ones that go twice as fast are not scared of a cataclysm. they always experience the cataclysm.
+
+there's also the effect of LOA here too, which makes things hilarious because if you're scared of cataclysm, then you *attract it*, meaning that the most fearful ones are *also* the ones that are going up in power levels twice as fast, too, because they too are always experiencing the cataclysm, meaning they're basically getting more and more fearful twice as fast.
+
+---
+
+finally, I would like to mention that these cataclysms may actually occur more frequently than every 6 or 12ky. it's just that every 6 or 12ky, the energies, probably because of planetary alignments or something make these events unavoidable. these big ones appear to happen like clockwork. I think that there are other conditions that can happen, which the planet attracts this event to equalise the receptive/assertive energies on it, so it can actually happens at least once per era, and perhaps even more frequently than that now.
+
+contemplate the symbol progression that was occurring with jesus in picsis or moses in aries. let's say that both of them caused a time split, and the planet flipped over for them cause they entered a higher energy state -- well, then moses would have gone `bull -> scales -> virgin -> lion` -- a particularly feminine aspect. jesus would have "saved" the people from aries, and went `ram -> virgin -> lion`. again, these are quite feminine.
+
+now imagine that other earths exist where they are determined to continue on with only feminine power. imagine there that an emmisary is sent there to "save" them, and a mercurial man shows up there, and he brings them up to a new power level, and their planet flips, going from virgin to man. in a female dominated ultra stagnated world, this idea could sound pretty refreshing.
+
+[1]: you can see that the time when man is in power is from 50% -> 0% -> 50%
+
+[2]: it's interesting that the right hemisphere of our brain is also much more creative and visual, where as the left is much more analytical. also the egyptians buried the women on the right and the men on the left.
 
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
