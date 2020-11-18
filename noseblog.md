@@ -2941,7 +2941,7 @@ I believe that this setup is actually similar to the galaxy or solar system rota
 
 [1]: this example is not definite at all, and actually may have the poles -90(degrees) offset. I'm not terribly sure if saturn is north or if venus is north. I can also see good reason for why venus should be south, and also for why vulcan should be west. I provide it only as an example and allow the reader to come to their own conclusions.
 
-### 2020-11-16 18:24 - performance expectations in dreams & changing one's perception
+### 2020-11-16 18:24 - performance expectations in dreams
 
 in @[abe-now](2020-11-07 p1), I made a reference to performance expectation in dreams, and it spawned more thought in me, and there were a number of reactions as well, so I think I want to talk about a bit here.
 
@@ -3136,6 +3136,7 @@ now imagine that other earths exist where they are determined to continue on wit
 
 [2]: it's interesting that the right hemisphere of our brain is also much more creative and visual, where as the left is much more analytical. also the egyptians buried the women on the right and the men on the left.
 
+### 2020-11-16 ??:?? - changing one's perception
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
