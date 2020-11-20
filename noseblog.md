@@ -3136,6 +3136,62 @@ now imagine that other earths exist where they are determined to continue on wit
 
 [2]: it's interesting that the right hemisphere of our brain is also much more creative and visual, where as the left is much more analytical. also the egyptians buried the women on the right and the men on the left.
 
+
+### 2020-11-20 10:00 - not everything fits together quite yet
+
+I had a *LOT* of reactions to the preveious entries' concepts, as it seems like a whole lot of people are rethinking the history. however, I'm still no closer to understanding what happened 12ky-6ky ago, but whatever...
+
+the other thing is that not quite all of the things fit together. let's start with what we know:
+
+1. we know that we are in the quadrant `cow -> ram -> fish -> man`. this has to be true, as it fits the symbols of of bovine  in egypt, minoans, then the aryan invasion during the time of the ram, jesus at the fish etc. this quadrant, going back to the cow seems to fit pretty well.
+2. we're pretty certain that there was a cataclysm that happened 12kya where the world flipped over.
+
+this means that there are only two possible quadrants in the 6kya-12ka range thst would fit:
+
+1. if the world flipped over a second time, then it could be `man -> goat -> archer -> serpent`
+2. if the world did not flip, then prior it would be `lion -> crab -> twins -> cow`
+
+so let's take these one at a time and fit the deluge flip into the sequence:
+
+1. in the first case of a flip, the full sequence would be:
+  - 18kya: `eagle -> scales -> virgin -> lion` (deluge+flip)
+  - 12kya: `man -> goat -> archer -> serpent` (flip)
+  - 6kya: `cow -> ram -> fish -> man`
+2. in the case of no flip, the sequence would be
+  - 18kya: `cow -> ram -> fish -> man` (deluge+flip)
+  - 12kya: `lion -> crab -> twins -> cow` (no flip)
+  - 6kya: `cow -> ram -> fish -> man`
+
+it has to be one of those for it to work. that's all there is to it. if you go with the theory that I put forward in the previous entry about feminine and masculine energies[^1] being the reason for the cause of the flip, then if the inhabitants of earth were in receptive energies, and they wanted to go to assertive energies, then the first case seems the most likely.
+
+however, there is another factor which can happen quite easily is if someone *fears* a catacysm, they can attract it quite well, which means that the the second case seems less likely for me. if I had to guess, the first case seems more likely just because of the fear factor[^2]. another thing I would like to mention is that a reversal is a change in power level, and that power level can either be +1 or -1, and taking into consideration that 12kya we were in the downswing phase, it was (obviously) a shift into a lower energy level.
+
+continuing on with the attractiveness of fear, let's just assume that these guys want to remain in an assertive reality, where like the tesla coil, they create the initial magnetic field which then breaks down, inducing a magnetic field into the receptive secondary coil, which according to my thinking, means they want the energies to stay on the saturnian side of the zodiac. they have a huge problem if they're constantly fearing cataclysm, because they will attract it. therefore, if they want to continue on the assertive side of things, then they need to have someone to "save" them from their cataclysm which is represented by the man. imagine, the opposite side where it's a receptive only earth[^3], and they insist on staying only in the eagle side of the energies. they too would would need someoene (probably a woman or a gay man) to show up on the scene and attract all of the men that wanted to go to a more assertive energies one power level up, taking the those who want to go up a power level, to flip up to the higher energy level and take the cataclysm -- effectively "saving" the female dominators in power's problem of rising masculine energies, allowing them to continue on with their bogus "need to control the feelings of people to receive the conditions they desire" version of reality.
+
+---
+
+another thing to consider is that we're on the way back up, so let's assume that just looking at the serpent hemisphere, for 12ky, the earth will be in the downswing, then for 12ky, the earth is in upswing. let's just assume that at the halfway (or maybe more often than that), each time there is a "saviour" that shows up to essentially to "decant" or separate the liquid from the sediment. if you think of this as an alchemical process, then each cycle, what will happen is that the sides will become more and more extreme. this all seems good. however, there are two flips that absolutely cannot be avoided, if the effort is to separate the sides. each cycle, both hemispheres will have to experience a flip (or a change in energy level).
+
+there are essentially 4 cases:
+1. complacent. no need to be masculine or feminine 0/2 cataclysms (needs saviour both times)
+2. only masculine 1/2 cataclysms (needs 1 saviour)
+3. only feminine 1/2 cataclysms (needs 1 saviour)
+4. masculine and feminine 2/2 cataclysms (no saviour)
+
+the #4 case is easy to reason about. they're like me. #1 is basically impossible for me to imagine, and I don't really know if it's even possible. however, the #2 & #3 cases are interesting for me, because they're both going to experience one flip, and it's likely that the energy level they're going to experience is going to always be a downshift. each close approach to sirius, when flipping they're going to go to a lower and lower energy level, essentially pushing the lowest level down further. cool.
+
+I did realise just now that #4 doesn't have to be like me in the sense that they're only going up an energy level, #4 could also be going down energy levels each time, as long as they were able to accept both masculine and feminine energies, so maybe this could be possible. there are some definite advantges to it. it would give them the full swastika zodiac, and they wouldn't need to give up any of their resistant ideas.
+
+I want to think about it a little more...
+
+[1]: I went with feminine and masculine energies because I didn't know a better way to say it. in my system, the primary functions of both the physical and the conceptual/mental planes are *receptive*. you *receive* your physical reality (that's why it's called law of *attraction*), and you *receive* your emotions as a response from your source (or from other people around you), as this seems to be completely receptive. so, when I say feminine, I mean receptive, and when I say mascvuline, I mean assertive. so when I say the flipping over occurs when one does not want to make the transition from an asserive/receptive reality to the other. perhaps a better way to illustrate it would be a tesla coil. the primary is the assertive one, and the secondary is the receptive one.
+
+[2]: at this point, it really only stands to find archeological evidence of civilsations using eagle/serpent, scales (judgment?), virgin and lion symbolism from about 18kya-12kya. however, if there were two flips since then, then the evidence would be limited at best.
+
+[3]: I've kind of wanted to talk about this for a bit, because one can see it pretty easily if you take things from a woman's perspective. imagine that women run the world, and they also have a superiority complex, where they must remain in control, giving others (especially the men) the illusion of power, when they're really just contriving situations and things to affect their desired outcome. just like here, they do not believe they can get any of their well-being for theirselves, so they have to manipulate conditions to get it offered to them so they can reveive it. they have to make up weird rules so that men are required to be grateful for things that they receive from their maternal authorities, and they have to pay those favours back. in a "draconian vision" sort of look on things, they must control the men that keep their vision up to speed, and make sure to hoarde the exceptional ones, guard them and make sure that none of the other females get access to him, should she become enlighenned and userp the throne... one day I'll do a whole thing on this, but it's not too much different than the world we live in now[^4].
+
+[4]: the funny thing is, I think most of the mothers of many of the hardasses you see in high positions of power were like this, and so they grapple to get control of their reality which they have felt out of control of for some time by trying to control conditions just like their mothers did.
+
 ### 2020-11-16 ??:?? - changing one's perception
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
