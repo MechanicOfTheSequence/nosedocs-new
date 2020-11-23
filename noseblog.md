@@ -3235,7 +3235,7 @@ today, I noticed some things, and I wanted to talk about aspects of changing one
 
 I also conjured the idea that if I pee outside then I'm closer to nature and more in touch with the earth, and so therefore more likely to vibrate with it -- and it worked. I also recently conjured the perception that if I pee in the toilet, then because the same pee that was connected to the earth in the outside previously now, is never going to make a connection to the earth, because plumbing pipes are plastic, and so they insulate the pee from touching the earth. it's simply not possible for it to work both ways, because one truth would seemingly contradict the other, yet, for some reason both seem to work. I have also conjured the perception that if I pee from a tall location, the pee will generate a charge as it falls to the ground (like rain does). this is scientifically accurate, so it's easy to see that when I instead opt to do the opposite of surpressing the charge when I pee in the toilet, sitting down is better because there's less distance for the pee to gain a charge from falling.
 
-as you can see, it's all perceptual. all of it. in fact, if you think about it, it's absolutely bonkers that I can, after focusing on a light for a while, change my perception. it's even more bonkers that it's getting easier. all of it only has to do with one's focus and one's own perception. in the previous entry, I talked about the wim hof method and how it totally didn't work for me the way that I thought maybe it would. I got to thinking more about the peeing thing too, and it's all related.
+as you can see, it's all perceptual. all of it. in fact, if you think about it, it's absolutely bonkers that I can, after focusing on a light for a while, change my perception. it's even more bonkers that it's getting easier. all of it only has to do with one's focus and one's own perception. in the previous entry, I talked about the wim hof method and how it totally didn't work for me the way that I thought maybe it would[^4]. I got to thinking more about the peeing thing too, and it's all related.
 
 one of the reactions that I was getting around my recent ability to get vision upgrades with so much ease, is that there's not really anything special that I'm doing with my brain to allow it to happen. I agree completely. I think most of the ease which  I display has come from pracise, and the beliefs or perception that I have accumulated over the time doing it. improving one's perception has to do with releasing resitance. you can, with an artificial stimulant (such as drugs or sex), increase your perception temporarily, but if you continually think resistant thoughts, your vision will return over time back to where it should be.
 
@@ -3266,6 +3266,34 @@ there are no limitations to it, and once someone does it for the first time then
 [2]: yes, meditation is releaseing the good and the bad energy. both are being let go of, allowing you to tune to your source. don't worry about releasing the good feeling energy because your source feels even better than that. it just may be less viceral. in fact, my experience is that the more viceral the good feelings are, the more I am weary of them, because if they feel too good, they're a big jump. if they feel good, but next logical step, that's way better, because it's way more "natural"
 
 [3]: yes, I realise I'm sounding a bit like a hypocrite here saying it's all about perception and yet I can get these vision upgrades like someone who can pee easily. I'm getting there. I'm working on integrating that idea into my reality.
+
+[4]: it wasn't however, his technique that I was learning. see @[noseblog](2020-11-22 16:49)
+
+### 2020-11-22 16:49 - further realsations and some conclusions from the wim hof technique
+
+as I mentioned in the previous entry on changing perceptions, everything has to do with what I believe myself, and that technique really doesn't have much to do with it. there are infinite ways to get oneself to believe yourself. in fact my focus on the exact breathing exercise was getting me to totally miss the point.
+
+in the video @[youtube](https://youtu.be/OpTG02x6w5o?t=134) wim explains what he believes happens phisologically, and then joseph talks about how what he said was only partially true. what I realised is not whether it *is* true or not. it's only necessary that wim hof belives it for it to work for him. that's all that matters, and is why it works for him and others who believe him.
+
+what I was really learning from this detour is not the technique (which I still want to experiment more with), but the belief factor, which -- upon realisation, was the bit that I was looking for. in fact this is evidenced by how when I used his technique, I got no results, but then when I started over using my own technique, which I know works, I ended up getting way more results. in fact, I think I may have even broken my previous record. you could say it was my *doubt* in his technique that propelled me, or my recently more clean room responsible for the improvement, but I think the most influential factor was really the desire created when I wasn't able to perform when utilising his technique -- which was because I lost belief in my own self while trying his technique[^1].
+
+---
+
+I'm not saying that some conditions aren't better than others. instead, what I'm saying is that your beliefs are much more powerful than physical conditions, and that's why wim can sit in the cold without a shirt on effortlessly.
+
+it's certainly possible that some physical conditions are better, and that's why I'm interested in experimenting with his technique more -- because one's belief in oneself can carry you beyond physical limitations, however if the physical conditions are more conducive as well, it's possible to really go fast. as an example, I'm good at star-watching, but I'm way better on drugs, only up to a point. after that the drugs are worse. this, I believe is because when I first start I'm believing in myself like before, but then after continued usage of the drug, I stop believing in myself enough, and feel like I start to need the drug (or whatever condition) for the star-watching, and then at that point, because I'm no longer believing in myself, it's a huge crutch.
+
+this is hugely important for me to realise NOW, because the girls are going to be a tremendous physical condition, which, like the drugs, when combined with my own belief, all of us will be propelled to new hights, however, if we begin to become dependent on that condition, then it'll become a huge crutch, as it'll train us to begin believing in the condition, and not ourselves.
+
+---
+
+actually, this is the advantage of going as long as possible without the manifestation. without the manifestation, the girls and me are practising our ablity to believe in ourselves more than the condition. obviously when the manifestation happens, it'll be easy to see how beneficial that condition is, and so naturally our brains will begin to believe that condition is necessary for that, instead of just believing in ourselves.
+
+there's not much that anyone can do about the world at large, but it's evident to me that virtually every observer will begin to believe too that the girls are necessary conditions for the other unbelivable manifestations. this is great news for nosebook because as long as they can keep people believing that they need extraordinary physical conditions, instead of learning to believe in theirselves, to be able to do stuff like fly, then they'll keep people away from flight for a pretty long time[^1].
+
+it is, for this reason, that I am the most benefit to everyone observing, to continue on for as long as possible without the physical conditions because then I show everyone that one does not need the physical conditions to do the crazy physical manifestations.
+
+[1]: echo of the future. people may believe that some condition is necessary, just like I did, but it'll create a stronger desire and greater likelihood to believe in oneself again.
 
 
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
