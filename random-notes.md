@@ -131,6 +131,25 @@ solar system claims:
 
 ----
 
+### seth
+
+- cain (farmer) kills his brother abel (shepherd)
+  - seth in the replaces abel as the "righteous" line of adam
+- in the osiris myth set(h) kills his father osiris (saturn?) and isis (sirius) rebuilds osiris long enough to conceive horus
+  - this could be a retelling of the saturn castrating uranus story, but recast like saturn (osiris) is the victim to his own son
+  - this could be the idea that saturn's son (jupiter) dethrones his father (saturn) as ruler of the sky
+    - saturn originally the ruler of the sky title from uranus.
+      - a long time age, before uranus had his pole perpendicular to the sun's, he may have been quite a bit brighter than now.
+    - if this was the case, then saturn mush have done something to put his pole out of alignment (castrate him), making saturn now the brightest
+    - atfter the deluge, saturn clearly becomes less bright, and now jupiter is less bright
+      - I suuupose this is from  a massive loss in saturn's hydrogen atmosphere (which mixes with o2 on earth to make water)
+    - jupiter gives birth to a daughter athena (venus?)
+      - she is recorded destructively as a lioness, and nice as a cow
+    - hera gives birth to velcan but is thrown cast down by jupiter
+      - velcan could be the "reborn" version of "typhon", destroyed by jupiter when typhon tried to become most powerful
+        - typhon may be the former self of what is now known as the kuiper belt
+  - senenmut has on his star chart that osiris is saturn and horus is jupiter
+
 1/7 = 0.142857
 
 14 = 7 * 2
@@ -138,4 +157,4 @@ solar system claims:
 59 = 7 * 8 + 1
 
 49 | 1 | 49
-7x7 | 1 | 7x7 
+7x7 | 1 | 7x7
