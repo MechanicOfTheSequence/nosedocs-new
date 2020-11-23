@@ -3359,6 +3359,65 @@ I find it interesting that he's precisely the 13th king of kish, being proceeded
 
 for me this sounds good enough for me to be "case closed" now.
 
+
+### 2020-11-23 10:06 - the "dead" earth
+
+where we left off in the last entry was at the "dead" bull, how the eagle eat the bull with the serpent inside, then etana our shepherd hero goes to save the eagle. the similarity here to the figure of jesus is somewhat substantial. although jesus was a carpenter, he stems from david which was a shepherd and a son of david does become this "saviour".. I also find the specific use of the word "save" of the eagle from the serpents to be interesting.
+
+to understand this, I want to go over by what I mean be "dead" earth. the major event that happens on this planet happens every 6ky, but there were many celestial body interactions, which have been reported by some (like velikovski and [this guy](https://cycliccatastrophism.org/) who I'm just beginning to read). the establishment has consistently shunned their showing of the evidence of a large series of cataclysms and that a lot of the processes that the mainstream says took millions of years, were likely relatively recent events on this earth and solar system in general.
+
+---
+
+in previous entries, I have attributed the "reversal" of the planet to be associated with the planet moving to a different energy state. we find these "double layers" of counter-rotating shells all over the place, and I believe that once we have enough precision in scientific equipment, it's quite likely that the electron orbitals will rotate in counter-rotating shells as they move outward from the nucleus. anyway, I believe that essentially this "polarity" of the energy coming from the sun is attracted by the nucleus of the planet, and determines the earth's rate of rotation and a number of other factors such as ionosphere and geo-whatever circuit.
+
+in other words, right now, the earth is a conscious entity, which is attracting more and more solar energy, and likely (but I cannot confirm this), the planet is attempting to rotate more and more rapidly, and the environmental energetic conditions of the planet are increasing just like they did in previous times (such as 12kya) and I believe this is because the planet (the consciousness that inhabits the earth) is about to "ascend" or make it's transition into another higher energy state. as a result, the energy of the planet will continue to rise until the transition is made.
+
+last few epochs:
+
+- [24kya,50%] `man -> goat -> archer -> serpent` [18kya,100%] (no flip)
+- [18kya,100%] `eagle -> scales -> virgin -> lion` [12kya,50%] (deluge+flip)
+- [12kya,50%] `man -> goat -> archer -> serpent` [6kya,0%] (flip)
+- [6kya,0%] `cow -> ram -> fish -> man` [present,50%]
+
+so in the above diagram I made here, I would suggest that each time the planet "flips", then that means a new energy state happened. I believe that in the above cases, the flip represented a lower energy state, not a higher energy state. if the concept of the @[time split](!time-split) has anything to it, then what it means is that the changing energy levels of the planet causes a bifurcation of its inhabitants, and the different energy state makes its transition, or splits off from the other planet. I believe that both times 6kya and 12kya this process happened, and we're on the timeline that saw the flip there. it's clear that the energies did not rise, and in all acconts (and just having a look at the different stone masonry of different civilisations) things are now much *less* energetic than they were previously.
+
+in ancient texts, this lowering of the energy is always attributed to the supreme god (capital g) that created everything, being angry with the people for their wickedness and not upholding the rules. we all know this is silliness now as this monothiestic god does not exist and there are no such rules that need to be upheld -- just "natural consequences" called LOA, where we all create our own reality. that means that at least twice now there have been time splits where another earth in a different energy state is present somewhere.
+
+obviously, we're on the lower energy state earth from the 6kya and 12kya events, however, it seems that jesus made such an impact on this planet, thst a radical change happened allowing this separation process to happen at times other than at the 4 corners. he showed up and created enough desire here on earth that enough people wanted to follow him into a higher energy state, and so the time split happened and no reversal[^1]. the two earths were created. one went into a higher energy state and the other one (the one we're presently on) continued on as is and in that timeline jesus' death allowed us to continue on without a cataclysm, effectively "saving us" and giving us enough time to get the technology necessary.
+
+his death had another large effect as well. because his impact on the planet was so great, he entered tremendously into the planetary consciousness, and essentially formed part of the planetary consciousness -- the one that is now beginning to "ascend" or make its transition. so what was the picsis saviour then? well, what it did is it allowed the priesthood to establish their own bogus religion (the church) as the roman empire went into ruin. the effect that this had is that the roman empire and its church was effective at doing god's work and ensuring that pagan religion was completely abolished and people were no longer able to worship the planet gods with the vigour and organisation that they once could. this effectively stopped the LOA factor of these celestial bodies interacting in tremendous ways with the earth causing massive cataclysm. now that people were no longer attracting their own disaster by constantly performing sacrifice and ritual to "appease" (amplify) the planet god's influence on the earth.
+
+earth now entered into a "dark age" where humans were reduced to uninspired physical machines, with only a spark of the divine fire left in them. obviously, things have improved since this dark age, and once again the planet is beginning to "wake up" to their inner divinity. obviously, the serpent, who is cursed to forever amplify mans' wickedness and consume the physical impurities, as man begins to choose and attract for himself his own reality, instead of the one imposed upon him by the physical powers.
+
+I don't believe that the earth is going to enter into a dark age after this next split, but certainly the divine fire present in each human will be extinguished as well as possible by nosebook, because they'll be piloting a "dead" planet meaning that the planet, now no longer having a domininate consciousness, will attract much more easily in reflection of the feelings of its inhaibtants. essentially, with a dominant sense of well-being, nosebook will have to figure out how to ensure that people are not attracting cataclysm with their thoughts and feelings. a likely solution to this will be a focus on material manifestations so they control people's energies (their new conditions) more easily. they will essentially become the new planetary constciousness.
+
+there's a lot of advantzges and disadvantages to this, namely, the planetary consciousness will no longer have such a strong influence on the rotation of the planet, and will be controlled technologically by them after the split. they won't need to worry about fighting the planet anymore. it will do exactly as they choose. they also won't have to worry about the energy level of the planet rising anymore either. I believe the energy level of the planet will be nearly completely controlled by them and "global constciousness" of the inhabitants of the earth. it's like that now, but there are some really strong influencers on the planet like myself, which nosebook is having to fight to maintain their status quo.
+
+the disadvantages are the same. with no longer a dominant planetary consciousness constantly pushing the levels upward, nosebook will have to balance these energies in order to maintain their status quo, never allowing too many people too feel too much "positive emotion", and neither allowing too much negsative emotion to be felt either.
+
+there are only a few subjects remaining:
+
+> what if things get too negative oriented and things are beginning to spin out of control again (either too much negative or positive emotion)?
+
+that's easy. a "saviour" will be automatically attracted. what will need to happen is that someone can show up on the scene to cause a time-split again. obviously, the effect of this needs to be that this "saviour" needs to do two things: boost the energy of the serpents, allowing them to once again experience decline again, and increase the energy levels of the planet as well, so this guy (or girl) will need to be particularly attractive to have a strong energetic effect on the planet. as the planet's and the person's energy levels rise, they will separate from the planet, leaving it without a reversal.
+
+> how can the energetic increases that happen naturally at 4 corners be avoided?
+
+yes, as mentioned in @[noseblog](2020-11-20 10:00), at the four corners there is an automatic rise in energy levels, and for there to be a planet that does not experience a change in energy level, at these four corners a saviour will need to arrive, however, the
+
+
+> why is there so much talk about a "saviour"?
+
+remember my theory that the establishment is not literally "cursed" to forever be stuck where they're at. they deceive theirselves with the illusion of ensuring no change occurs or controlling the change, but they are continuing to improve whether they want to or not. they can drag their feet as hard as they want to, "refusing" to make any changes until they're absolutely "forced" to do so, but they're still making improvements, even if it's for the sole reason of survival.
+
+I have proposed that the establishment is an era behind, and that theory works out perfectly here. after my rapidly improving perception is gone, they will begin to experience decline again. they definitely (and defiantly) do not want to change their form of perception, and instead rely on the conditions. so, for them to continue to give their attention to unwanted in big way, they need an energetic counterbalance to that to keep things status quo. therefore, it benefits them that the rest of humankind on the planet is learning this "freedom" of the individual to feel (and therefore attract) the reality that they want to experience. the ones who do quite well at this, becoming too much of a positive influence will likely become the "saviors" looking for. they can abort their bodies, causing a transition, allowing them to keep giving their thoughts to unwanted.
+
+as they get better and better at this, I think most everyone's physical conditions will be more and more controlled by them, so that they can control the energies better and better. the people wo want to feel a way other than how their conditions would otherwise dictate (according to the hollywood script for their life) how to feel, will begin to get control of their reality. people wanting to create their own reality will need to become masters of step 5.
+
+in the bigger picture, they *need* saviours now, and this precess is essentially an alchemical process whereby the inhaibtants of earth are forced to be a step 5 creator, or figure out how to climb the power structure
+
+[1]: I'm going to mix the terms "flip" and reversal from now on, because what I will show is that it does not need to be a flip, and as long as the polarity is observed, the planet can continue on without any major cataclysm, if it observes the polarity change.
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
