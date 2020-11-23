@@ -3154,13 +3154,13 @@ this means that there are only two possible quadrants in the 6kya-12ka range ths
 so let's take these one at a time and fit the deluge flip into the sequence:
 
 1. in the first case of a flip, the full sequence would be:
-  - 18kya: `eagle -> scales -> virgin -> lion` (deluge+flip)
-  - 12kya: `man -> goat -> archer -> serpent` (flip)
-  - 6kya: `cow -> ram -> fish -> man`
+  - [18kya,100%] `eagle -> scales -> virgin -> lion` [12kya,50%] (deluge+flip)
+  - [12kya,50%] `man -> goat -> archer -> serpent` [6kya,0%] (flip)
+  - [6kya,0%] `cow -> ram -> fish -> man` [present,50%]
 2. in the case of no flip, the sequence would be
-  - 18kya: `cow -> ram -> fish -> man` (deluge+flip)
-  - 12kya: `lion -> crab -> twins -> cow` (no flip)
-  - 6kya: `cow -> ram -> fish -> man`
+  - [18kya,100%] `cow -> ram -> fish -> man` [12kya,50%] (deluge+flip)
+  - [12kya,50%] `lion -> crab -> twins -> cow` [6kya,0%] (no flip)
+  - [6kya,0%] `cow -> ram -> fish -> man` [present,50%]
 
 it has to be one of those for it to work. that's all there is to it. if you go with the theory that I put forward in the previous entry about feminine and masculine energies[^1] being the reason for the cause of the flip, then if the inhabitants of earth were in receptive energies, and they wanted to go to assertive energies, then the first case seems the most likely.
 
@@ -3295,6 +3295,69 @@ it is, for this reason, that I am the most benefit to everyone observing, to con
 
 [1]: echo of the future. people may believe that some condition is necessary, just like I did, but it'll create a stronger desire and greater likelihood to believe in oneself again.
 
+### 2020-11-22 20:25 - thinking more about the flip
+
+I had someone like a comment I made a while back about innana relating to the sphinx @[youtube](https://www.youtube.com/watch?v=fP9-C8w5L1U), and I decided to actually start looking into the details on the two cases I put, looking for any evidence. here they are again:
+
+1. in the first case of a flip, the full sequence would be:
+  - [18kya,100%] `eagle -> scales -> virgin -> lion` [12kya,50%] (deluge+flip)
+  - [12kya,50%] `man -> goat -> archer -> serpent` [6kya,0%] (flip)
+  - [6kya,0%] `cow -> ram -> fish -> man` [present,50%]
+2. in the case of no flip, the sequence would be
+  - [18kya,100%] `cow -> ram -> fish -> man` [12kya,50%] (deluge+flip)
+  - [12kya,50%] `lion -> crab -> twins -> cow` [6kya,0%] (no flip)
+  - [6kya,0%] `cow -> ram -> fish -> man` [present,50%]
+
+
+first, there's the [scorpion macehead](https://en.wikipedia.org/wiki/Scorpion_Macehead) which has a predynastic "scorpion king" with a tail like a bull opening the water canal. I guess this could be more like the first case.
+
+another interesting find is the [kish civilisation](https://en.wikipedia.org/wiki/Kish_civilization), which matt suggests was the early influence on the predynastic egyptians @[youtube](https://youtu.be/fP9-C8w5L1U?t=1833). they show up at precisely the perfect time (6kya), and interestingly enough one of the cities of this ancient civilisation is called "[nagar](https://en.wikipedia.org/wiki/Tell_Brak)" -- which interestingly enough is also a caste in northern india: [the nagar brahaman](https://en.wikipedia.org/wiki/Nagar_Brahmin).
+
+I don't want to sound too crazy here, but the "naga" were the ruling class serpents, or perhapa in the predynastic art, the scorpion kings. following robert's work, this is clear evidence of the atlantian god kings (or sons of aries) that ruled over the people establishing power structures and priesthoods everywhere they went.
+
+however, I think the most substantial evidence of the first case is the myth of [etana](https://en.wikipedia.org/wiki/Etana), the 13th king of the 1st dynasty of kish. previous to him, a bunch of animals ruled as kings. to explain, I'll just quote wikipndia:
+
+```
+A Babylonian legend says that Etana was desperate to have a child, until one day he helped save an eagle from starving, who then took him up into the sky to find the plant of birth. This led to the birth of his son, Balih.
+
+In the detailed form of the legend, there is a tree with the eagle's nest at the top, and a serpent at the base. Both the serpent and eagle have promised Utu (the sun god) to behave well toward one another, and they share food with their children.
+
+But one day, the eagle eats the serpent's children. The serpent comes back and cries. Utu tells the serpent to hide inside the stomach of a dead bull. The eagle goes down to eat the bull. The serpent captures the eagle, and throws him into a pit to die of hunger and thirst. Utu sends a man, Etana, to help the eagle. Etana saves the eagle, but he also asks the bird to find the plant of birth, in order to become father of a son. The eagle takes Etana up to the heaven of the god Anu, but Etana becomes afraid in the air and he goes back to the ground. He makes another attempt, and finds the plant of birth, enabling him to have Balih.
+```
+
+this legend makes it pretty much conclusive for me. if you look at the first case above, you'll see that at 18kya when eagle is in power, the peak of the golden age is happening, and then at 6kya, when the kali yuga is at the peak, then the serpent is in power. this very closely fits the garden of eden story with the serpent being cursed to crawl on its belly and eat the dust of the earth. whenever the end of the dinosaurs happened, we know that the dinosaurs went extinct, and reappeared as the modern day reptiles and as the birds. some of the dinosaurs learned to fly and some were cursed to crawl on their bellies (I don't know of any reptiles that walk with any distance away from the ground).
+
+if you consider the height of the golden age 18kya, then right before the eagle will be the serpent (ophiuchus) in the constellation of scorpio. the sequence of events precisely retell the narrative I was proposing:
+
+- the serpent and eagle promised the sun to behave well to eachother
+  - the "caveman kumbayah" that plato mentions the atlantians were supposed to observe
+  - however, they did not obey the gods' instruction
+    - gods = the sun, utu in this version
+    - according to plato, the atlantians (serpents) took mortal wives
+      - the purity of their bloodline reduced, the mortal admixture begins to set in and the serpents attacked the eagles
+        - this fact that the serpents provoked it, mentioned by plato (an eagle) is not mentioned in this myth
+        - it gives no reason why the eagle consumes the serpent's children
+- the eagle consume the serpent's children in the epic battle that plato recounts happening prior to the sinking of atlantis.
+  - eagle = jupiter, athenians
+  - serpent = saturn
+  - serpent's children = atlantians
+- the serpent cries
+  - serpent = saturn
+  - cries = deluge
+- the sun tells the serpent to hide inaide the stomach of a dead bull
+  - the sun = where the sun is rising on the equinox
+  - after the deluge, I propose the earth makes its transition to a higher energy state, leaving behind a "dead" planet
+    - the planet, appearing to be dead, flipping over, is now pointing to the taurus (bull) constellation
+- the serpent captures the eagle and and throws the eagle into a pit to hunger and thirst
+  - the serpent properly deceived adam & eve.
+  - no longer is the earth producing generously, so they must toil endure sickness
+- the sun sends etna (a shepherd) to save the eagle
+  - a shepherd may be a reference to the biblical "abel", in contrast to the agricultural cain.
+    - the decendents after the deluge (nagas, priest kings, aryans, sons of aries) established agricultural
+
+I find it interesting that he's precisely the 13th king of kish, being proceeded by 12 animals previously. this gives me the impression that the animals are the 12 zodiac signs, that happened prior to the fall of man. previous to these 12 kings were kings that lived extremely long periods of time, which all seem to have ruled for times in years which are measured in "sars", with most ruling for an even number. I will just assume that even an even nuber of sars is either a round-trip to sirius and back or half of one.
+
+for me this sounds good enough for me to be "case closed" now.
 
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
