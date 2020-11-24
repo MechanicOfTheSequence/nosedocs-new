@@ -3357,7 +3357,7 @@ if you consider the height of the golden age 18kya, then right before the eagle 
 
 I find it interesting that he's precisely the 13th king of kish, being proceeded by 12 animals previously. this gives me the impression that the animals are the 12 zodiac signs, that happened prior to the fall of man. previous to these 12 kings were kings that lived extremely long periods of time, which all seem to have ruled for times in years which are measured in "sars", with most ruling for an even number. I will just assume that even an even nuber of sars is either a round-trip to sirius and back or half of one.
 
-for me this sounds good enough for me to be "case closed" now.
+for me this sounds good enough to be "case closed" now.
 
 
 ### 2020-11-23 10:06 - the "dead" earth
@@ -3368,7 +3368,7 @@ to understand this, I want to go over by what I mean be "dead" earth. the major 
 
 ---
 
-in previous entries, I have attributed the "reversal" of the planet to be associated with the planet moving to a different energy state. we find these "double layers" of counter-rotating shells all over the place, and I believe that once we have enough precision in scientific equipment, it's quite likely that the electron orbitals will rotate in counter-rotating shells as they move outward from the nucleus. anyway, I believe that essentially this "polarity" of the energy coming from the sun is attracted by the nucleus of the planet, and determines the earth's rate of rotation and a number of other factors such as ionosphere and geo-whatever circuit.
+in previous entries, I have attributed the "reversal" of the planet to be associated with the planet moving to a different energy state. we find these "double layers" of counter-rotating shells all over the place, and I believe that once we have enough precision in scientific equipment, it's quite likely that the electron orbitals will rotate in counter-rotating shells as they move outward from the nucleus[^2]. anyway, I believe that essentially this "polarity" of the energy coming from the sun is attracted by the nucleus of the planet, and determines the earth's rate of rotation and a number of other factors such as ionosphere and geo-whatever circuit.
 
 in other words, right now, the earth is a conscious entity, which is attracting more and more solar energy, and likely (but I cannot confirm this), the planet is attempting to rotate more and more rapidly, and the environmental energetic conditions of the planet are increasing just like they did in previous times (such as 12kya) and I believe this is because the planet (the consciousness that inhabits the earth) is about to "ascend" or make it's transition into another higher energy state. as a result, the energy of the planet will continue to rise until the transition is made.
 
@@ -3417,6 +3417,8 @@ as they get better and better at this, I think most everyone's physical conditio
 in the bigger picture, they *need* saviours now, and this precess is essentially an alchemical process whereby the inhaibtants of earth are forced to be a step 5 creator, or figure out how to climb the power structure
 
 [1]: I'm going to mix the terms "flip" and reversal from now on, because what I will show is that it does not need to be a flip, and as long as the polarity is observed, the planet can continue on without any major cataclysm, if it observes the polarity change.
+
+[2]: thinking about this later, maybe not because the planets in our solar system seem to go in the same direction and not in couter-rotating spheres -- so perhaps not. I don't know. I guess we'll have to wait to find out.
 
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
