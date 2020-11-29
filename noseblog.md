@@ -3461,6 +3461,39 @@ in that sense, I'm noticing that it's important to build up that desire to feel 
 
 that's good for now. I have more thoughts.
 
+### 2020-11-29 01:48 - why stay in the centre there?
+
+there were so many great subjects for me to think about that came as a result from my interview with dominique, and one of them was why is it good to stay in the middle. in addition, one of the reactions to the previous entry was around the subject of reversal. most people can see how when you're feeling particularly awful, you may begin to desire to feel good, however it's not so obvious why the same would be true with the opposite: when you're feeliny especially good, why you would desire to feel worse.
+
+I think the simple answer to that question is the same reason why people don't drive the city streets only pressing the accelerator, allowing only the collisions with their environment to slow them down. it certainly is the most dramatic way to drive, but it's not really the most productive.
+
+I think the root of why this is a weird thing to see is that most people think of feeling worse as something to be avoided entirely. again, this would be like saying that the brake pedal is to be entirely avoided when driving. the thing is, your energetic vehicle is always going faster. it's like a rubber-band pulling you toward your "vortex", and the harder you try not to go, the harder it pulls on you, until the resistance of not going becomes so great that you finally croak.
+
+so, you want to be able to press the brake pedal from time to time. when I play hearthstone, one of my most common mistakes is that I think that I have to play all the cards that I can play, and not the ones that are best to play. playing all of the cards each turn, and you run out of gas eventually, so you have to kind of hold back a bit. by default you only get one card per turn, so you have to find a way to generate more cards in your hand or draw more rapidly if you want to play more than one card per turn. if you want to have more resources, you have to play less than one card per turn.
+
+this is kind of similar to what I'm trying to express, but the analogy is kind of bad. here's why: because the non-physical reality which you have created is pulling you so hard, you don't really have to do anything to continue get more resources. they're always there. the only thing you have to do is to not have an impact (collision) -- which is why the car analogy is a bit better.
+
+when I talk about "trading speed for power/acceleration", what I was talking about is that energetically, when something happens which doesn't feel good, that not-good feeling puts more energy into your desired reality so it pulls you harder toward it. I'll integrate this into the hearthstone analogy in a sec, but whenever this happens -- when you know what you don't want (and therefore you know what you do want), that is essentially the same thing as an impact. your speed is reduced (or stopped), however it adds more energy, so you accelerate toward your desired reality more rapidly.
+
+however, you can continue to gain power without the impact too. just observe something that doesn't feel super great, meaning you slow down (slightly), and you add a little more power to your desired reality. this is difficult to understand, because what I'm saying is that in the non-physical world, every time that you press the brakes, your car would accelerate slightly faster next time.
+
+the reason why this is, is because we live in a physical (manifestational) world, designed for manifestations, so eventually, because each time you press the brake, you accelerate faster, you will eventually arrive to a point where you press the gas, and you accelerate so fast, you have an unavoidable collision, and that collision will reflect how you feel.
+
+---
+
+I've found that there are essentially 2 (really 3) versions of how you feel. the first one is how you physically feel. this is very conditional, and can easily be modified by circumstances, drugs, stimulants, etc. -- and then there's how your perception feels. dispite your physical conditions, how does the way you perceive the thing feel. this is why I'm a strong advocate of drugs, because they allow me to feel better than the way my physical body feels (or the feeling of my emotion), allowing me to change my perception much easier. if I don't change my perception, all I did was add more energy (press the gas) by feeling better without changing the direction that I'm going (my perception).
+
+your desired reality always feels much much better than your present manifest reality, and so any time you add energy (press the gas), you go faster in the direction your facing (your perception), and so therefore if it feels good, you're eventually going to impact or collide with that reality. it'll become manifest, slowing you down, and it'll also have parts that you will recognise as unwanted, adding more power to the desired reality.
+
+the better feeling that impact is, the more it'll "slow you down". it doesn't really slow you down though -- just, it doesn't add as much power (acceleration) as much as the bad feeling manifestations do. in other words, the bad feeling ones trade speed for acceleration, and the good feeling ones trade acceleration for speed. in either case, you can't help but to go faster and faster until you can no longer keep up with your vortex (which is when you croak).
+
+---
+
+therefore, it's clear to me that it's a good thing to stay around the middle for as long as possible, as it makes it much easier to navigate. imagine now this same thing frequentially. imagine your velocity as the y-axis and time as the x-axis. each time you (physically, not perceptually) feel good, y increases and each time you feel bad, y decreases. ok, so we've already established that you cannot only accelerate as that would make driving in the city an impossible task. you need to speed up when the light turns green and slow down when it turns red, so you're going to be oscillating around zero, sometimes going above it and sometimes going below it as you speed up and slow down.
+
+the first thing that you will notice is that if you spend more time in +y than in -y, then overall your velocity at the end of the time series is much more faster than when you started. the second thing you'll notice is that your frequency, or the number of cycles that you have is really all that matters. if you can speed up and slow down more times per second, the higher your frequency is. combine that with the idea that if you spend more time in the increasing velocity, then you spend more time feeling good, and you're doing it more times per second, so you want to not only increase the amount of time in +y to spend more time feeling good, you want to increase the number of times that you do it (cycles/s). now, it becomes plainly obvious why you do not want to try and go too far away from the centre. if the peak is +1 and -0.1, then you travel 1.1 from peak to peak. however, if your peak is 100 and -0.1, then you travel 100.1. obviously it takes a lot more distance to travel ~100 than to travel ~1 unit distance, meaning you have can cycle less rapidly per unit time. or, to put it electrically, if the voltage is really high, it'll arc (impact) with things in its environment much easier. in order to keep things nice and in balance and to play nice with the environment, they need to be very high frequency to be stable, but low potential so they don't arc. this is as "source energy" like as you can imagine. it's the fundation upon which all is exists. it's pretty cool to think like this.
+
+
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
 ### 2020-10-12 ??:?? - a few more bad (or good, you decide) ideas
