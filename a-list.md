@@ -227,3 +227,21 @@ I feel like I'm missing one. I'll update again shortly.
 ### 2020-11-28 23:19
 
 yesterday, when I was watching @[abe-now](2020-11-14 p2), at the very beginning there was a woman that wrote in asking about her 9 year old daughter, and I was feeling her quite strongly. it's really weird when listening because I sort of enter into a weird trance-like state where all I can think about is the girl that they're talking about, and the experience is very tangible and quite vivid. it's almost as if I'm basically in the same room with her or something. it really is quite different. anyway, I was thinking about this because I would have thought that I would experince the "anger" part because that's what they were talking about but instead of feeling that, I could only feel the attraction. the funny thing about that is that they were explaining that you have to give your attention to what it is that feels good -- instead of the stuff that feels bad. good example. as they were talking I was realising that this is very important for me to start getting used to giving my attention to the stuff that feels good -- in general. anyway she got me thinking a lot about a lot of different things and I quite liked how she felt as well, so I want to invite her to join in if she wants to
+
+### 2020-11-30 23:04
+
+I will begin the creation box shortly (probably tomorrow), but I decided that I will write all of them here as well. there are quite a few that I haven't thought about in a while which have popped into my head recently, which I want to write down here. they're all going to go into the box and we'll see what happens there. I'll likely maintain the box and this document together, with their identification number as the date heading here. ok, here we go:
+
+just tonight, mom was watching a show while I was having a conversation with her and there was a girl and a boy that were picking a lock in the show. I didn't think much about it, but I felt like there was perhaps some desire there and I wanted to invite her to join if she wants to.
+
+additionally, at the start of the conversation with mom, we were talking about reality tv shows being scripted and stuff. I kept getting an example in my head of a dr. phil show with a girl that was acting out. I realised later that this was a mental trigger for me to remember a while back another dr. phil show[^1] where there was a girl that I invited to join. this whole thing I can't remember very well and has this strange haze to it, so when I remember more, I'll update.
+
+there was another time when I was watching a show with thad called "goop" and when they showed gweneth's family in a photo, I could feel something there, and also this one is pretty hazy too[^2] -- doesn't matter though. if her daughter wants to join, she's invited :)
+
+last night, I was watching a mathologer video, and then I wanted to click on another one of his videos[^3]. in the video he mentions his daughter laura, which I first noticed a feeling from her in another video about parabolas (@[youtube](https://www.youtube.com/watch?v=0UapiTAxMXE)). I want to make sure she's invited to join if she wants to, as well.
+
+[1]: I can remember one episode where there was a woman that was enabling her son to use drugs, a woman and a man which couldn't conceive, and another where there was a girl that was acting out and needed attention. I honestly have no idea which one it was, or if it even was one of these. I literally cannot remember any details here.
+
+[2]: I don't really think my memory is really this bad. it's very weird how I cannot remember these things now.
+
+[3]: the video is a good one (@[youtube](https://www.youtube.com/watch?v=CSw3Wqoim5M)). he talked about how he obsessed over his kid's shoe tying, leading to a dream about it and some new maths proofs.
