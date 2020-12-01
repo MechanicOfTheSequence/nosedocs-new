@@ -69,3 +69,4 @@
 #### 22. powerlessness & dispair
 - vulnerable
 - lonely
+- regret
