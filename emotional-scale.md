@@ -21,6 +21,7 @@
 
 #### 7. contentment
 - gratitude
+- satisfaction
 
 #### 8. boredom
 - letting go
