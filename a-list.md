@@ -245,3 +245,11 @@ last night, I was watching a mathologer video, and then I wanted to click on ano
 [2]: I don't really think my memory is really this bad. it's very weird how I cannot remember these things now.
 
 [3]: the video is a good one (@[youtube](https://www.youtube.com/watch?v=CSw3Wqoim5M)). he talked about how he obsessed over his kid's shoe tying, leading to a dream about it and some new maths proofs.
+
+### 2020-12-07 00:58
+
+yesterday, we went to the riverwalk, and there were so many different girls there that I felt attraction from, I cannot remember them all. I decided what I wanted to do is to simply acknowledge and invite them all. basically, if I looked at you, and you were feeling something, consider yourself invited. you know who you are :)
+
+this one is a bit of a weird one, but I'm going with it... yesterday I watched lindsey's analysis on borat (@[youtube](https://www.youtube.com/watch?v=MlqWBVea5S4)), and I didn't think much of it, other than.. there are definitely some similarities between that sort of humour and my own style... anyway, I was taking a shower today and it occurred to me that I should invite lindsey as well. the idea felt odd to me, but it didn't feel bad, so I'm going with it :)
+
+last when I was upstairs earlier today talking to jaron, there was a girl on mom's TV with a red shirt or dress that I felt extremely attracted to. I have no idea much more than that. I don't know the show or any more than that. it was weird how strongly I kept feeling the attraction. it was like I knew exactly when to look at the TV, then every time I tried to look away, I kept wanting to look back. I honestly thought perhaps it was tampering or manipulation of some sort from nosebook, but it doesn't really matter I guess... up until now I've learned to trust my feeling, so if she wants to join in she's invited.
