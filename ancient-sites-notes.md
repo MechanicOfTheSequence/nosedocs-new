@@ -59,6 +59,13 @@ the stone type may have something to do with it as well, as these niches seem to
 - it's possible that the tool marks were actually created using some sort of acoustic or energetic signal. it appears that the rock has kind of chipped off, in a non-smoothe way, meaning that the rock chipped and fell away in parallel grooves. (which then had to be excavated).
 - in one of tina's videos, she mentions the cave (which have the tool marks), do not echo. this might be an indicator that these tool marks are designed to *dampen* the reflection of the signal, instead of shape it.
 - clearly this technique is not the same one as the one used in the unfinished obelisk
+- in this temple, @[youtube](https://youtu.be/zzU747CveRo?t=514), I would guess that's a meditation chamber, which has that rough look to it. seems that if it were for meditation, those marks are to dampen the sound.
+- here @[youtube](https://youtu.be/zzU747CveRo?t=420), the mix of smooth statues mixed with rough marks in a room similar to the one above gives me the idea that it is for dampening some sort of frequencies
+  - clearly, they had the capablity of making smooth surfaces, so the rough parallel tool marks must have a purpose in a chamber like that
+  - additionally, it contains a lingam in the centre and people around it, probably showing what should be happening in that room above.
+    - lingams are often surrounded by a square base with a single small entrance or output, so with the lingam in the centre there, the entrance to the chamber would be the inlet/outlet for the yoni, which is the chamber itself.
+    - you could consider that the person going inside the chamber (to meditate) is symbolically a lingam or the shiva energy
+- additionally, if the air were very ionised and there was a lot of energy flowing, the ridges created by those marks would make a really cool looking effect, with the glow of plasma coming off of the walls like that
 
 ### geopolymer walls in peru
 
@@ -107,3 +114,16 @@ the stone type may have something to do with it as well, as these niches seem to
       - if the air were very ionised, the extra energy produced vibrationally in these granite stone structures would actually begin to create arcs of electricity out into the ionised air and producing high amounts as well.
       - additionally, in the moment of dawn, the air is even more conductive, and if this energy were related to solar electricity coming in at the poles (the stuff that makes auroras -- the electricity coming from the solar "wind" energising the oxygen in the air), so when the sun's rays pass through this ionised oxygen in the air (I notice that the sun's heat feels extra hot, like it stings in this kind of air), then the eastern facing surfaces would potentially be more affected to accumulate this extra heat and arcing.
       - this was more intense on the eastern faces, facing the sun. which may be why the surfaces (but not the core) of these massive granite stones flaking off, or with other types of stone like alabaster, appear to have exploded off.
+
+### indra = mars? & sign of aries = elephant?
+
+- in a lot of indian temples, I'm noticing a large correlation with the god indra(?) and the elephant.
+- in [acksblog](https://cycliccatastrophism.org/2017/10/07/how-mars-formed-the-continents/), he suggests that mars is indra, and had repeated interaction with earth, with a tidal lock positioning close to the himalayas
+- I wonder if the zodiac symbol for aries (indra?) was instead of being rendered as a ram, but as an an elephant
+- there is also a lot of transition from bull to elephant symbolism... for example, @[youtube](https://www.youtube.com/watch?v=pL1yYvKLfCA).
+- hindu god ganesha is elephant
+- in the procession of the equinox, the elephant (aries) would come after the bull.
+
+### eagle defeating serpent symbolism
+
+- @[youtube](https://www.youtube.com/watch?v=ZcvLYfKfDK4): eagle holding smake in beak and talons
