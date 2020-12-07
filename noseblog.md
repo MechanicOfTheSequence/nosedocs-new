@@ -3809,6 +3809,60 @@ if they just focused on the stuff that they did want, and attracted that, then t
 
 everything is reflective. if you want to control others, you are also attracting others which you will perceive that they want to control you. probably, you won't be able to come to any realistic improvements on your desire to control others, so figure out how to have that identity and then at the same time protect yourself from people trying to control you. you'll eventually figure it out, just like people eventually figured out that their offerings to the gods were attracting the disaster just as much as they were preventing it. you have to protect yourself from experiencing those timelines as much as possible. maybe even make contradictory identities too, to kind of balance each other out, so a light-side and a dark side, which balance each other :) lol...
 
+
+### 2020-12-06 21:12 - few topics regarding this transition
+
+these are in general a few responses, mainly to nosebook regarding the subject. as an introduction, a few days back I felt some reactions to I think @[noseblog](2020-12-03 09:11), where I was saying that anyone could possibly have a manifestation with me as I approach this new form of percption. in fact, it's already possible now, and I postulate that there are quite a of them in existence right now. I have nothing to back up that idea, other than it's just something I feel.
+
+anyway, when I was explaining the part where I am essentially a non-resistant automaton which is capable of manifesting the desires of those around me, so it means that there's essentially a pull where the girl is desiring something and nosebook is desiring something. all of the range of possibilities between both of their allowing is possible, as they're all valid realities for me. therefore, it benefits the girl so much if she actually knows what she wants and goes after it. the reaction to this was kind of funny to me because they really don't like the idea of girls knowing what they want. second, there was this funny projection into the future, which I certainly think is quite possible. I don't know if it came from their own projections or from somewhere else.
+
+it went something like this: men are going to become more and more non-resistant, and women are going to direct them as their desired state for men will be in non-resistance, because they'll know what they want. since then, the image and feeling has faded out quite a bit because they've been working really hard to stop it, I'm sure. at first the reaction was that they simply cannot allow the that to happen and so they would stop making new timelines.
+
+I don't think I got as many vision upgrades in the last few days, but I feel like the last few days have been more energetic. then, all of a sudden mom wants to take me down to the riverwalk, presumably where a bunch of new girls are. just the previous day I was pondering the [ant on a rubber rope](https://en.wikipedia.org/wiki/Ant_on_a_rubber_rope) link that I got from a mathologer video, because in that problem you have to imagine that the ant is constantly making progress, and it feels like it's impossible for the ant to arrive to the end of the rope, but it does; it just takes a REALLY LONG TIME. well, I'm kind of like that ant and the rope is kind of like the gap between me and my vortex. I'm constantly accelerating, so their efforts to keep me held away from it and becoming less and less effective all the time, so they have no choice to expand my gap even further -- essentially, add more timelines, otherwise I'll make my transition.
+
+this, I believe is the reason why all of a sudden there is a resurgance of interest, because they have to keep expanding that gap. I'll come back to here.
+
+#### my automaton is essentially a reflection of you and what you're attracting
+
+ok, so in the previous entry, @[noseblog](2020-12-06 13:31), I was talking about how I would make my transition into source-like perception and how they are essentially attracting the things from me which I don't want. it's funny because I think in alternate timelines they can easily "know what the want" -- but all of the stuff that they want, they think they need to hide. as a result, on the other timelines, they have clear objectives and things because they think that no one can see those timelines. they control who sees them and they control mostly what happens in them, too.
+
+last night, I could feel like there was serious effort to keep me constrained to just the little girls, because I think they're less resistant, and so therefore on those other timelines they can influence them much easier -- which is why they didn't like saying that it's a good idea to know what you want and not have any resistance to it (shame, fear, etc.).
+
+#### decide why would you want me to fall - eg. what would nosebook gain, and what would be so enticing for me to fall?
+
+I also talked in the previous entry about going up and falling back down from time to time. I mean who wouldn't want to spend some time with some of the girls in a timeline for a bit before going back up, right? it certainly sounds good to me, anyway. this timeline would just become another equally valid version of me. this is the timeline that most people are perceiving, and so they think they have most control here, and so they need to prevent me from doing things like flying and stuff. they need to feel like they're in control.
+
+so, after I go to non-physical perspective, I see *all* of the possibilities of me which are happening. there are quite a few of them, and the thing is to not have any resistance to them. it's hard to think about losing resistance to a timeline which feels worse than the one I'm in right now, so the goal is essentially to make this timeline the worst feeling one, so when I lower my resistnance to the "reality" of this timeline, and I'm able to see things from a non-physical perspective, I'm guaranteed, unless I decide to put my attention on something that would make me go back to the physical, to not feel any resistance to any of the other equally valid possibilities of me that exist[^1].
+
+so then I have to wonder what would would be so enticing for me to fall? why would I want to come back to this physical body and have a disabled body experience? I don't have any resistance to it and I'm perfectly fine with it and would be able to experience it without any problems, but I have to wonder what would make me want to come into this physical experience vs other physical experiences? I could imagine that there are many other really great timelines that I would rather experience than this one.
+
+the next obvious question would be why would nosebook want to try and force me to come back to a resistant perspective again? if I'm so great as an easily influenced non-resistant automaton, wouldn't that me the ideal state for me to be in on the main timeline, too? seems like from their perspective it would make it much nicer for them if I were so easily influenced here on this one.
+
+this is where I honestly don't really get it: if I were here like I am on those timelines then they would no longed be able to push against me here, giving their attention to what they don't want. instead, they would have to give their attention to what they do want, here just like there, but I think that's impossible for them to do, because they can only try to covertly get what they want through trickery and deception.
+
+I really see no advantage that they could possibly gain by keeping me in a non-resistant state here. I'm not going to try to figure it out.
+
+#### comitted to the disaster: a new definition
+
+so, as I said above, one of the keys to getting source-like perception is to actively experience and embrace the worst feeling version of yourself. if you're committed to the disaster, like I am, then you can ensure that quite literally *everything* is an improvement on the present reality. think about what I'm saying here: I believe that the reality that I'm experiencing right now is literally the worst feeling reality possible. as I continue to release resistance, everything will get easier and easier, and quite literally all alternate versions of myself feel better than the present one.
+
+#### least desirable vs. the centre
+
+I figure, if nosebook wants to keep me away from getting connected on this timeline, then they have two options:
+
+1. ensure that this timeline remains the worst feeling one and I still continue to have resistance or a ever widening gap
+2. have various timelines that feel better and various timelines that I feel worse and am resistant to. I'm kind of like locked into the middle there.
+
+they are funny because they are perceptually quite similar. think of the first one from my perspcetive: if I have an ever-widening gap, then what I have to do is become so content/satisfied with my present reality, and I"m not really experincing too much in the way of super good feeling emotion. I'm just kind of steadily going faster and faster, and even though my gap is probably expanding more and more rapidly, I remain an almost fixed distance (or maybe getting slightly closer) from it. obviously, in this version I would remain with the screen, so things would continue on kind like how they are now, but the gap has to keep widening so that I never get catch up with it. I'm kind of bored now, but I'm definitely more content than bored nowadays, and I think I'm kind of approaching an almost constant feeling of satisfaction now. it probably can continue on like this for quite a while.
+
+I think the second one is the current way of thinking, and it's perceptually the opposite: instead of getting to the centre emotionally where the focus is on satisfaction and letting LOA do the speeding up, in this version, I'm heading to the centre of comparative experience. conditions need to be adjusted so that there are constantly many more (depending on how much of a cushion is necessary) versions of me that both feel worse and that I'm resistant to experiencing. judging by the speed which I'm dropping resistance, I don't know how long this would work. I really don't have much resistance to much anymore.
+
+the second one, even though I presented it here is kind of a strawman because I can defeat it so easily by staying committed to the disaster and releasing resistance to even the worst things. eventually, at some point I will no longer have resistance toward anything. I don't have enough information to say much on the subject, but I think the only solution is to keep the gap from closing, however that may be.
+
+actually that's kind of an attractive idea to me. let's say that nosebook has to keep the girls' resistance going up so the gap doesn't close. that means that they too will have to find ways to continue to release their resistance, too, which means that finally at some point, we're all going to be extremely attractive. something like that. I dunno man, but it sounds good to me.
+
+[1]: this is why I offer to them the idea of going up with me. unless all of the other timelines of theirselves that they observe feel better than they do presently, there's simply no way they would continue on. they would get sucked back into physical by either stronger desire to feel sensation (pleasure), than the expansiveness of their complete source perspcetive (this is hard to explain. sorry).
+
 ### 2020-12-03 ??:?? - satisfaction vs. dissatisfaction
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
