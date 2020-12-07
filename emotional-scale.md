@@ -1,4 +1,7 @@
-### your emotional guidance scale
+### abraham's emotional guidance scale
+
+originally from ask and it is given, page 114 (c) jerry and esther hicks
+additional notes derived from recent abraham-now broadcasts
 
 #### 1. joy / knowledge / freedom / empowerment / appreciation
 - compassion
@@ -38,6 +41,7 @@
 - stressed
 
 #### 12. disappointment
+- failed expectations
 
 #### 13. doubt
 - uncertainty
