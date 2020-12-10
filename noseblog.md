@@ -4136,7 +4136,7 @@ I think all of this is purposeful, that we are all 6th dimensional beings, and t
 [1]: I really like the lyrics in the song "mechanic of the sequence":
   mechanic of the sequence
   power to progress
-  we have no time to wait
+  we have no time to waste
   no time to relax
   the passion(2) of the beginning
   is the pleasure(1) of the end
