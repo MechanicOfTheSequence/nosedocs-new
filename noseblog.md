@@ -4009,6 +4009,140 @@ we'll see how this turns out. it feels like a big switch happened, where, now th
 
 [3]: in his dimensions, he has the first 6 as perceptual dimensions, yet for 7 (planets) and 8 (stars), they suddenly change over to manifestations of wave intensity or shell size. I agree with the first 6, yet after that, I find this transition confusing.
 
+### 2020-12-10 02:14 - thinking more about the end-game of it all
+
+I was just watching doug's video here: @[youtube](https://youtu.be/RNTO98i5mwg?t=4035) where he's talking about his conclusions about why he thinks this epic shory of deception, murder, sex, violence, drama, etc. happened, and he thinks it's all for the creation of the alphabet -- I think he's exatly right.
+
+@[youtube](https://www.youtube.com/watch?v=HGo7pQydF5E)
+
+it seems that these sudden jumps forward in "progress" seem to appear out of hyperspace. many can argue whether the jews represented progress for humankind or not, but like doug says, imagine trying to do any science with heiroglyphs or cuneiform. doug makes it obvious that their whole enterprise was founded on secrets, extortion, murder, etc. the same thing could be wondered about nosebook, too. their whole enterprise is so frought with corruption, greed, deception and deliberate misinformation, one has to wonder how much progress "the network" really is. you could wonder similar things about einstein's theory of releativity, or any of these other crazy ideas (doug has tons of information on how bad this is, on his channel). I submit that this is purposeful because we (all of us on earth here) are all 6th dimensional beings taking on physical bodies here and we're just playing out a story in physicality here which has a grand conclusion to it -- and that conclusion, I can't tell you what it is (because it's unknown[^1]). that's what it really is all about: using the merging the physical world (square) with the spiritual world of cycles (circle) to create something completely unexpected.
+
+like I said, I have no idea what it will be (the idea keeps coming clearer and clearer as I get closer) but I know it'll be a game changer for *all that is* -- well beyond physicality, and while I think this time around is a trial run, perhaps one day it may "conclude" (cause these guys need to invoke finalisation-dawg to be "complete") in the creation of a new type of universe -- something that trancends perception, where everything is god but also physical at the same time (or something like that). I personally like to think of this not as an end, but as a transition to a higher energy state, but I applaude them for believing that it is the end coming, and I'd love to give them the abiltity to really fear it good and prepare their best for it. that's the kind of energy that I'm talking about...
+
+anyway, I've really enjoyed doug's videos, and one of the things that really jumped out at me was the time when he said something about moses and a stone (I think it was after the crossing) (TODO: find reference). I've often suspected that moses and the exodus is yet another case of self-sabotage along with many other things, and that we're all in on it. doug gives other examples in his channel, for example of stephen hawking and his (IMO self-sabotage) to make black-holes a thing, einstein for making relativity a think, tesla for leaving the US govt the capability to create such a network, and for me to to make it a thing...
+
+just think about this. what are the odds that the US govt, which fails so hard at so much stuff could possibly create a network like this one, and get it going without people freaking out and startinvg riots. impossible. forget about it.
+
+I think all of this is purposeful, that we are all 6th dimensional beings, and that we've purposefully decided to "fall" into physicality. there *is* a bigger picture, and all of us (who are not these human bodies) benefit greatly from the energy from the drama this reality creates. below is some random notes, intentionally messy and in some cases incorrect, putting some of my thought process down.
+
+
+- the "deliberate creators" definition and motivation:
+  - reality is attracted (created) as a product of their thought/emotions
+  - it's all fun the fun/pleasure of it (cause it's fun!)
+  - there's no right or wrong way
+  - we are all eternal (whether we want to stay forgetful of it or not)
+- the "INFECTED ONES" definition and motivation:
+  - need material things (money, fame, influence) to create their material reality for them
+  - they feel threatened and fear people becoming superior to them
+  - they need to compete, battle, conquer, etc. to remain superior
+  - need to exert physical power to get what they want
+  - they do not want to go extinct
+    - they must continue to expand their empire/influence until they've conquered all
+    - their archaic mindset is the only way they believe they can continue to exist
+  - they need increasingly more beneficial conditions to continue their existance...
+    - however not too beneficial that anyone else could become superior to them
+    - therfore, they need to ensure that everyone else has inferior conditions
+  - they don't want to lose their physical conditions
+    - they must hoarde, protect, guard them
+    - for them, physicality/material/matter is the only reality.
+      - they must cling to these temporary conditions, unable to realise they transcend the physical matter that composes their body
+- each cycle is 12068/6034 years long
+  - at the end of the cycle an event where there is a bifurccation which happens.
+    - this is the alchemical proces
+    - theis event separates those that: (TODO: make up better names for this?)
+      - can create their reality with their mind/emotions
+      - those that the physical "reality" creates their reality
+    - is this is the bifurcation of the "baker and the butler"?
+  - however, one could look at the exponential growth of humankind over time an realise that:
+    - the average human will begin to realise the influence their mind/emotions have on reality
+    - with natural selection, it's easy to see that those that those who do not believe they can create with their mind will quickly go extinct
+      - they don't want to go extinct.
+  - at the end of the cycle they have to find a way to survive the cataclysm, so they can continue on
+    - their desire to continue attracts the necessary conditions:
+      - people like me, willing to self-sabotage to give them the power/technology they need to continue their existance
+      - this self-sabotage is done willingly because it exchanges physical power for more mental power
+        - that increase in mental power is the same energy/technology that the ark gives off (chi, vril, orgone, etc.) -- though, in human/mental form
+- the stone is the signature move for the big self-sabotage
+  - the stone is left as a sign that some power or technology was given to the power-hungry to subjugate or retard humankind further in time
+- we are all 6d beings (even THE INFECTED ONES).
+  - there is no inequality
+    - it's only perceived (in this "hologram" or "reality") as an illusion to create more energy
+    - inequality is likely planned either from a non-physical perspective
+      - non-physical, meaning not 3d atoms on this timeline, or anywhere (if it even has a "location") outside of this "timeline" or "reality"
+      - if it's not "planned" (and I think most of it is), it's attracted
+        - by "planned", I mean the trajectory of these interactions can be somewhat anticipated based on how "resonant" or "attractive" they are to each other
+  - all of us will eventually come to the realisation that we are not 3d, but the signal that creates the 3d.
+    - this process involves realising that you are not your body. you are "the operating system"
+    - infinite versions of you can exist in 3d, 4d & 5d, simultaneously.
+    - then, you consciously insert yourself ("fall") back into time and space again
+      - why? for the fun of it.
+        - imagine how much power you feel when you repeatedly come to the realisation that you are the signal (information) not the 3d manifestation in more and more difficult environments.
+          - you can imagine how big of an ego you will eventually obtain the more you realise yourself from the "who you *really* are" perspective.
+            - who are you really? a trans-temporal being that enjoys self-sabotage because he/she (you are genderless/hermaphodite from that perspective) is so good at coming to the realisation of who they really are, the difficult conditions don't cause fear, but rather invigorate them.
+  - this may have something to do with enoch
+  - the signature move of this trans-temporal influence (and this includes me) is the "stone" left behind after their self-sabotage.
+  - another signature of this trans-temporal influence is their massive egos.
+  - every self-sabotage is designed to be a manifestation that leaves the most to be desired (eg. the most energetic/expansive)
+    - the first 30(degrees) of a sine wave
+    - there's the "easy" or "ideal" way of going, and then there's the one that most "contrast" version
+    - these beings tend to optimise for the more contrast version.
+  - it seems to be a repeating theme where brialliant minds build things for tyrants (different implements for the INFECTED ONES to feel more powerful):
+    - bull for king minos
+    - thunderbolts for jupiter
+    - pandora for humans
+    - ark of covenant?
+    - tesla's world system?
+    - etc.
+  - I believe the goal is to continually give them more and more power until they're finally able to infinitely create contrast without shooting theirselves in the foot with it.
+  - the method for doing this is to, instead of trying to get them (THE INFECTED ONS) to ever start perceiving things from a source perspective, instaed give them an interface to non-physical by abstracting the aspects of non-physicality into greater and greater complicated forms of perception. (eg. science and technology)
+    - it follows then, that each iteration (12068 cycle) should produce:
+      - a society which is on the brink of discovering its own true divinity
+        - this is designed to make it appear like their whole shell-game (sham) will be revealed
+        - fear that their entire house of cards will fall apart, and fear that their enterprise will collapse, creates the desire for the next cycle.
+          - too big to fail
+        - the people that are finding their ability to feel the way they want to will do just that and their reality will reflect that.
+          - good things happening will accelerate for them it'll be impossible to keep people from coming to realise they are creators
+        - the INFECTED ONES will be placated temporarily with the security the new technology gives them
+          - the new technology is mind expanding and has elements of a drug
+          - that drug is turned into a religion
+            - they (the priesthood) know more than everyone else
+            - the religion is designed to offustcate and keep people from knowing the truth
+          - they know the latest "truth" about reality
+            - that "truth" is just another mental creation (from a higther dimension) designed to expand their perception
+              - though, themore you know, the more you you realise how much you don't know.
+              - for them though, that creates more fear of the unknown which they need to hide
+      - the four parts of the cycle:
+      - first: the INFECTED ONES should feel a sort of freedom and superiority as things are rebuilding
+      - second: the rebuilding and recovery happens faster than last time, making them fear someone will reveal their technology hidden behind the religion to the public
+      - third: someone like elijah or something like the printing press begins to make the reality creation part of the religion (not the technology) more accessible to the masses. this begins the decline, cause now they fear they'll figure out the technology
+      - fourth: now, things really begin to accelerate out of control as people start to realise they've been lied to, manipulated and used
+      - when it all collapses, it should reinforce their fear of the next disaster
+  - it's both a symbiotic and parasitic relationship
+    - it converts physical power into non-physical (or mental) energy/perception
+      - the INFECTED ONES are the tool for it
+      - they feel inferior, so every time have to find more ways to limit this energy's expression into physical form
+      - as soon as humans no longer perceive "unwanted" as something negative, they are literally *free* energy: an unlimited power source
+    - however, the humans need to be able to
+      - not freak out with negative emotion
+      - not perceive resistance as a bad thing
+      - not be affected by what anyone else is doing
+      - learn to function in 7d (temporal) perception like these great self-sabotagers
+      - become YHVH (the great IAM) -- masters of our own identity (eg. the new 8d perception that's coming soon)
+    - creators of that resistance need to be able to:
+      - not shoot theirselves in the foot with their own negative ideas
+      - not perceive (and therfore try to hide) their desire to hold people back
+  - I've written extensively about why I think this is happening: then end goal is the paradox
+
+[1]: I really like the lyrics in the song "mechanic of the sequence":
+  mechanic of the sequence
+  power to progress
+  we have no time to wait
+  no time to relax
+  the passion(2) of the beginning
+  is the pleasure(1) of the end
+  *it's watching states we initiate*
+  ***TO A STATE WE NEVER MEANT*** <-- this one
+
 ### 2020-12-03 ??:?? - satisfaction vs. dissatisfaction
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
