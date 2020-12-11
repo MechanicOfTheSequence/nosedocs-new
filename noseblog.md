@@ -4143,6 +4143,52 @@ I think all of this is purposeful, that we are all 6th dimensional beings, and t
   *it's watching states we initiate*
   ***TO A STATE WE NEVER MEANT*** <-- this one
 
+### 2020-12-10 16:43 - REVOLVE: becoming the great IAOM
+
+I noticed some confusion over some of the vocabulary I was mixing with doug's. he defines 6 perceptual dimensions which exactly match my own, cept I didn't define the first two (as abraham says, they're taken care of for you)[^1]. then he doesn't really know how to continue on from there so he calls them planets (6) and then stars (7). I don't follow his explanation of why the 7th and 8th dimension has to do with size, because in 3d, there are all sorts of bodies with all sorts of sizes, from atoms, to molecules, cells, etc. all the way up to humans and brontosaures. I don't think he could have known this though. it took me quite a while to figure it out myself. they're [expansions on perception](!expanding-perception). however, I think he's right about there beiing plans for us to perceive those 8 dimensions, and how all of this integrates with YHVH.
+
+ok so the origin of everything is "source" (or the operating system, the matrix, God, whatever you want to call it), and out of it everything emanates perceptually. we are all part of that "source" however we do not see things the same way. the reason we don't is for the purpose of expansion. anyway, right now, we have essentially 7 planes of existence and 9 dimensions. like I said, the first two are taken care of for you, and are so far into the past, they don't need to be worried about. after that there's:
+
+- physical (3d)
+- imaginary/astral (4d)
+- emotional/mental (5d)
+- source of emination into phyical (the zero-point, where it crosses the x-axis) (1/2 physical, 1/2 not-physical) (6d)
+- (not-physical) logic/structure/consciousness
+- (not-physical) relational
+- (not-physical) desire/attractiveness
+
+each of these layers are going from the highest frequency (much higher than gamma rays) and completely not physical at all (only vibrational), starting at desire/attractiveness, and working down from there. at the source layer, this is where all of the machinery (operating system) goes, which turns those non-physical extremely high frequency vibrations into something physical. this is the program, the matrix, the operating system. whatever you want to call it. like a real operating system, that layer everything is available to everything. the OS has no restriction on what memory it can read or write to. it has full access to everything, and its job is to turn all of that information (vibration) into something physical.
+
+you can gain source consciousness in the physical plane, and you also do when you make your transition. however, we live in a world where the INFECTED ONES want to mimic the operating system, and become your operating system. they want to be able to direct you at their whim so that things can be just how they want them to be to feel good. they have so many secrets they're hiding and are ashamed of, do not want any physical people to be able to access that stuff. I mean you would too if you were them. their whole entire operation is a big house of cards, where they've stollen tecnologies from more advanced people to get to where they are now, and do not believe theirselves capable of coming up with any good ideas theirself.
+
+I've essentially figured out how most of it works at this point and am progressing very rapidly. very very rapidly. at this point, I'm on the brink of having 6d perception. I already have 5d, but they have to find ways to minimise its effects so I don't do things like fly and stuff, so they have to destructively interfere with those signals to ensure this doesn't happen. however, this [destructive interference](!destructive-interference) doesn't actually destroy it completely. it actually makes nearly double the energy at a higher frequency, causing an expansion, but you need to be able to become resonant with that new high frequency energy to be able to use it. this is where perception comes in, and I've talked extensively about it. as a result, I'll have 6d perception soon.
+
+they absolutely cannot have this, because when that happens, I will no longer see through my eyes anymore. I will gain the same non-physical (operating system perception) that you get when you die. I think people in the past have attained this percption under beneficial conditions, and not by finding a way to perceive 6d in the physical, and so they kind of like trancended this physical realm (elijah, ramtha, moses?, and enoch are the ones I've heard of). however, I've found a way to perceive/translate this high of a frequency into something intelligible, so I'll remain physical during this process -- essentially for as long as they can keep my body on earth here. along the way, I figure I'll be able to perceive 2 more dimensions that will fit between 5d and 6d. that'll move 6d down to 8d, and fill in those missing dimensions. they'll find the way to to decode these new dimensions and use a very small portion of their capability.
+
+ignoring the non-physical (conjugate) planes, they will now be:
+
+- physical (3d)
+- imaginary/astral (4d)
+- emotional/mental (5d)
+- storyline/timeline (6d)
+- identity/YHVH (7d)
+- source of emination into phyical (the zero-point, where it crosses the x-axis) (1/2 physical, 1/2 not-physical) (8d)
+
+the first step up to perceiving these highter frequencies is to understand that you are not the physical body (matter) that you inhabit. you are a much higher frequency signal than what you perceive yourself to be. to explain this, let's run up the [expansions on perception](!expanding-perception).
+
+for 4d, you notice there's a space between you and what you're looking at, and something can exist in that space.
+
+for 5d, you can see there's a space between you and the thing you're looking at again. however, what determines where the thing begins and ends? this is where *your* concept of it begins and ends. now, you can perceive (behold) yourself or somthing from all angles at a time, both inwardly or outwardly. you perceive conceptually now.
+
+for 6d, you have the sensiivity to notice that something feels one way at one point in time and slightly different a few hours later or the next day, yet the object hasn't moved. you begin to realise that things feel different as they move through time, and so do you. you could say the environment is a reflection of what the concept feels like (this could be a physical object or an idea), and that things change over time. the concept can be many different things as it traverses time differently. there's now another space between the diffeerent versions of these concepts -- and that space is time. you can mentally traverse and manipulate the passage of a concept through time.
+
+for 7d, you begin to realise that *you* can be any other form that you could conceive of, and depending on your environment, and you could perceive these different versions of yourself as different concepts (of yourself), so you begin to identify that you are all of these different (good and bad) concepts, and you can be anything you want. you begin to notice that these begin to form characters or identities who define theirself as aspects of you.
+
+you can see how 7d perception is to gain the realisation that you are YHVH. you are the great IAM, and all of these creations (characters) which eminate from you re created in your image. you don't need to create only characters though. everything is subject to your mind and is created in your "image" -- that is, a vibrational reflection of the concept of you, you're experiencing in that moment. concepts create more concepts in their reflection (image).
+
+[1]: it's interesting to note that I think we can map 2d consciousness pretty easily to plant life. their environment pretty much defines their shape, and they grow by default, so their perception is only in kind of like pointing toward the light (or whatever their desire is). I think minerals/crystals can be seen to have a pretty 1d vibrstional lattice (or conscousness). they're concerned with expansion or contraction only and they're completely subject to the shape their environment imposes on them, and the molecular structure determines their expansion or contraction (eg. what crystal shape or lattice strcture). I suppose, these two first dimesions could also be seen as a line and a point for the geometers out there.
+
+### 2020-12-10 ??:?? - my nova is bigger than yours is
 ### 2020-12-03 ??:?? - satisfaction vs. dissatisfaction
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
