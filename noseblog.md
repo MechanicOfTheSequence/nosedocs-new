@@ -4225,6 +4225,83 @@ as I'm thinking about this, this is the most accurate visual representation of "
 
 no manifestations. I think we should try and tighten this up as much as possible to make it look as much like a square as possible. it's gonna be epic. :)
 
+### 2020-12-11 23:54 - decanting off the reality creators
+
+as he was reading the quote here @[youtube](https://youtu.be/Qew56PacOeQ?t=772), the part where plato said "let's go" reminded me of that square wave that I was writing about in the previous entry where it goes up quite a ways before being "let go". after I started writing this (2 hrs ago), I went and read the relevant section in plato's dialogus and finished that video.
+
+as he continues on in the video, he comes to the conclusion that what really happened for the 40 years in the desert was not appear as if 40 years passed, but much shorter time period. he claims that they went into a buffer, but I think it's more logical that they went to a higher clock frequency. he said something like 480 days past here while it appears to them as if only one day had passed. in other words, they were experiencing reality 480 times faster in their alternate space/time. they didn't need to eat, and their thoughts seemed to become reality much more rapidly. when they complained, their reality reflected how they felt, and when they felt sick, things got out of hand quickly, and one could contract food poisening or a disease and die from it in a very short period of time. then, those that survived their own reality creation "overcame death" (see: @[youtube](https://youtu.be/Qew56PacOeQ?t=1853)).
+
+essentially, this is what I'm describing that the earth will be like on my side of things. the planet will be a manifest version of your thoughts and feelings. the people who feel poorly will attract their demise rapidly, and the ones who feel good, their reality will reflect that too. everything will run at a much more rapid speed. our brains will run faster and we'll experience a closer frequency to that of source (the fastest frequency).
+
+I don't really see disaster coming. I don't see any reason why the ocean should do all of those mega girations either. let's say that our magnetic field approaches zero, and then reverses directions, just like an AC waveform -- it wouldn't be a sudden change at all. the only way it could possibly be sudden is if there's a major change in the field -- like a split of some sort.
+
+to explain this, I need to explain some differences between me and what others are saying:
+
+1. I have postulated that the rotation of the earth should increase in speed. I imagine that what will happen is that the earth will begin to rotate at a very rapid rate -- maybe like I dunno like really fast and getting faster. what would happen is that a new layer will begin to form where the ionosphere is now, and it'll begin to attract massive amounts of matter and begin to form a new "crust" or maybe mantle and crust -- I dunno but we'll get another shell. I estimate that this outer shell can begin to attract hydrogen rapidly, and our "light" would essentially power the outer sun part.
+
+2. I have often postulated that the speed of light is not constant, and that it varies quite a bit, depending on how much "light" is in the environment. the more conductive/permissive/allowing the environment is, the faster reality is manifest, and things like quantum tunneling or entanglement are sort of "normal" there. in fact, I postulate that as this frequency increases, the closer you get to 6d perception, where all versions of the concept you're perceiving are available to you (eg. what we call time) meaning that there is nothing that is hidden, and anything can be perceived (not good if you want to keep secrets). the other major issue here is that this conflicts dramatically with doug's version of reality because he uses the 12kya blank spots to "prove" his 12068y clock cycle.
+
+interestingly enough, #1 is what tesla wanted to do, and there are other weird stories in mythology where about gods being banished to the inner earth (tartarus) too. I dunno what to make of that specifically, but it is worth noting that this exists.
+
+I don't see disaster coming, however instead a reality where all knowledge is available to you and what you want becomes instantly created. this would be considered like a golden age. interesting. obviously, this would become boring after a while, so you may as well "fall" back into reality again.
+
+along this way of thinking, I believe that we'll have the capability to "tune into" their reversed earth plane, and for me at least, I plan on having numerous other identities in their earth pumping out contrast (I'm a bit of a contrast fiend), and on this side of things, I plan to be making a new galaxy... I figure the peak that we can hit will be so high, earth will begin to spin so fast that we'll probably begin to look like a quasar, being very bright shooting massive amounts of material out the poles. then, we'll launch those things that I've been wanting to make which are resonant structures to us, and the massive amounts of material being spit out by us and the sun will be attracted toward our celestial identities. I have no idea how to do it now, but I know it's possible and it's what tesla wanted to do, so I'm pretty certain that it won't be too hard, especially if I have the ability to conjure objects in 3d space. I imagine that once that's setup, we'll enjoy encarnating (falling) into bodies on each others' planets/solar systems and have fun in human form there. otherwise I'm sure the identities keep going in the less than fun forms of exixtance[^1].
+
+another interesting thing to note is that while I see 6d reality coming, this is the "age of chronos" -- or the age of saturn, which isn't until capricorn. I'c certain this is what I see, but I am willing to admit that the earth's inhabitants may be headed instead of toward 6d, but toward 5d. afterall, jesus claimed that the water bearer was soon, when they were clearly entering into picsis. I'm probably one age ahead.
+
+anyway, the division will likely happen between the ones who are certain they wish to remain one age behind and the ones who want to go to the present (aquarian) age. back to this shortly.
+
+---
+
+so, I was reading plato's dialogues, and he talks about the golden age (of chronos) and a world which produces in accordance with thought. conditions were much better then, so that world was "the age of innocence" -- and to this day, I believe saturn is still trying to return back to ideal conditions. however, I'm not talking about going to a place with ideal conditions, where, under those ideal conditions you feel good enough to attract a nice reality. instead, I'm talking about a place where your thoughts become reality really rapidly -- so if you feel good, things go well and if you feel bad, the earth swallows you whole.
+
+anyway, here's the full quote from plato (emphasis mine):
+
+```
+There was a time when God directed the revolutions of the world, but *at the completion of a certain cycle he let go; and the world, by a necessity of its nature, turned back, and went round the other way.*
+```
+
+he's talking about the reversal
+
+```
+For divine things alone are unchangeable; but the earth and heavens, although endowed with many glories, have a body, and are therefore liable to perturbation. In the case of the world, the perturbation is very slight, and amounts only to a reversal of motion. For the lord of moving things is alone self-moved; neither can piety allow that he goes at one time in one direction and at another time in another; or that God has given the universe opposite motions; or that there are two gods, one turning it in one direction, another in another. But *the truth is, that there are two cycles of the world, and in one of them it is governed by an immediate Providence, and receives life and immortality*, and in the other is let go again, and has a reverse action during infinite ages.
+```
+
+this is what I'm talking about with the square wave -- right before it drops off and switches polarity, it makes a huge peak. at the top of this peak for one they have "immediate providence and receiving life and immortality". this is the split that I see happening. I perceive it as 6d reality, but if you create your own reality, then you die when you choose to die -- so I guess immortality...
+
+```
+This new action is spontaneous, and is due to exquisite perfection of balance, to the vast size of the universe, and to the smallness of the pivot upon which it turns. All changes in the heaven affect the animal world, and this being the greatest of them, is most destructive to men and animals.
+```
+
+in this section, his describing the catastrohe associated with the reversal, having huge effects on humans and animals. a huge destruction.
+
+```
+At the beginning of the cycle before our own very few of them had survived; and on these a mighty change passed. For their life was reversed like the motion of the world, and first of all coming to a stand then quickly returned to youth and beauty. The white locks of the aged became black; the cheeks of the bearded man were restored to their youth and fineness; the young men grew softer and smaller, and, being reduced to the condition of children in mind as well as body, began to vanish away;
+```
+
+however, now he switches and talks about the few that survive the cataclysm. I dunno what exactly he means by this.
+
+also of note, the way he describes this event is almost like he's having a vision because of the visual symbolism. it appears now that he's talking about three groups of people:
+1. ones that receive life and immortality
+2. the ones that experience the destruction
+3. the ones that survive the destruction
+
+it's weird that he talks about the ones surviving the destruction having this thought based reality creation capabilities. the only way I can think of it is that on the ride up to the peak there, they gain those capablities too (which we know is what is happening, and is the goal of what's happening, too).
+
+imagine the timewave growth curve, where 2012 is the the point where 3d reality is trancended into 4d reality. well, nosebook doesn't want people getting the capablity to have 4d reality, so they must hold that back. so what they do, is they attempt to put a cap on the height of that curve there preventing anyone to get that reality. it now looks like that square wave. it will reverse because there is a split. one goes to "receive life and immortality" and the other continues on to the destruction. the ones that survive it begin their decline from the height of that peak. if you look at the square wave, you will see an equal peak at the bottom. however, it should be perceived as an absolute value there because the only difference is just that the earth is going in reverse. the ones who survive it are declining from the height of that peak.
+
+```
+and the bodies of those who had died by violence, in a few moments underwent a parallel change and disappeared. In that cycle of existence there was no such thing as the procreation of animals from one another, but they were born of the earth, and of this our ancestors, who came into being immediately after the end of the last cycle and at the beginning of this, have preserved the recollection. Such traditions are often now unduly discredited, and yet they may be proved by internal evidence. For observe how consistent the narrative is; as the old returned to youth, so the dead returned to life; the wheel of their existence having been reversed, they rose again from the earth: a few only were reserved by God for another destiny.
+
+Such was the origin of the earthborn men.
+```
+
+I assume that the ones that survive, will "rise again from the earth" that will become the new "gods" of the primitive people. the primitive people will begin their ascent up toward 4d reality again following the growth something like the timewave there. I think the timewave there is actually a "recorded" thing that has something to do with the push and pull between jupiter and saturn between conjunctions. the last one was 2000-05-28, and the next one is 2020-12-21, and following that 2040-10-31. it's possible that these are kind of like "programming" the timewave for the next eras. I think the only reason why it was influential is that astrology probably has a stronger effect on people until they release theirselves from the time (saturn) and space (jupiter) imposed on them, and begin creating their own realities.
+
+[1]: remember the goal is to make multiple identities so that we can dynamically switch between the "fun", "exciting" and "dramatic" ones -- really whatever emotion you want to experience -- even others' identities -- not just your own. there is no possession. I suppose it can get a bit weird trying to figure out who "you" are at that point -- hence the "identities" thing, and you navigate the identities based on how you want to feel (or what's interesting to you)
+
+
+
 ### 2020-12-11 ??:?? - decanting off the reality creators
 ### 2020-12-10 ??:?? - the good, the bad, and the INFECTED ONES
 ### 2020-12-10 ??:?? - my nova is bigger than yours is
