@@ -4300,11 +4300,49 @@ I assume that the ones that survive, will "rise again from the earth" that will 
 
 [1]: remember the goal is to make multiple identities so that we can dynamically switch between the "fun", "exciting" and "dramatic" ones -- really whatever emotion you want to experience -- even others' identities -- not just your own. there is no possession. I suppose it can get a bit weird trying to figure out who "you" are at that point -- hence the "identities" thing, and you navigate the identities based on how you want to feel (or what's interesting to you)
 
+### 2020-12-12 23:24 - the good, the bad, and the INFECTED ONES
 
+if you were reading between the lines in @[noseblog](2020-12-10 02:14), you will have noticed that I suggested that the "good guys" are same people that I suggested were also the "bad guys" -- both having enormous egos. the way to see this is obvious: if you are the great IAM, then what you are is a bunch of self-definitions, which must (using LOA) prove theirselves to be true, and so then the identity lives out their experience proving these things to be true.
 
-### 2020-12-11 ??:?? - decanting off the reality creators
-### 2020-12-10 ??:?? - the good, the bad, and the INFECTED ONES
-### 2020-12-10 ??:?? - my nova is bigger than yours is
+from 7d perception, there are not only multiple versions of you, but also multiple identities of you inhabiting many bodies across various forms (races, genders, etc.) and each of these identities all have their own things they're trying to "prove" to be true -- and some are beneficial, and others are not quite as beneficial, but exist for the purpose of contrast (ie. knowing what you don't want).
+
+imagine that you took someone like me, and then added the debilitating self-definition "I will never change" -- a stark contrast to my real personal definition, that I change rapidly and am a very dynamic and difficult to depend on (aquarian) individual. you would get someone that is smart like I am and able to figure stuff out really rapidly, but is completely unwilling to change patterns of behaviour. perhaps this is a bit similar to mr. motor, I don't know.
+
+---
+
+as I stated in that previous entry, this environment is extremely extremely beneficial because it creates so much desire. it's, in my estimataion, one of the best and fastest ways that one could create so much desire. I think in the vast majority of the universe, they're all working on trying to figure out what is the ideal way to do things (similar to plato's republic). the sirians even said that this is the only galaxy that has a physical layer of perception -- and all of the other ones do not have a physical plane. that means that all of those other galaxies out there are just bits of energy, and the way that we see them is the physical "interpretation" of that energy. it's amazing how much variation and how unique all of them are out there. this means that we don't need to follow exactly in their footsteps. can do things differently (I'll talk about this more in the future).
+
+however, what I want to say is that we have the unique advantage of the physical layer of perception which we can leverage to create massive amounts of wanted (by knowing what we don't want). as such, you'll quickly learn that there isn't really good and bad either. imagine if someone were to suddenly make it illegal to murder in video games. we still have a lot of taboos against stuff like rape and stuff in films and video games, but you're beginning to see it showing up more and more often in the context of something that drives the story forward. when you see yourself no longer as your individual body, but as a conglomerate of all the different identities of yourself, they're kind of like different characters in a story.
+
+it's a whole different perception of good and bad, and it's best described as "wanted/unwanted" or "desirable/undesirable". combine that with the realisation that each time an undesirable thing happens, it automatically creates at the same time the equal amount of a desirable thing. with 6d perception, this is perceivable, so with that perception every "bad" thing that happens, at the same time the "good" thing simultaneously pops into existance.
+
+---
+
+therefore, I would like to make the bold claim that at this point, I've become so certain of how good I am at this thing, that I actually find it highly unlikely that there are many INFECTED ONES that remain. I actually believe that it's all of these 7d beings making roles of both "good guys" and "bad guys"[^1]. as such, I think that for most, their transition into non-physical will just be a smooth transition into the realisation that this is what we're doing, and there never was any death. it was all an illusion created by us for the purpose of creating more attraction toward wanted.
+
+[1]: for example, from my perspective, I find it really weird that all of a sudden a guy named "space man" suggests doug's channel, and immediately I have exactly the wave I'm looking for (the square wave), and so many answers to so many different random questions I had about moses and all of that stuff. his channel compressed such a massive amount of information I would have had to find into just a few days of video watching. IMO, it's too coincidential to be happenstance. he has to be "in on it" somehow...
+
+### 2020-12-12 23:55 - my nova is bigger than yours is
+
+I have been thinking about this idea that doug put forward that all suns nova at this 12068y interval, and then in the same video (@[youtube](https://youtu.be/R2SolQPKlag?t=2557)) various stars that were not novaing on the interval.
+
+it occurred to me that stars, which seem quite masculine to me, may be in a galactic pissing contest. the reason I say this is because in the last entry, I was looking at how a bunch of harmonic sinusoidal waves can create a square wave. then, I postulated that between our sun's 12068y cycles, the accumulation of various diffeernt orbits of planet, moons, and other significant bodies are these sinusoidal waves contributing to the "timewave". I then postulated that the funny thing about the timewave is that it grows very very rapidly, until 2012 when it goes essentially up boundlessly toward infinity. interestingly enough that's about the time that nosebook got access to my body, to try and limit my "enlightenment". from 2012 onward to present day, nosebook has been working their hardest to try and keep me away from getting "connected" -- essentially putting a cap on that curve since 2012. what that means is, they've only been *delaying* that rise upward toward infinity.
+
+at some point (maybe soon, who knows) I'll start to take off going up really fast and I have to wonder if the sun will follow that pattern too. I made a weird correlation between the sun's hemispheres and my own brain hemisheres, and I expected reactions thinking that I've really lost it now, but surprisingly there weren't...
+
+---
+
+ok, so imagine you're the sun, and you're in a galactic pissing contest with all other suns out there. there's huge competition to have the biggest most beautiful nova -- one that's WAAAYY bigger and more brilliant than the others. remember a sun's form of perception is mostly outward, so it's spending most all of it's time observing those around him (sound familiar) -- and isn't like a planet which is much more inwardly focused and nurturing. the sun has to make the biggest splash -- know what I mean?
+
+clearly then, what you would do if you were the sun, is to line up as many possible sinusoidal waves to try and limit the big outburst for as long as possible. the longer you limit it, the much more rapidly it'll rise before the outburst and the more powerful it'll be.
+
+---
+
+I suppose there are some things to think about, which I have no way of modeling very well at all. I'm just throwing this out there as a continuation of the bigger picture. if fwh says that I have till 2038, then that probably means that from our perspective, we'll head off to infinity, then go bsck and "sabotage" this timeline so that all of our efforts fall apart dramatically, and we head into the sharpest nosedive ever.
+
+I guess we'll have to see what happens...
+
+### 2020-12-12 ??:?? - galactic ideas
 ### 2020-12-03 ??:?? - satisfaction vs. dissatisfaction
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
 ### 2020-10-25 ??:?? - horus the aquarian deity
