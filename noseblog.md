@@ -4342,6 +4342,21 @@ I suppose there are some things to think about, which I have no way of modeling 
 
 I guess we'll have to see what happens...
 
+
+### 2020-12-13 00:3? - why sabotage and nosedive ourselves?
+
+the easy answer is for us to cash in on more desire. the other reason is that if we add to the downward force, then the wave will spike on the negative side (the swapped side) much higher. you have to think in terms of win-win. we get the contrast/desire from expereiencing what we don't want (and meeting our eventual "demise") for free (fuel for our galaxy), and give them an even bigger bump up (also for free).
+
+it's probably better to look at this as two waveforms: one is the timewave line going upward over time. this is the human race increasing in perception from 0 up to the limit. the other waveform staarts at the abs value of whatever the peak was before our nosedive began, plus the extra energy generated from our own nosedive. from there, it would decline unless they did something about it (conditions or giving their attention to wanted).
+
+reaction is wondering how that's possible... I dunno I have to think about it, but if we were to give our attention to a bunch of "unwanted" (ie. the noseboys becoming so powerful and "defeating" us somehow), then it would give them upward momentum -- meaning they would glide for a longer time, because we gave our attention to what they wanted.
+
+ok, now why would we do that? more contrast. I just said this. from 6d perception, it's easy to convert this "unwanted" into something wanted by choosing the opposite form of perception. this is easy to do. really easy. this is what I'm doing right now. I'm essentially giving my attention to the idea that the noseboys are getting tons of vision upgrades while I don't have the manifestation. instead of letting that bother me, I just switch rapidly to seeing it as "more energy" -- because it is, and I don't need to worry about it, because I've learned to "need not the manifestation".
+
+so, imagine that we instead convince ourselves that we do need the manifestation when we do self-sabotage, and our continued perception that we're not getting the manifestation that we want will feel bad, and contribute to the creation of more wanted manifestation -- even though in that timeline we're not lining up with it.
+
+it's kind of like a dance, really.
+
 ### 2020-12-12 ??:?? - galactic ideas
 ### 2020-12-03 ??:?? - satisfaction vs. dissatisfaction
 ### 2020-11-01 ??:?? - the different versions of moses and non-linear time
