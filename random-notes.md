@@ -158,3 +158,63 @@ solar system claims:
 
 49 | 1 | 49
 7x7 | 1 | 7x7
+
+### plato's hephaestus/vulcan
+
+"Xanthus, and men call Scamander"
+"Speak you of the princely lord of light (Phaeos istora)?"
+"Hephaestus and Athene, who were brother and sister, and sprang from the same father, having a common nature, and being united also in the love of philosophy and art"
+
+"The appointed hour was approaching when man in his turn was to go forth into the light of day; and Prometheus, not knowing how he could devise his salvation, stole the mechanical arts of Hephaestus and Athene, and fire with them (they could neither have been acquired nor used without fire), and gave them to man."
+"Thus man had the wisdom necessary to the support of life, but political wisdom he had not; for that was in the keeping of Zeus, and the power of Prometheus did not extend to entering into the citadel of heaven, where Zeus dwelt, who moreover had terrible sentinels; but he did enter by stealth into the common workshop of Athene and Hephaestus, in which they used to practise their favourite arts, and carried off Hephaestus’ art of working by fire, and also the art of Athene, and gave them to man. And in this way man was supplied with the means of life. But Prometheus is said to have been afterwards prosecuted for theft, owing to the blunder of Epimetheus."
+
+
+
+### baal, baalbek, jupiter and saturn
+
+the romans, after conquering baalbek, in attempt to unify rome under the god of jupiter, told people that baal was jupiter, and that they were workshiping the same god.
+
+however, previous to that, the catrhagenian chronos, baal hammon was the chief god with whom they offered child sacrifices to.
+
+this is the sam caananite god molech, associated with child sacrifice -- specifically, in a giant bronze statue of aa bull
+
+### baal hammon
+
+phonecian chief god of carthage, responsible for fertility of vegetation, image is "king of gods", shown with a beard and rams horns.
+
+often seen with his consort "tanit", which has a lot of similarities to astarte (ishtar, venus). depicted in the form of a lioness and also associated with child sacrifice
+
+### exodus
+
+@[youtube](https://youtu.be/FlnGSMtyBe0?t=1394) postulates that it was 101.5 cycles back, in -1306.81 (oct-22) the battle with amalek (exodus)
+
+@[youtube](https://youtu.be/sp3HtKU6I4U?t=326) postulates that passover was sept-11 -1306
+
+### solar cycle hemisphere synced
+
+@[youtube](https://youtu.be/TR4DQDw29BI?t=580)
+
+nothing particularly interesting here, unless you correlate the hemisperes to my own and star-watching / visual capacity
+
+blue (northern) = my right (physical, visual, desire)
+yellow (southern) = my left (logic, programming, emotion)
+
+it's very loose correlation though. some things match quite well (like the boost to yellow in 2014).
+
+other things don't really match, like for example sharp decline of yellow at end of 2012, but if there is a correlation, then the yellow (logic/emotion) should be more enhanced in 2020 because I have quite a bit more mastery over them now, while my desire and physical capability has significantly dropped.
+
+---
+
+1:04:00 - in the previous images of the quasars, they appear to have jets shooting out of the poles. in that picture too, it looks like there is a north and south pole too. all the time massive amounts of solar wind shoots out of our sun's poles. however, the quasars also appear to have another emanation coming out radially, especially like when they begin to become galaxies. that radial emanation looks like the rings around saturn and appears at the equator.
+
+what that clock pattern in the previous slide seems to suggest is that something comes out in the positive, and then something comes out in the negative, each time it crosses the plane there. that seems to indicate to me that planck second (or whatever) these things are popping out of the poles there. the size of the thing seems to determine how often this happens (clock divider)
+
+so, for an atom I could imagine then that every time interval, an electron pops out of the south pole and a proton(?) pops out of the north pole. these shoot out and then settle into one of the alternating electron(-) and proton(+) shells around the atom (like the ionosphere shells on earth), maybe because the north ones are spinning the opposite direction of the southern ones, meaning they would repel one another much like all magnets spin in the same direction, and only if they are facing each other or away from each other do they attract or have a repulsive effect. the number of electrons in the shell would be determined by the size of the centre point (planet, atom, whatever) -- eg. how many of them you can fit into there. planets can probably fit 10^60 or more and an atom can only fit some amount of their atomic number. they float around there for a while, probably settling into a stable geometric configuration until decaying at inverse square. for an atom, the duration of these emanations happen very frequently and last a short period of time, but something like a star this would only happen every 12068y.
+
+for a galaxy (or quasar), these polar emanations, which later form into stars, which theirselves last for a very long time (essentially forever) so the galaxy seems to extend out for as long as the galaxy has existed. I think that's possibly why the massive 10 trillion star galaxy can exist -- it's just been pumping stars out for a really long time now.
+
+it seems like this rate of emanation happens based on the definition of the entity -- galaxies being the slowest, and atoms (or subatomic particles) being the fastest. it's pretty likely that this entity unit size progression is fractal, so there are perhaps infinite subatomic particles. therefore, I could imagine that each thing emanates accroding to its structure (defined by the information coming in), and so each of these smaller structures emanate at a divisible clock rate: cells, then organisations of cells, like humans or large trees, then planets, then suns, then galaxies etc. -- where each polar emanation is of the magnitude of the (?) of that entity a harmonic of the carrier wave? makes me think this could be how trees grow brenches on their north pole and roots on their south pole and radially create bark/tree rings.
+
+I hope that's pretty close to what you have... anyway, following that idea, when the 12068y interval happens on our star, it would suggest that a massive amount of material would either come out of the south or north pole (depending on the spike direction there), and all around the star would essentially flare simultaneously, with the majority of the material coming out of thee equator?
+
+anyway, I've watched nearly all of your videos now (only missing 14 from series 4 -- it's a long series!), and this is the best I've pieced together all of the information into a cohesive thought. am I close?
