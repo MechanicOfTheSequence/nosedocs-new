@@ -4399,6 +4399,25 @@ let's just assume for a moment that women have their imagination, and most men d
 
 what will emerge from this is a population that is self-empowered. nosebook may think they can try to sabotage people by controlling physical conditions, however as soon as you can feel the way you want to feel, no matter the conditiona, no one can sabotage you anymore. only you can can sabotage yourself.
 
+this may become a theme in the next era as well. I postulate that anyone who managed to find a way to "overcome death" (enoch, elijah, moses, jesus, etc. are the ones I've heard of), their signature move is to, upon realising a source-like perception, go back and modify the timeline in such a way where they self-sabotage theirself. the reason is that once you've figured it out, and that all you are doing is attracting your reality, it becomes impossible for anyone else to sabotage you anymore. you also realise the value and benefit of contrast, so it is (from that perspective), beneficial to go back and self-sabotage.
+
+let me say it this way: there is such a strong amonst people to figure it out for theirselves (millenia of priesthoods will do that to you), that most people's non-physical intention is realise it for theirselves, not to have some guru or teacher tell them the way to go. therefore, if you think of it like that -- then, imagine you were about to get souce-like perception, and "show people the way there" or give them the conditions to make it really easy -- well, then you would be in contraditction to most others' desire to figure it out for theirselves. therefore, it must be, in this way be seen that you have to be willing to self-sabotage (self-sacrifice) to allow others to come to their own realisation of it, naturally.
+
+additionally, the ability to not perceive those that wish to control as something bad is also important too. the "self-sacrifice" (I like self-sabotage better) is also a giant catalyst, too. imagine how much desire it will create. let's just say that *I am* able to go the distance, and from this timeline's perspective, it appears that all I did was show up here and give nosebook the technology to control people before failing miserably... well, that's exactly what a self-sabotage would look like. you don't want to just watch me do it... you want to find it out for yourself[^7]. the next era may be dominated (but no one will know about it), by those who actually find their way and then self-sabotage.
+
+just think about it -- everything is the path of least resistance, so if you (or I) accomplish source-like perception, and then go back to alter the timeline and self-sabotage it, nosebook would never see the other timeline where you accomplished source-like perception. their path of least resistance is always the next logical step, and for them seeing someone get "connected" is tremendously resistant for them and feels bad, so their consciousness will always pick to perceive the sabotaged timeline. for them, they will never even notice that something other happened.
+
+for this reason I place the era themes as the following:
+
+- aries: you create your own reality
+  - your reality is a reflection of how you feel
+- picses: resist not evil (unwanted)
+  - because when you resist it, you attract it into your experience
+  - do not take action from a bad feeling place
+- aquarius/leo: need not the manifestation
+  - let the feeling be the manifestation
+  - trust yourself, not the people or the phsical conditions
+
 [1]: the limitations of distance found in standard marconi radio are reduced to zero with the expansion of tesla's world system out to other stars.
 
 [2]: I believe this conceptual/symbolic language is based off of my own system of conceptualising. I think it's been extended out to most people on this planet as a way to track everyone's thoughts, and I think it's causing a lot of peeple to begin to synchronise their thoughts, and think similar things all at once because of it. it's funny because abraham started off @[abe-now](2020-12-05 p1) with exactly this.
@@ -4410,6 +4429,8 @@ what will emerge from this is a population that is self-empowered. nosebook may 
 [5]: again, this is why I believe that the future era is the crab one, with a maternal domination, because it's likely that nosebook will figure out that the easiest way to quell this energy is to to transfer it into someone else who feels like they "need" it. in this way, it's likely that women will have to be trained that they need men to maintain their perception, and if they don't have it, it's constant decline and deterioration of their perception -- so, they'll need to capture and "use" men with elevated perception to continually boost their own (eg. we need female versions of the noseboys soon)
 
 [6]: this model, is (maybe not so) surprisingly lifted from spanish chuleria.
+
+[7]: I estimate that this won't be possible until nosebook essentially has us all on our own timelines, with quite literally everything controlled around the person. this may be the only way that each of us could (on our own timelines), each find our way to this realisation. then, they'll need to consolidate the timelines into one and find another way to control us again (likely with women/relationships)... all of this is way too far out for me to see.
 
 ### 2020-12-12 ??:?? - galactic ideas
 ### 2020-12-03 ??:?? - satisfaction vs. dissatisfaction
