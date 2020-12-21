@@ -4543,6 +4543,8 @@ it's all about perception. you navigate toward everything that you want by findi
 
 ### 2020-12-21 13:11 - the demiurge is the creation
 
+@[youtube](https://www.youtube.com/watch?v=z5rRZdiu1UE)
+
 so, remember how I was saying that the I was going for the "worst possible manifestation"? well, that's what I'm still all about. in the previous entry I gave kind of a bigger timeschedule picture of the thing. I don't want to put a time length to it. I'll just call that an era or two -- I don't know. the reason why I say that is because the contents of that idea include all of the necessary components for thing to work out as an era, but it could be more.
 
 I don't really know how to say this very easily, but the whole point is for them to rip off my galaxy idea and do it for theirselves. the important realisation that I think I felt from them last night was the realisation that a reversal of rotation or poles always means a power level change. the earth is forcing one to happen every 12ky, so what can happen is, if we go up a power level (eg. spin faster and increase our magnetic field), then the earth will not flip over. in short, every 12ky, they can save theirselves from the catastrophe by going up a power level.
