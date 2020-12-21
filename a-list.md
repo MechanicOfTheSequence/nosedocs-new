@@ -269,3 +269,9 @@ in all of those situations all of us (including those girls) will obtain new bod
 ---
 
 in @[abe-now](2020-12-05 p2), at the very end, I could feel something from the girl that wrote in about her grandmother in the assisted living facility. I could also feel something too with the woman that wrote in at the very end about her twins. the daughter I could feel as well. I would like to invite them both to join in, if they want to.
+
+### 2020-12-21 14:06
+
+I also would like to invite anistyn @[youtube](https://www.youtube.com/watch?v=hN4VAI7UG-s). I got a comment reply from her mom to one of doug's videos and I wanted to look at her profile. I went there and upon seeing her videos list she had many of anistyn. the initial idea that popped into my head was to invite anistyn. I wrote it down for the creation box, however since then various events have happened, so I would like to invite aubrey as well. both of them are welcome to join in if they want to.
+
+this morning while walking home from the field, I was looking at the trash nearby to the bridge there and I was attracted to a fuscia jacket laying in the trash and a pink towely shirt thing to the side. I didn't understand the shirt thing, but after I picked up the jacket, I could feel something from a girl. I'm assuming it was the previous owner. I would like to invite her to join in too if she wants to.
