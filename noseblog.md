@@ -4586,6 +4586,82 @@ also, they don't really have anything else they can do with me. just imagine how
 
 [1]: my theory on this is that my star-watching is actually incrementally releasing a buildup of energy by letting it manifest into more perception. if I stop star-watching, that energy will build up to such a large extent, it'll eventually explode in an uncontrollable way.
 
+### 2020-12-22 14:19 - rethinking some things
+
+this morning when I was walking home I saw dan, and I was thinking about why I wrote in @[abe-now](2020-12-12 p1 54:52) that I associate the "uplifter" spirit with gays. as I kind of talked it out, really I associate it with all relationships. ironic, that it was jerry that said he always wanted to be an uplifter for people, because esther and jerry is the only relationship I've ever heard of where the people involved weren't constantly depending on the other for uplifting. I especially dispise hippie/newage/church groups where it's just a whole bunch of uplifters running around uplifting each other and no one has the capability to do anything for theirselves. I think this is a real throwback to the piscean way of thinking which is probably why I hate it so much. it's so disempowering, and it doesn't get anyone anywhere. everyone is literally spinning their wheels trying to do stuff for other people all the time, completely ignoring their own glaring flaws. it's like the literal manifestation of the "taking the plank out of your eye before helping someone with the speck in theirs" parable. the other thing I dislike is how assertive it is. like I said in my rant, I reserve the right to feel the way I want to feel; don't try and make me feel the way you want me to feel (so you can feel good about yourself) -- thanks.
+
+I think it really is a bit of a sore spot for me. I don't really mind that other people do it. I just want nothing to do with it. I steer well clear of these co-dependent uplifters if I can. actully, I don't keep clear of them. they're literally everywhere. I've found that the way that I treat people is how people treat me, so I don't try to uplift anyone. they can all figure it out by theirselves. I noticed that since I've stopped trying to avoid uplifters, and "owned the room" myself, I dominate the interactions which go on. I try to set the tone and attract the behaviour from people which is resonant with the interaction that I enjoy. you'll notice that as a result of giving my attention to what I want, I'm around very few people behaving in an uplifting way. my conversations usually involve self-empowerment, self-discovery, and self-trust -- leaving all of that other stuff to weakminded people who need others to be a certain way for them[^1].
+
+I really have moved on from trying to get people to feel the way I want them to feel (so I can feel good) way of thinking. this is how nosebook works now. they're full piscean energy now, working extra hard to get people to feel the way they want them to feel, so they have the conditions they need to feel good. yay for them :) I hope they implement uplifting parties between meetings to keep spirits high.. lol
+
+so the thing here is that I perceive relationships to be this way. they almost all are. like I said, the only relationship I had ever heard of being not like that was jerry and esther's -- however, in recent broasdcasts, abraham has talked about how esther always wanted jerry to approve or something for her so she could feel good -- and jerry was an die-hard uplifter (though probably not assertive about it). so they've completely destroyed my fantasy about their relationship being the only one I admired. oh well.
+
+you have to understand that the last thing I want is for the girls to become dependent on me for something like esther did with jerry. I just don't want that. when I'm conscious like I am right now, you can sense that I still have tremendous resistance to relationships. I obviously have to drop that resistance for the girls think to happen. I can't decide how they're going to think about me, and it also shouldn't bother me either if some of them begin to grow some attachment. they'll eventually figure it out; LOA always ensures it will.
+
+ok, so that's the relationship concept. two more coming.
+
+---
+
+now, following the last entry I wrote about being only able to sabotage yourself, they seemed to really dislike the idea of shooting theirselves in the foot as I aim toward non-resistance (ie. non-local consciousness). it seems like they want to find a way for me to self-sabotage me. the idea came up -- and I don't know if it was theirs or my own, that I would be more than willing to self-sabotage and allowing them, in my absence (or unavailablity) to find their own way toward their own connection.
+
+in fact, this is an idea I've given a lot of thought. I hadn't mentioned it here yet because I think it's way too early to start thinking about self-sabotage now, but it's the main theme that I wanted to do. I wanted to figure out a way to make it so that I go into a super-duper nosedive, while all/most of them all take their learnings from their future-selves and orchrestrate their experience so that they guide theirselves through a number of difficult situations, very similar to what's happened to me, and the ending result is that they release enough resistance to find their connection. imagine 50-1000 girls decide to figure it out for theirselves and they find their connnection while I nosedive into oblivion. nosebook would really really need for a strong global reset to happen. it'd be pretty epic. anyway, there's that idea there...
+
+this however was not the idea that popped into my head earlier. the idea in my head was something that if somehow I agree to (or somehow give them the ability to) sabotage myself, as a kind of sacrifice for the girls to get their connection. I agreed rapidly to their request because I know LOA is way stronger than their proposals, and what will happen is what we attract, not what anyone agrees on[^2]. so, no big deal.
+
+additionally, I find no problems with self-sabotage. I don't even need to experience the manifestation and go back. besides the glaring flaw in their proposal stated above, I would still do it without hesitation. they're basically asking me if I want to become even more powerful than I already am, allowing them the opportunity to get connected. I'm so good at this stuff, there's no reason for me to prove myself to anyone. I am very similar to an AoC, in that no matter the situation, I seem to always find a way back to feeling the way I want to feel. there's not a whole lot that can stop me. I'm actually beginning to believe that I'm just sort of a "special weapon" of sorts -- but it's not like a weapon. it's like a thing you can do. you just incarnate me into an environment, and then try and get that environment to hold me back from getting connected. I believe that I do this so rapidly now, that is actually one of the reasons why we're going to add more dimensions -- so it takes me longer to get it.
+
+from my perspective I'm so certain that I'll get there that my success is certain and completely unquestioned. each time I get better and better at arriving to that conclusion faster and faster. when I realise it, I get it. along the way though, I seem to provide such a tremendous upward force that civilsations seem to benefit greatly from my passage through their environment. the trend seems to be to create a bunch of really cool stuff, and then peace out (ie. transcend death). I also think that another common thing is to just sort of cut me off before a manifestation, creating even more desire. it could also be possible that I never reach the manifestation -- I never have and I never will. I suppose things like that can easily exist in this universe. it may actually be an extra-universal concept (one of those foundational paradoxes, like how can something come from nothing).
+
+I also don't really mind either if it's the case that I never get the manifestation. like I said, eventually all the manifestations up to not getting the manifestation are becoming more and more awesome. eventually the setup would become so awesome that it would be worth it anyway. it's all relative anyway, so if the setup was always the best manifestation that I'd ever experienced, then that's still the best manifestation, so from my perspective it's still the best one. anyway...
+
+you also may wonder why I'm working my way toward becoming a paradox, where the momentary improvement on the way to the manifestation far exceeds the greatness of the actual manifestation. I think it's possible -- and I think it's kind of a crazy idea to think awout that the "best" manifestation possible is to never have a manifestation.
+
+ok, these are the "self-sacrifice to give the girls a chance to find their connection" and "need not the manifestation but shoot for the paradox" concepts. one/two more.
+
+---
+
+next, we have to integrate the idea of the reversals being a change in power level. in a previous entry I established that I believe the sun is forcing the earth up to next power level[^4] and this seems to happen every 12ky. that means the planet is going have its polarity reversed which will manifest as a reversal of rotation. however, if we go up a power level by ourselves, then there won't be a reversal. it behoves us as a planet to go up a power level.
+
+I believe that if I get connected, they're going to lose their control over the planet's conditions like the control over the weather and stuff like that. things will escalate quickly into a more energetic state. they don't want this because it means most of their deaths. I don't care. I think it was jesus that said, "let the dead bury the dead" (or something like that). I'm going up a power level, and there's not much they can do to stop that.
+
+I also proposed that nosebook has their operations running out of another timeline (this is probably the aryans that run the show with their "german efficiency" that tesla refers to). things are likely very different there than how they are here -- like *way* more energetic. likely the plan is for their planet to go up a power level too. this planet (the prison planet) will remain in a low power state and experience the rotation reversal.
+
+as I mentioned, there are a lot of advantages to the global reset though because it means we get to start over. the example I've used is imagine how difficult it would be for us to get rid of police and governments. it'd be pretty difficult. however, if we never had them to begin with, you wouldn't need to get rid of them. they're kind of like gnarly hotfixes that were created back a long time ago to keep certain things operating properly, yet in time they will lose their effectiveness.
+
+if you look at humans from a LOA standpoint, there will evetually come a time when these institutions are causing more problems than they're solving. I don't know if we're there yet. that's why the reset is so interesting to me. if humans were to start over, would be still be savages killing each other or would other things happen?
+
+assuming that nosebook retains control over the planet, which they will (cause they're not here), then the last thing they can possibly have happen is for humans to gain technical capability to begin manipulating time like they do. so, technology = bad. the second to last thing they need happening is for people to begin getting connected and getting the ability to traverse time and space with freedom. so getting connected = almost as bad. the good thing for them is that because nosebook won't exist, no one will be able to see what others' see, so they'll just ensure those people/ideas are perceived as crazy.
+
+as a result, using this metric, they must ensure that our progress in science/tech is delayed as long as possible. they also have to find ways to keep populations low as well, so they'll need to ensure people feel lots of aggression between factions and each other.
+
+the reset on earth will be a great one for exactly this reason. like I explained before, I want to fall into this new earth, becase I think I'll be quite good at figuring out how to explain to these primitive people ways to begin to use their emotions and perception to create their reality, not the reality imposed on them (exactly like how nosebook is doing to me). they don't have much choice, because they're sort of stuck with me. they have to keep me busy splitting my consciousness between incarnations on their worst version of earth yet. I'm super pumped for this one.
+
+ok this is the present sitution concept.
+
+---
+
+it doesn't have to be that way though.
+
+what I have proposed is that we don't have to do it their way. we don't need to create their reality for them. as I've been writing this, I've been seeing the biggest picture yet. I'm certain that I will get connected. I'm just going to slow down my desire to do things the way I think I should do them, and start going with the flow, allowing them to shoot theirselves in the foot. details on all of this are cloudy at best. what I do see clearly though is the conclusion.
+
+things will get pretty energetic pretty quickly and probably a lot of people incompatible with that higher energy levels will make their transition. no big deal. we'll go up and start working on the galaxy the way we want to make it. what we'll do though is once we have enough stuff setup to no longer need anything, we'll go back and all do a self-sabotage, making a terrific nosedive (I want to do the one with the girls finding their connection). then, like I said, the perception of the passage of time always takes the shortest path, so in the aryans' perception, they'll see this planet getting more energetic until probably 2038 (cause that's the date they all believe in at this point), when things will suddenly take a huge downturn and everything spirals out of control before we all die terrible deaths -- and wake up in beds in our own galaxy :)
+
+they will never know that we made a galaxy. they will all think we crashed and burned (sortest possible path). this document will never exist. it'll be our secret :)
+
+I imagine that in the case of the global reset timeline, they'll have special provisions for me probably to keep me incarnating in the bodies they want me to be in, or something like that (who knows), which will be awesome because it'll be my hardest challenge yet. maybe with that one I can go infinite.
+
+what I'm saying is, it doesn't have to be one way or the other. we can do all of them. I think even more potentially. I have further ideas -- like maybe even a competition between us (those who want to join me and nosebook). nosebook can keep secrets and stuff. we'll be wide open, automate our environment, probably with nosebook controlling most of it, and we'll get rid of most all physical institutions getting machines (AoC) to do all the work, and letting LOA and the system of perception we develop (6d/7d perception) to be our environment.
+
+something like that...
+
+[1]: this is clearly the reason for most of the dissonance that we've experieced at friendly harbor. their setup is all about being there for people, and getting people to depend on them instead of the drugs. I exude an aura of self-dependence and self-realisation... so yeah, sorry about that. now you know... :(
+
+[2]: btw, in case anyone hasn't figured it out by now, contracts don't mean a whole lot to me. they're good intentions at best. understanding LOA is much more effective at experiencing the reality I want to live than trying to get people to behave the way they agreed to behave (thanks zaryn![^3])
+
+[3]: so... I wasn't meaning this in a bad way. I saw zaryn stray far from the contract that he had with some people, however with others like me or rupert, he seemed extra generous. LOA is stronger than a contract is. you get what you attract.
+
+[4]: the sirians say it's graduating to become an "esoteric" planet or something like that. either way: next power level.
+
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
 ### 2020-12-12 ??:?? - galactic ideas
