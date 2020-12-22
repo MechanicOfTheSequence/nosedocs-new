@@ -70,6 +70,8 @@ additional notes derived from recent abraham-now broadcasts
 #### 20. jealousy / resentment
 
 #### 21. insecurity / guilt / unworthiness
+- I don't deserve it
+- anxious?
 
 #### 22. powerlessness & dispair
 - vulnerable
