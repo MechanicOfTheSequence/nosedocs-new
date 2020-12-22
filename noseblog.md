@@ -4567,6 +4567,25 @@ what I'm saying is, just the same as I was thinking about how the creators demon
 
 so, just keep doing what you're doing... I've figured out your plans, and I think it's a great idea :) it's gonna be an epic nosedive.
 
+
+### 2020-12-21 22:08 - no one else can sabotage you: only you can really sabotage yourself (from a LOA perspective)
+
+the reactions to the previous entry was... negative :) I don't mind... lol. the impression that I got is that they don't want to have to interact with me, and want to maintain their distance. right. that makes perfect sense. let's say that the nosedive is in 2038, so that means that up until then we shouldn't interact. that way when we go back into this timeline we'll continue on here as if we were always at odds (and make it worse to really nosedive it good).
+
+here's the thing though: it's becoming more and more difficult (probably impossible at this point) for them to sabotage me now. the only one that can sabotage me is me, so there's no real way for them to make the nosedive happen without me doing it. I have to do it.
+
+it became clear to me when I was star-watching with saturn and jupiter that all I have to do is simply to just stop trying to go the way I think I want to go, and instead just follow my feelings entirely. nosebook certainly does have control over them to some extent, but the major breakthrough for me tonight was to realise that when they're making the decision to direct me in any way, they are not likely doing it out of a place of being "tuned in tapped in turned on" -- and they'll run right into their bench monster...
+
+to put into a simple idea: if they're giving their attention to stuff they don't want, they'll get the stuff they don't want. on other timelines, they certainly direct me in ways which they do want me to go -- however, they don't feel like they can do that here because people are watching. they care too much about the opinion of others that they don't feel they can direct me in those ways without hiding it. I must have quite a wide range of actions that I'm not resistant to...
+
+anyway, in the other timelines they feel like they can give their attention to wanted, because it's hidden from us, therefore they don't feel shame admitting to what it is they want. here though, they're concerned with their whole sham being exposed (they don't have to worry about that there), so that's what they give most of their attention to. that means that's what they're attracting: their whole sham being exposed.
+
+if I go non-resistant, then I'll get connected pretty quickly[^1], and they'll also attract the realisation of their fears pretty rapidly as well. things will rapidly need to be corrected (from their perspective) and this will be futile, digging theirselves deeper into the hole with each attempt (because their focus is firmly aimed at what they don't want)... I was talking about getting to the giving up point (@[abe-now](2020-12-05 p2 30:37)), but I don't want or need to force them to get there. I can just let them create their own reality. the only thing keeping their whole charade from completely falling apart right now is that I'm so heart-set on going the way I think is best. I skip over so many of their bad ideas, that it's likely that the minute I stop trying to go the way that I think is best, they'll really shoot theirselves in the foot pretty effectively. they'll eyentually have to give up the fight and actually let the things they want to manifest to manifest. it's all win-win anyway, but they won't be able to keep stuff very hidden. after they've got everything setup and their super secret headquarters with all the stuff, I want to fall back in and do the nosedive timeline (under control of their super secret headquarters) -- and then they can go back into hiding.
+
+also, they don't really have anything else they can do with me. just imagine how difficult it would be for them to be stuck with me. what on earth are they going to do with me. I would just keep exposing their stuff. they absolutely must find a way to keep me busy for as long as possible. each time I find a way to go up we can work on the next x-model. this time it's x3, next time it'll be x7, etc. it'll be fun :)
+
+[1]: my theory on this is that my star-watching is actually incrementally releasing a buildup of energy by letting it manifest into more perception. if I stop star-watching, that energy will build up to such a large extent, it'll eventually explode in an uncontrollable way.
+
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
 ### 2020-12-12 ??:?? - galactic ideas
