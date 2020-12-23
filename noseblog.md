@@ -4687,6 +4687,40 @@ I wondered now if the self-sabotage that I proposed may have something to do wit
 
 huh... that last bit was an interesting idea...
 
+
+### 2020-12-23 13:14 - every perceived thing has both wanted and unwanted
+
+in the last entry I didn't realise I had said it in a funny way. I made it sound like a single thing is either only wanted or only unwanted. that's not what I wanted to say. every perceived thing had both wanted and unwanted. all things are perceived to be some mix of both of those, so there's no such thing as something that's completely unwanted. I will always be able to find a way to find a wanted aspect out of everything.
+
+before I move on, I want to say that somehting can be perceived as only wanted, but that would be the perspective of source, where somethings are more wanted than others. I want to get this perspective here in physical form -- and it's what I'm on my way to (what I'm calling step-6 -- for me anyway). like I said, step-5 is where you perceive unwanted in a way which no longer makes you feel bad (eg. in a similar perspective as your source). mastery of this allows you to continue moving toward wanted even when things appear which are "unwanted".
+
+I'm just now realising that there's kind of a difficulty with the word "unwanted". let me illustrate with this situation:
+
+imagine you see someone kill another person. that is unwanted, however, it doesn't have to be perceived as unwanted by you the perceiver. my perception can't change the physical reality, but I can perceive this thing in a way which may be quite a bit more beneficial. obviously, if the person got killed, they attracted it. there must have been quite a bit of thought momentum leading up to that with circumstances and things which didn't feel good, so I know that now they are longer physically present, and so no longer experiencing the bad feeling things they were previously. they are not perceiving all of the stuff they left behind (the circumstances, thoughtforms, family, friends, etc.) all from a position of only seeing it as motion forward (progress/improvement) because they're no longer seeing the moment, but the whole spectrum of time, and how everything is converging to a grand crecendo of the maximum wanted. this would be the end of the "universe" and it would obviously arrive to a higher state of consciousness for the universe (whatever that is, I have no idea). so while many of the details are quite unknown still as the details will begin to fill in as we get closer to that moment, it's easy to see that all things are heading toward the light at the end of the tunnel, connection, realisation, enlightenment -- whatever you want to call it.
+
+therefore, there are four aspects possible: manifested/perceived wanted/unwanted. there's a really interesting quality to these which I really like: this physical plane has aspects of unwanted to it. the non-physical plane does not. consider this idea that you came to the physical plane to experience unwanted. why? for the expansion. for the realisation of the improvement.
+
+in non-physical, everything can be perceived as wanted, so when things manifest, the manifestation is only perceived as wanted. however, here in the physical, the manifestation has an element of unwanted and also wanted. once a non-physical reality is realised here in the physical, we say it manifests. it's then perceived by you to be either wanted or unwanted. when you perceive wanted, it amplifies the wanted aspect in your experience. when you perceive the unwanted aspect, that vibration (of knowing what you don't want) creates a non-physical reality of the improvement, and so then now adds more energy to the non-physical wanted reality, attracting you in a stronger way toward it. however, you are usually perceiving the physical reality though so you perceive a mix of wanted and unwanted. in order to get to the next improvement, you have to find a way toward the improved non-physical version of that reality which feels better -- and the cycle continues.
+
+imagine what happens when you die. you experience the manifestation of all things wanted. that's it though. yuo have no realisation of unwanted things, because your perception is that of source's (non-physical), and so you perceive the thing as only wanted. all things are converging to that ending moment of the next power increase for the universe, and everything contributes to that, so there's nothing going wrong or anything like that. that's it though, you experience the reality as entirely 100% wanted because you can see how much it's contributing to the whole.
+
+it would get pretty boring really quickly though because everything is moving toward wanted and you want to get in on that, so you jump into a body so you can experience unwanted, then manifest the wanted version of the unwanted, then repeat until you're heart's content. that's all there is to it. we come here to experience the unwanted and then find our way toward the wanted version of that thing (we see this as the passage of time).
+
+---
+
+ok, so knowing that now, you can see how I'm so thrilled about the idea that nosebook is going to try and figure out how to self-sabotage me. I'm giving them the illusion that they can try at it because they think that they have so much control and that things can be asserted into people's experience. this is not the case though. we all *attract* our reality by how we perceive the manifested things around us.
+
+inotherwords, I can give them all the sabotage items that they need to get things all setup, and they can create the whole self-sabotage situation for us, but if I/we perceive in a way which is like source (only seeing the wanted), all they're going to do is to put massive amounts of energy into the equation and attract massive amounts of whatever I perceive (which will be wanted, cause I'm certain that I'm good at this) more rapidly than perviously.
+
+it may get a little rough, as they have considerable enough knowledge of the things that I perceive as unwanted, and I would expect them to try and use them to focus me on (and therefore attract) unwanted. however, my job is to do something that is pretty spectacular: perceive things like source does (as only wanted), while remaining in the physical plane. since everything in the physical has an aspect of unwanted, this will be very very rapid expansion :) it's gonna be impressive.
+
+---
+
+to start them off, the other day I was telling mr. motor how wonderful it is that they're working so hard to eliminate so many girls from the list, because it's reducing the number of them that only kinda-want it. I'm sure they can use that idea somehow. another good one to go with maybe influencing people to perceive me in a negative way or something. wait, you've already tried those? dang. ok, well pretty weak. you gatta step it up! if you say these are your best efforts, I don't believe you. it's too easy. try harder man.
+
+it might just be a momentum thing. getting up to speed is never instantaneous...
+
+### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
 ### 2020-12-12 ??:?? - galactic ideas
