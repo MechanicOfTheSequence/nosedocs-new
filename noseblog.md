@@ -4662,6 +4662,31 @@ something like that...
 
 [4]: the sirians say it's graduating to become an "esoteric" planet or something like that. either way: next power level.
 
+
+### 2020-12-23 07:27 - losing my resistance (furthermore)
+
+step-4 is haveing mostly non-resistance (allowance) of wanted and mostly only resistance to unwanted. step-5 is a continuation of that, however it's the beginning of no longer resisting unwanted and perceiving it in a way which no longer causes negative emotion (eg. like your source does).
+
+I consider that I've either mastered step-5 at this point or I'm pretty close to it. I'm really good at perceiving the things in a way which no longer causes negative emotion. I think I'm probably moving into step-6 here now (or very soon), and that's losing all reaistance. I can't really think of a good analogy so I'm just gonna talk it through long-form.
+
+preference is resistance. you prefer (allow) some things and resist others. when there's no longer any resistance, then all things become/are possible. in fact, I've gone to great extents to try and explain how all things are happening, and only the things are happening for all of us, but we experience the reality that is a reflection of how we feel.
+
+I just now realised that given what I'm saying, I should probably be dead soon, or at least like those that have transcended death. huh, so I'm questioning myself right now, then why am I here... there has to be something that's keeping me here. I suppose that it would be all of your desire that's keeping me here. I'm not really sure though. doesn't affect my point. onward...
+
+so what I've noticed is happening is that I'm losing all resistance, and so now people can attract almost anything they want out of me. as an example, I noticed that in the last few days I've been extra abrasive. I think it started happening after I was talking with joy about trump. I was explaining that trump is super engaging for people. whether they like what he's saying or not, when he jumps on twitter and starts mouthing off, it produces tons of reactions from many people. these reactions are like a drug that media corps are selling to people because a reaction is an emotion, and people want to feel things strongly, even if it's a negative reaction. strong emotion keeps people engaged with the thing, whether it's social media, a game, a film or whatever...
+
+I was then explaining that I don't know what they're going to do once trump is gone. they're going to need a source of highly engaging content. from the news and night show's perspective, trump is pure gold. the script writes itself when commenting about him.
+
+---
+
+the reaction I got is that people think I'm going to fill in that vacuum a bit. that's fine with me. for me it's all about perception, so even if I'm stirring up trouble, it doesn't really matter much how people react to me or what people think about me. this is likely all part of the process of losing my resistance.
+
+when I no longer have any more resistance, all things will become possible. what you all experience will be the product of what you're all attracting from me. whatever happens, I don't think I'll have much of a problem to perceive it in a way which feels good, and it'll probably cause a pretty big stir-up.
+
+I wondered now if the self-sabotage that I proposed may have something to do with this as well. imagine if things all start to go really well (step-4), but then fall apart rapidly as the girls begin to put their attention on some perceptions which produce unwanted results. it could spiral out of control really rapidly for them until there's so much wanted and unwanted, they're kind of forced to perceive it all in a way which feels good (step-5), and then I don't have the last part figured out yet, but somehow they'll need to lower their resistance to unwanted as well (and perceive it all as part of the process) to be able to get connected. something like that...
+
+huh... that last bit was an interesting idea...
+
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
 ### 2020-12-12 ??:?? - galactic ideas
