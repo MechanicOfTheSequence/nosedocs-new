@@ -285,3 +285,17 @@ I wrote these next ones in the creation box, but it seems that the creation box 
 a while back, I watched the eurovision song contest movie, but I couldn't get very much further than only a half-hour in or so. it was too cringe for me. I turned it off, but I had some reactions that there was a girl in the movie that wanted to join in. I would feel her and she felt to me older -- like maybe even in her teens. anyway, I was finally convinced to watch the movie again, and after I did I was wondering who it was that I was feeling from the film, when it finally dawned on me that the reason I didn't recognise her was because I was looking for an older girl. turns out it was the girl in the very beginning of the movie: young sigrit. I was really quite amazed because she was so decided and conscious that I didn't expect that from such a young girl. I really want to invite her to join if she wants to :)
 
 finally, I watched a while ago another song by daði freyr: @[youtube](https://www.youtube.com/watch?v=COj9SJAiO-w), and I didn't really know exactly what to do because I could feel all sorts of different things in that video. there were a lot of different people. it looks like the girl that shows up in first scene is in a few scenes, but I think the rest of them only appear once. it's really hard for me to tell. anyway. I didn't notice any bad feelings at all, so really anyone of them that wants to join is certainly invited.
+
+### 2020-11-24 21:49
+
+tonight we went down to the riverwalk. I was in a totally different zone. I don't really understand what is going on because once again I feel quite dead again, and everything is dull. however, after leaving the car, when crossing the bridge, I noticed that there was attention on me. at the time I wasn't thinking about any girls, so I didn't pay much attention to anything that was happening there.
+
+later, there was a girl that was wearing green which I noticed and stood out to me. it was weird like I could feel like she was trying to communciate with me, but I literally couldn't feel anything. it was as if I had to use some new ultra-sesitive detector that I had never felt before. from then on I kinda realised what was happening and started to try and get used to the new feeling, which has almost no feeling at all. very weird. I don't know how to describe it.
+
+as I'm writing this I can remember another that was near the waterfall at the end there, but I can't remember if she was before or after the one in green.
+
+following that, there was a girl in pink that was wearing a mask which I saw earlier but hadn't really gotten used to the new sensation (or lack thereof) which stood out quite quite a bit. at this point I was starting to get the hang of the new sensations.
+
+lastly, when we made if finally back to the car, I was seeing a girl in blue(?) walking up on the bridge as we were getting in the car, and I had this sensation that she thought she missed her opportunity.. don't worry, I could feel her clearly now.
+
+so, I'd like to invite any of those mentioned here to join in if they want to.
