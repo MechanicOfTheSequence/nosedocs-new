@@ -666,3 +666,46 @@ I can offer ideas on things that work for me, but I encourage everyone to figure
 [1]: just to clarify, I'm not saying I don't appreciate people's prayers for me and stuff like that. I'll take the example of annie buckell. I don't remember if she prayed for my left-side or not (probably did), but it wasn't like I was wanting anything in particular to happen. if I did, I think it would have likely happened. I've known all my life that my left-side will eventually function as I wish it to -- and I never had the notion that it would come as a result of someone praying for me. it was always perceived by me to be something that I would accomplish with my own efforts. I also never thought it would be instantaneous either. as time progressed, I began to really appreciate watching it improve little by little. in some situationa it progressed slower, but in others, like when I was with raquel, I really noticed the improvements coming rapidly[^2]. at that time I used my left-hand for everything -- even writing, and the improvements that came, came rapidly. so while it was quite devistating when I got reparalysed after vallecas, I knew that it was an incrmental process of improvements. I've had many setbacks, but I've come to really appreciate the incremental improvements. also with people like annie, I've come to realise that they're like highly creative little children with quite a bit of difficulty to express theirselves in written/spoken language----. I have learned to feel what they mean, rather than get mixed up with their words. the reason why I picked annie is because it's easy to see with her that she was never trying to assert anything into my experience. she loves people and wants everyone to feel good. I cannot say the same thing for everyone who has prayed for me though; certainly some were more assertive than others. however, it's important for me to recognise that all of this is a personal journey and we all benefit from even the most assertive uplifters. they're all "more energy".
 
 [2]: for a long time I associated conditions to the progression, but as I noticed that it was the same with the stiffness: a product of resistance, I began to realise that it was alwas a mirror of how I felt. when I felt good, it worked well, and progressed rapidly, and when I was more resistant, the opposite. if my left-side were to have been healed, I would have never had such a good indicator of my emotion, and I would not have progressed as rapidly as I did. not being healed provided *WAY* more benefit than a healing would have. yet another case of not having the manifestation (tuenti, raquel, left-side) turned out to be more beneficial than the manifestation itself. my life is full of this.
+
+### 2020-12-23 08:19 - (2020-12-12 p2)
+
+#### (17:13) - what are these things..
+
+> what is thought?
+
+thought is vibration which has been focsed into something *meaningful*. thought is focused vibration
+
+> what is feeling?
+
+feeling is the response to the thought vibration
+
+> what is mind?
+
+mind is the focuser of the vibration which makes it become a thought.
+mind is source energy or physical energy.
+mind is interpreter of vibration.
+mind is focuser
+
+> what is brain?
+
+brain a organising organ which unconsciously manages the functions of the body
+
+> what is personality/behaviour?
+
+persoality is the way you're perceived by other minds, who are focused on you
+
+> what is "I"
+
+I can be the perspective of your inner being or I can be the perspective of you. best when it's both.
+
+> inner being?
+
+the perspective of your inner being, and doesn't have to be your perspective.
+
+> soul?
+
+soul is a collective consciousness of inner beings
+
+> source?
+
+source is a collectivn consciousness of souls and inner beinghs.
