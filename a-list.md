@@ -299,3 +299,13 @@ following that, there was a girl in pink that was wearing a mask which I saw ear
 lastly, when we made if finally back to the car, I was seeing a girl in blue(?) walking up on the bridge as we were getting in the car, and I had this sensation that she thought she missed her opportunity.. don't worry, I could feel her clearly now.
 
 so, I'd like to invite any of those mentioned here to join in if they want to.
+
+### 2020-12-26 22:28
+
+two nights ago after I wrote the above, I was reminded after I wrote it that there was some even previous to that. I said I would write it and I wouldn't forget. I'm still getting used to this dullness. I really don't quite feel anything, and it's taking quite a bit of time to get used to it; I have to really try hard to feel anything.
+
+anyway, I remembered a girl that was wearing a red flowered shirt and a grey sweater right before the waterfall. she was walking in front of us, and then passed off to the side. previous to that there were also two other girls which were younger. one was with a man (father?) that looked and smiled at me, and the other one I can't rmember any details. I still hadn't really figured it out quite yet.
+
+if any of them would like to join in, I want to make sure they got invited as well.
+
+man... I really don't like feeling this dull. please bear with my as I get used to it... I'll get used to it soon, don't worry.
