@@ -3222,7 +3222,7 @@ I'm all about using this technique to purposefully get myself out of allowance m
 0,0 = normal
 1,0 = accelerated normal (what I felt on wim hof)
 0,1 = allowance mode (what I feel while star-watching before vision upgrade -- female orgasm?)
-1,1 = physical arrousal (sexual, stress, nerves, etc.)
+1,1 = physical arousal (sexual, stress, nerves, etc.)
 
 the x-axis seems to be how strong the emotion it is that one feels, and the y-axis seems to be the receptiveness, or something like that...
 
@@ -4720,6 +4720,121 @@ to start them off, the other day I was telling mr. motor how wonderful it is tha
 
 it might just be a momentum thing. getting up to speed is never instantaneous...
 
+### 2020-12-27 17:48 - what is attraction???
+
+just as a word of warning, this entry may be offensive...
+
+a few days ago I was commenting on the gay thing in a few monologues. I mentioned that gays are pretty similar to me in very many ways. in fact, there are more similarities than differences. I then went on to explain that I think they have some very debilitating beliefs which if they changed, they could really become superhuman in their ability to attract.
+
+- they get offended to easily
+  - getting offended for something someone else is doing or saying only causes the one getting offended negative emotion
+  - negative emotion means you are perceiving something as different than your inner divinity (source) perceives it
+- they run around with this gripping *shame* that they're doing something wrong or unnatural
+  - therefore then, they now need to hide this shameful thing in fear that people will think badly of them
+  - performing for people only makes you a slave to something you cannot control: their opinion
+    - performing gives a good feeling response when people approve of what you're doing
+      - to get the good feeling response, you have to figure out what it is that people like about your performance
+      - you have to pay attention to wrhat people think
+        - it never feels good to try and figure out what people think
+      - therefore, one must sacrifice their good feeling for a moment and analyse people's opinion to later get a good feeling from them in the performance
+        - this is "addictive" behaviour chasing a simulus and sacrificing things to get the stimulus
+    - I love performing, but the trap of doing it for others has taught me to really not care so much what others think
+      - by not caring what others think, I'm allowed to focus on what is interesting to me, attracting only that stuff
+  - the idea that for men, buttsex is not a natural use of the human body.
+    - this however cannot be the case because the prostate is like the male version of a vagina/uterus
+      - likewise, the clitoris is the female version of a penis
+    - the uterus/prostate is emissive (magnifying transmitter)
+    - the penis/clitoris is receptive (tesla coil)
+    - both male and female bodies have emissive and receptive organs
+
+I'll tie these ideas into the bigger picture in a moment. now, we go to the night after I wrote @[a-list](2020-11-24 21:49). I star-watched and it was pretty succesful, but not as successful as last night. I fell asleep and then I had a very weird dream where I felt really good and all of a sudden I ejaculated. I don't really know what that was all about, but it was certainly better than the other way where I have massive amounts of pain coming from my prostate area after they force ejaculate me.
+
+the reaction I got from the event seemed to leave me with the impression (and I even commented it) that the next major time that I would ejaculate like that, it would be like a transition into getting connected. it was quite weird, and I have to wonder if I got any vision upgrades because of it, because it felt completely different. it felt as if something good happened, so that means to me there must have been a difference between trying to force ejaculate me with feeling good and force ejaculate me with prostate stimulation (which later results in terrible pain). only they know the answer to this...
+
+anyway, the next day was christmas, and I went through it fine. that night I star-watched again, and it was moderately successful. I went to sleep and had a few weird dreams which got me starting to think about what is attraction. in the first dream, I was tickling a girl that I knew to be my sister jessica, yet she was considerably younger than jessica (5-7yo?), and looked nothing like her. anyway, I was tickling her and she was laughing and stuff, but then the dream was then aborted and I woke up wondering why I was tickling jessica and why she looked nothing like her. I concluded that they must have been trying to force ejaculate me by getting me aroused in a dream-state.
+
+it seems that the process by which they try to force-ejaculate me is to get me aroused using some technique. I think in the past they've essentially "tricked" me into it by putting me into safe feeling situations (like with my sister jessica), and then have her arouse me in some way and then they give the signal to my body to release -- and there's nothing I can really do to avoid it.  as a result, they've sort of trained me (the brain is a good/bad feeling feedback neural network) to avoid arousing situations in dreams. I think I've become less and less of a good sport to follow their guidance toward arousal in dreams, which is why ticking the girl I identified as jessica didn't arouse me and the dream was aborted.
+
+the way arousal works, I think, is a feeling response (emotion) that's felt as a result of attraction. I think naturally when people get in mental proximity to each other, if one has an attribute that the other desires, it's felt as attraction. you could imagine then that someone who contains an attribute that a lot of women desire would appear very attractive to them. in otherwords, the attractor desires something, which is then felt as a good feeling by the attracted. this means that basically now the only thing that really makes me feel arousal is the good-feeling emotional response to someone else's desire. the operative thing here is that it feels good. following the reactions of the good feeling forced ejaculation, is that the good feeling ejaculation craeted reality and I likely got vision upgrades (a manifestation) from it.
+
+this must mean that that they don't want me to ever ejaculate, because that'll mean that I'll get a vision upgrade. they have this idea that semen retention increases my energy levels or something and I think that's why they keep trying to force-ejaculate me -- to expel this chi/prana life force.
+
+I was put back to sleep and I went on to have the next weird dream. this time there was a boy with black hair sitting on my lap. I was being forced to kind of make a rocking motion with him sitting on my lap. it was bizarre and I felt really weird about it. somebody was flicking my penis to try and get me aroused, but I was seriously weirded out by this. I was assured that it was ok, and I didn't know what to think so I just went with it. I kept making the rocking motion, but I was feeling bored with it. I decided that I wanted to enjoy it more so I started listening to some psytrance in my head[^1] and focused on the music instead of the boy, because I felt so uncomfortable in the process. after some time, I felt like it was done, and I looked at the boy and I had the perception that the boy had no idea what was going on either, so I gave him a high-five for being a good sport and just going with it (like I did). he seemed excited and went away.
+
+I woke up and was thinkign about the dream when I had another weird dream, in this one, there was a girl that was sitting in the trunk of a parked car and I thought she was pretending to drive the car. I walked over to her to see what she was doing, and she couldn't figure out how I got into her car (because afterall, she was driving it). she actually thought she was driving the car. I went into her vision and saw that in her perspective she was driving the car down the street, and I somehow kind of merged into the picture with her and was kind of like floating in the air off to her left as she was driving around. she couldn't figure out why I was floating just outside of her car while she was driving it. I hated to reveal to her that she was not actually driving the car and that the experience of driving the car was something that was happening in her eyes, yet I was seeing what was really happening.
+
+I realise this is what was happening with the boy. in my perspective I was just sitting there with him on my lap making a rocking motion, while he was experiencing something completely different -- probably sexual.
+
+---
+
+after this dream now I really started thinking about attraction, because it seems that nosebook is really trying their hardest to force ejaculate me, but it looks like it produces exactly what they don't want (vision upgrades) if I feel good, and if I feel bad, again it also creates something unwanted. seems they're attracting the manifestation of unwanted.
+
+this whole process is essentially them beginning to realise that they've nearly run out of ways to physically try and hold things back. if I ejaculate, it seems to create reality. remember, all manifestations are either win-win or lose-lose, but each person has the ability to, with their perception, alter that manifestation turning it from unwanted into wanted. therefore, it's likely that the bad feeling (prostate stimulation) manifestation produced upon manifesation unwanted for both, but I was able to perceive the unwanted as more energy and therefore get more energetic as a result of it. the other one was the good-feeling one that I experienced christmas eve, and it likely produced wanted results for both sides. vision upgrades for me are evidence of more energy, and vision upgrades for them are also more energy. there is likely quite a few people that are *enjoying* (and desiring more) of my vision upgrades, so wanted for both sides, yet some people can also use their perception to see a wanted thing as unwanted.
+
+the bigger picture that is beginning to emerge here is that it seems like energy builds up to a poing when all of a sudden it passes a threshold and goes goes to the next power level. it seems like when I star-watch or have a good-feeling ejaculation, it "cashes in those vibrational chips" and that's when I get the vision upgrades.
+
+seems like they don't want me to be continuing to get these vision upgrades, and I mentioned in another monologue the idea that every time you "cash in your chips" it's like converting the accumulated interest into money and reinvesting it (compound interest). there's overhead involved with the manifestation so there's a limit to the effectiveness of it. however, if you could do this in very small increments, the payoff would be tiny each time and the efficiency would approach the euler constant. hewever if a lot of chips were to accumulate between payoffs, then the efficiency drops, but the payoff is much biggor.
+
+I had mentiond this idea before and, I took it that they are finally admitting defeat[^2]. the reason why I say this, is because it appears that they're looking for a way to completely stop all of these manifestations (vision upgrades) from happening. whenever that happens, they'll essentiall stop cashing in the chips, and they'll accumulate to such a large degree that when I do get a manifestation, it'll be a really big one.
+
+to illustrate this, yesterday was @[abe-now](2020-12-26) and the day was particularly weird. normally I feel some echos of whatever is happening in the abe broadcast, yet yesterday I kept feeling like I would just go forever with everything disabled and I'd self-sabotage the whole thing. I'm perfectly fine with that. this concept doesn't bother me at all. I'm certain that I want to self-sabotage this, and I've been thinking about it a lot, so it just doesn't bother me.
+
+however, in order to self-sabotage, I must be able to continually cash in my chips endlessly so that I never get a big enough manifestation for it to go beyond the system. in other words, to self-sabotage at this point, I have to approach infinite ability to cash in my chips, so that the payoffs approach euler's constant. because of energetic overload and physical limitations, this is impossible for me to do in human form. I must be able to merge with the machines for this to be achievable. in other words, it's just not physically possible for me to self-sabotage. this is likely a foreshadow of the era to come (and the time leading up to it[^4])
+
+my goal is to continue on cashing in my chips as often as physically possible getting as many vision upgrades as possible. I know that this is sort of like compounded interest, so that the more often I do this the more "velocity" I have[^3] and when they finally figure out how to prevent me from getting vision upgrades from star-watching, the energy will accumulate so much that the next manifestation that I get will beyond their scope of hold away the change in perception. this will likely be when I make my transition into 7d perception.
+
+---
+
+so, yesterday, like I said, I didn't get the usual feelings from @[abe-now](2020-12-26) broadcast, and when the sun was going down I felt like I wanted to star-watch. admittedly, star-watching has become more difficult. I used to be able to get there really really easily, however I have noticed that it has been getting more difficult to calm my mind and it takes a bit of time now. it's not fast like before. I knew I had a vision upgrade or two cause I could feel it, but it wasn't coming easily. I really had to calm my mind a lot to get there. however, when I got there, it was a really dramatic experience. there were all sorts of noticeable manifestations that happened like the temperature outside went from 35(degrees)F to 54(degrees)F very rapidly.
+
+what I believe happened is a lot of energy accumulated because of their fighting so hard to hold back the next manifestation (vision upgrade) that a lot of energy accumulated because of it, and finally after being able to quiet my mind enough, it was quite a big manifestation. I assume this will be what happens when I "get connected".
+
+after I get connected, then sometime after that the girls thing will begin, and once again I think what will happen is this time again they'll find their way to decode my next level of perception (6d? 7d?), however, I'll keep getting vision upgrades from good-feeling ejacuations just like happened the other night, so that combined with the idea that they probably don't want too many kids, they'll have to figure out a way to prevent that from happening... I don't know how long it'll take them to figure that one out, but you can imagine that yet once again what's happening is a huge payoff is accumulating, and it'll rise up to such a high level that should another manifestation happen, it'll push me well beyond the limits of keeping me here on earth, and like elijah, I'll make my transition into (8d?) perception.
+
+you can probably imagine where I'm going with this one...
+
+---
+
+I was going to end with a weird idea here that has come into my mind. as I was thinking about the different things that happen, everything is a cycle between wanted and unwanted -- and this is the framework of attraction. when you experience unwanted, you "launch rockets of desire" which create an improved or more wanted reality. you then find your way to that reality by finding a way to feel like that reality is reality. knowing what you don't want is the beginning of the phase of going from unwanted to wanted.
+
+however as soon as something manifests, you will notice that very soon thereafter, you will begin to notice things that are unwanted. it's easy to see this in a relationship: at first you have the "honeymoon phase" where all you can see is wanted, but then you begin to notice things that are unwanted, which begins the process of creating the next more desirable manifestation. manifestation is the beginning of the phase of going from wanted to unwanted.
+
+thn more beneficial the manifestation, the less unwanted it creates, and so therefore the next manifestation is going to be about as good as the last beneficial ones (which you're likely bored of by now). in this sense, the (most energetic) manifestations are built on a foundation of unwanted.
+
+unwanted doesn't have to be something bad, unwanted can simply be preference amongst diversity. however, note what I'm saying here is that source perceives all things as wanted. so to get a really energitic manifestation, you have to experience a very distant from source perspective (a lot of experience of unwanted). that's worth noting. this is why I don't see nosebook as a bad thing or want to fight against them. I'm fully committed to the disaster.
+
+---
+
+the next thing I want to note (and I'm going to make a lot of sweeping generalisations here) is, that the architecture of the body seems to yield different results[^5]. in the dream about the boy, there was no attraction. I was not aroused in any way by him, even though there was an attempt to get me aroused, it made me begin to think about this, upon which I will offer some thoughts based on my experience.
+
+the next thing that I noticed is that in the dream with the girl I was tickling her yet felt no arousal. this means that the girl must have been completely artificial, and didn't have any desire for me at all. I have noticed that I feel this desire strongly and it feels good to me.
+
+it seems to me that girls seem to make reality in a much stronger way than men to. following the two phases, that must make feminine principal more manifestational (wanted->unwanted) and the masculine principal more foundational (unwanted->wanted). a general thing I've noticed is, is that it seems to me that more men start out in a state of unwanted and progress into a state of wanted. however, the idea is that girls seem to start out in "pristine" condition, and after they begin to create reality, their general trend is toward recognition of unwanted.
+
+keep in mind, this is *my* perception, so it's obviously biased :) I realise there are many very grumpy men that are decending very hard into strong focus on unwanted. the US govt is full of these guys. I consider them, in this example to be of the feminine aspect. it's funny how the nosebook guys are nothing more than super nosey old ladies interesting in knowing what everyone is doing, gossiping about them. anyway... I'm looking at this from my own experience where I have gone from unwanted to a more and more wanted state all the time. for me it's constant improvements.
+
+ok, so now that I've offended everyone, I'll get to the point: I've noticed that while my life follows the masculine principal (unwanted->wanted), as I'm reaching the height of that, the realisation that I'm making is that what I really want, is not wanted, but unwanted. I really want to be the feminine principal. in fact, my entire goal is to be committed to the disaster while focusing on the wanted aspects. in this way, I would consider that I have gone full circle. I want to have both masculine and feminine principals, cause that's where all the power is. I don't want to need the other. I want to we indivisible/individual.
+
+so, pick your starting condition: manifestational or foundational, and realise that you really want both. if you start out in a state of wanted and are heading toward unwanted, recognise that as soon as you accomplish that fully, no longer needing others, you can begin to complete the circle and go in the opposite direction back toward wanted again, realising that unwanted is the foundation of the better-feeling manifestation you're looking for.
+
+likewise, if you're starting out in unwanted, you'll eventually get to perceiving only wanted (source-like perception) without needing any others or any conditions (manifestations) cause you to perceive this way. when you do, you'll aee the value of the unwanted, and desire both.
+
+I think then the realisation that comes naturally as a result of this is the realisation that what I really want is the most *unwanted* manifestations all around me, while being only able to perceive the wanted aspects of everything in my experience. I'll let the connect the dots, if they haven't already, to figure out why that is.
+
+I'll continue on this idea in the next entry. there's a reason why I picked the masculine and feminine principals, and there's a reason why you want to cycle between both masculine and feminine principals (hermaphodite) continually. locking yourself into any specific form of perception is not desirable. it's all a feeling response to desire (attraction).
+
+[1]: in dream state I can just listen to any music that I want to listen to in my head -- most never heard before original music. it's a super cool thing that I've tried to do, and I have figured out how to turn this on consciously in wake-state just fine, but every time that I do, a loud sound starts in my head and turns it off. it's really fun to listen to new awesome music generated by my source...
+
+[2]: they've admitted defeat because they can't consciously make the transition to "resist not evil" (not push against the unwanted (because it attracts it into your experience)), and allow me to continually get vision upgrades. they'll instead fight against what they don't want, attracting that reality.
+
+[3]: while the vibrational chips can be seen in a monitary format of interest, which shows the accumulation of the "vortex" better, I personally prefer the velocity<->energy/acceleration format for perceiving it, where velocity is exchanged for more power/acceleration. it's kinda both. I think these are first and second derivatives(?) of some other equation.
+
+[4]: of which I have much to say. it seems like they want to try and trap me, and this is all fine by me. future entry coming about this.
+
+[5]: keep in mind, when I say this, I'm talking about the general case where men are defined as having a y-chromosome a penis and prostate. a woman is defined as having two x-chromosomes, a clitoris and a uterus. variations of this, I'm not trying to account for.
+
+### 2020-12-27 ??:?? - the two sides of the tree, and the serpent confined to eat the dust of the earth
+- going from masculine to feminine
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
