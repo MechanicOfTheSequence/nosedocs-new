@@ -4740,6 +4740,9 @@ a few days ago I was commenting on the gay thing in a few monologues. I mentione
         - this is "addictive" behaviour chasing a simulus and sacrificing things to get the stimulus
     - I love performing, but the trap of doing it for others has taught me to really not care so much what others think
       - by not caring what others think, I'm allowed to focus on what is interesting to me, attracting only that stuff
+      - also, not needing to try to conform to others' opinion lightens the mental load
+      - everything that anyone wants is always in the direction of what feels good
+        - even if it temporarily doesn't appear that way in the physical
   - the idea that for men, buttsex is not a natural use of the human body.
     - this however cannot be the case because the prostate is like the male version of a vagina/uterus
       - likewise, the clitoris is the female version of a penis
@@ -4832,6 +4835,32 @@ I'll continue on this idea in the next entry. there's a reason why I picked the 
 [4]: of which I have much to say. it seems like they want to try and trap me, and this is all fine by me. future entry coming about this.
 
 [5]: keep in mind, when I say this, I'm talking about the general case where men are defined as having a y-chromosome a penis and prostate. a woman is defined as having two x-chromosomes, a clitoris and a uterus. variations of this, I'm not trying to account for.
+
+### 2020-12-28 08:13 - why do I keep insisting on mentioning that you have a "source"
+
+this is, in my opinion, the most important point. you can get good results by feeling good, appreciating, or finding good conditions to feel good, but -- it's my opinion that it's most important to know why you feel emotion in the first place. everything you feel is the comparison between how your source perceives something in coparison to how you're perceiving the same thing in the present.
+
+in my opinion, this is the most important thing to understand because your source is personalised to *you*. when you trust in others, they will always fail you, however if you really know that all things desired are in the direction of what feels good, then you begin to trust that more than the physical beings around you. gaining non-resistance is becoming more flexible and diverse with the stuff that you are capable of doing, but it's all stuff that's personally interesting/fun/desirable to *you*. don't trust others; trust yourself.
+
+I want to stress that if something feels good, I don't feel obligated to move toward it. it's entirely my own decision to make the choice to do something or not, however if something feels bad, than that's a pretty good indicator that I should at least modify my perception of it before beginning to making any action. I'm not saying only go toward what feels good and be a slave to good feeling stimulus (this is called drug additiction). what I am saying is that you'll begin to recognise the difference between pleasure and joy. there are a lot of people that can entice you with conditions/things that feel good, and only you can really decide for yourself if it's what you're really looking for. I just don't want to make any action toward something that doesn't feel good or is something that I think is bad for me. I only want to make action toward things that feel good[^1].
+
+if there's something I have to do, but I don't want to do, instead of just doing it with a bad feeling like resentment or hatred, instead I find a way to modify my perception so that it feels good to me first before making the action. the reason for this is so that I'm focused on the wanted (good feeling) aspect of the action while performing it. the action may be entirely the same thing producing the same results, however if I do it while feeling good about it, the benefit is for me. I'm always trying to eliminate others out of the equation, because they're simply not helpful and they introduce all sorts of chaos. if I just do what feels good to me, then it's *always* in the direction of wanted, even if that direction appears (only temporarily) to be worse in the physical. my source has perfect knowledge of everything that I really want and the best (even if it's unconventional) way to get there.
+
+I also don't cling to manifestations being the source of what causes me to feel good. the reason is, these are these are conditional, and can pass away just as easily as they came[^2]. clinging to the manifestations makes me a very conditional person. I find that then I must ensure all the right things are in my experience that I need to feel good. it's just not possible to control so many others or have the freedom to be able to purchase the conditions I need to feel good. I do have the freedom to feel the way I want to feel though, and if I find a way to feel good anyway, then the good conditions will find their way back to me[^2].
+
+---
+
+finally, there's a kind of an advanced technique[^1] that ties this all together nicely. it's only advanced in the sense that first I hade to begin to really trust myself. this came for me from knowing that most of me is not physical, and this body is just an *automaton*. once I had that I could see that all versions of me exist simultaneously, and that I move around between these versions of myself with how I feel. from there it was then possible to begin to see myself more as an emotional state machine (ESM) than an action state machine (ASM) -- defining yourself by what you're doing than how you're feeling.
+
+now that I'm thinking like an ESM, a change in emotional state is something that now feels good or bad, and sometimes it feels good to experience a negative emotion. an example of this would be the @[abe-now](2020-12-12 p1) where I went off on a rant because it felt good to me to make action (rant) about uplifters for a while. since I did that, it opened a whole lot of different discussions, and so even though it was a "negative" emotion, it still felt like the next logical state for me to go into. looking at the bigger picture, it was clearly moving in the direction of the stuff that's personally desirable to me, and I'm pretty confident that it was my source that pointed me in that direction.
+
+I want to stress that *my* source (and yours won't either, especially if you're a bit extreme) does not point me in the direction of piety, or the path that is most acceptable to people. I go the direction that feels like my next logical state -- and knowing that my source is pointing me in this direction is the most empowering concept.
+
+in conclusion, in my *opinion*, knowing that I have an inner divinity (source), and that is why I experience emotion, is (for me) the most important piece to the whole thing.
+
+[1]: think like an ESM and move in the direction of what next emotion feels good to you. it doesn't *have* to be the next one up (or down) on the emotional scale. you can begin to take full control over how you feel, and move around apprpriately as you see fit with full confidence in yourself.
+
+[2]: this is a bit of a principal I learned from job as a kid (it was my faviourite and only OT book that I read), where I conditioned myself to not tie myself to the manifestations. obviously the book of job needs a lot of updating in its rendering of what that means, because you can learn that "God" is inside of you, and it's an perceptual journey to find a way to continue to feel good despite the circumstances sucking.
 
 ### 2020-12-27 ??:?? - the two sides of the tree, and the serpent confined to eat the dust of the earth
 - going from masculine to feminine
