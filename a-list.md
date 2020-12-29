@@ -309,3 +309,7 @@ anyway, I remembered a girl that was wearing a red flowered shirt and a grey swe
 if any of them would like to join in, I want to make sure they got invited as well.
 
 man... I really don't like feeling this dull. please bear with my as I get used to it... I'll get used to it soon, don't worry.
+
+### 2020-12-28 23:35
+
+earlier today I went for a walk. upon reaching massari, I suddenly had the idea to go look at a house's light setup. as I was walking over there, I had a feeling like I was going to meet someone. I wont over, saw the lights, and they weren't what they looked like at a distance, so I headed home. walking toward the park I suddenly had the idea to walk through the park home. I then had a sensation that I should continue forward on the street, so I did. I then saw a guy and a girl walking toward me and we greeted eachother. anyway, I wasn't sure at first what that was all about, but I'm pretty sure she was the sensation I was feeling. anyway, I want to invite her to join in if she wants to as well. anyw, btw thanks for the practise :) I'm still getting used to it, but obviously I'm getting much much better... :)
