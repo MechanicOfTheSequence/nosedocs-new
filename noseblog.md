@@ -4914,6 +4914,53 @@ I have more to say, but I'll end it here for now. oh, real quickly: the "orgone"
 
 [5]: if you've ever smoked with people (weed or cigarettes) indoors verus outdoors, the effect is that you all get into a similar conscious state much easier, and I think that's because the "orgone" energy produced by the heart separates the carbon from the O2, and other peeple are breating your energy. this must have been why spain (and so many other places) banned indoor smoking. especially in party situations (discotecas), it would create a feedback effect where people enter into an altered state of group consciousness much easier. no evidence for this other than my own experience. I've smoked a lot of things with a lot of different people in indoor spaces, and it's WAYY different than smoking the same thing with the same people in an outdoor setting.
 
+
+### 2020-01-03 11:03 - reclaiming the disaster
+
+one of the weird tihngs that has been happening the last few days is that I keep getting these different ideas that are kinda being pushed into my experience. I'll give a for-example:
+
+I had a crazy idea after getting stoned on new-year's eve while listening to @[abe-now](2020-12-19 p1). since I've slept, the idea doesn't have quite the same zest to it that it did when I first got it. it's gone to about the same dimension that all of my other programming desires have gone: oblivion. I just don't feel like it. I hate typing on my keyboard and it's absolutely so disconcerning to try and figure out how to do all of that stuff. I suppose I could do parts of it in js (the audio part), and it's relatively doable with the script audio transformer (or whatever it is), but there are so many missing pieces I don't think I would get very far. I need the same (bytecode) thing that I was looking to create for my "meaningful-chaos" project. I wrote something like this a while back in D (awake-in-tenerife), but D feels terrible to me now. as a result, I decided I wanted to write that part in lua to simplify this and use an existing embeddable language. however, in order to do that, I need to write some c++, and quite frankly I can't wrap my head around c++ anymore. I can still get pointer scuff when I'm looking at asm code and stuff, but I can't figure out what all the difference between a RefPtr or whatever, a normal pointer or a reference is. my brain just doesn't process it anymore or something. I don't get it. -- so, to try and figure out how to do this in a language I don't understand, on a keybard that I hate, etc. just feels terrible to me.
+
+obviously, like usual, when things don't feel good to me, I don't do it. I've tried to figure out a way to make this project to feel good, and I simply cannot. I just don't care.
+
+---
+
+the thing is that it's even kind of in contradiction to all the things that I've been learning, which is non-resistance. I've been noticing thst nosebook works in opposition to my desire all the time, however this is always in contrast to the physical conditions, and I've found that in the beginning, because I still believed that I needed physical conditions to get stuff done, their efforts in opposition to what I wanted to do made me feel bad.
+
+however, I've been repeating myself for a while now that reality is a reflection of how you feel and no matter how hard they work against me (take star-watching and vision upgraeds for example), that if I didn't let their efforts to physically stop me from making me feel bad, then reality would have to manifest in correspondance with how I feel. in fact, the very fact that I feel bad when it appears like my physical efforts to star-watch appear to be in vain -- is in fact, evidence that my perception is incorrect. you can see now, for example that I have fully realised that getting vision upgrades is not actually linked to the physical appearance of stars or even focusing on a light -- and that it actually has much more to do with lowering resistance.
+
+---
+
+lowering resistance is a very interesting concept because what it means is that -- it's easy to see with star-watching. if I have a preference for physical stars like sirius, but what I'm really wanting is the vision upgade (in increase in power-level), then it feels bad when I see that sirius is yet once more in a sky that's hazy and foggy with cold weather outside. however, if I realise that if all I want to do is to just go meditate or focus on a light indoors (where thints are actually more comfortable), then I can accomplish what I want without having to try very hard. non-resistance feels effortless. it feels like flying. it doesn't feel like trying real hard to do stuff.
+
+it feels like qieting my mind and allowing reality to begin to manifest in reflection with how I feel. I can see now what abramah mas talking about when they were saying that around people it's much more difficult to maintain the good-feeling place (cause you're around people who remember you how you *were* or some variation other than how you are now). expctations are a very powerful thing.
+
+I didn't want to go to a party anyway (doesn't feel like something I want to do). I really enjoyed staying at home and acclamating myself a little bit to what it's like to have a more source-like perspective. it tends to come out more when I'm stoned. so, instead I just practised that and enjoyed the time by myself. I don't raelly like being around people because they're so much more different than me, so I actually began to really consider the idea that I wanted to stop smoking with people entirely, and just do it by myself.
+
+the reason is, when I'm sober and I'm around people, I can feel my emotion really well, so I'm actually able to be non-resistant. in fact, if I hadn't of smoked, I probably would have went to their party and participated just fine, because I'm used to feeling things in my sober state and I don't have that mega-rush of so many great ideas which I'm trying to listen to and practise for when I'm getting back to being sober again. instead I have to listen to and to focus on people and what they're saying.
+
+this is a truly monumental step for me, because a long time ago, I would often need to be drugged in some way (alcohol, weed, etc.) to be able to "aguantar" a stressful situation, so I would drug myself so I wouldn't freak out about someone's flagrant superficiality. now, when I'm drugged, I'm getting such a wealth of great feeings and realisations about myself, I'd rather listen to me than to listen to them talk. I force myself to focus on them, wanting to quickly separate myself not so I can get away from their superficiality, but so I can get a glimpse into how profound I am without having to pay attention to someone else.
+
+I noticed when I was out front talking to natasha, I realised I prefer to speak with people in a sober state now. previously, that situation would have made me feel uncomfortable so I would want to escape the discomfort with the drug. now, it's just the oppsoite :)
+
+what all that means is that now when I'm on drugs, I have *more* resistance. I once again I have preference (preference is resistance) and want to go be by myself. this means I'm far less resistant when I'm sober now :) crazy, huh..
+
+---
+
+anyway, this has an important implication here because that means that I'm approaching quite rapidly where I can be in non-resistance in a sober state, just like how I am in the alternate timelines. that means that I'll soon be fully non-resistant to nosebook's efforts to steer me.
+
+this popped up today when I was thinking about the different avenues which nosebook was presenting me. thing is, they're making all of their action from a place of what they don't want, not what they *do* want (they don't steer me in the direction of what they do want in alternate timelinex), so their efforts to steer me will eventually result in the realisation of all of the stuff that they don't want.
+
+it's going to be a bit of a bumpy ride, and we'll likely bounce around between a whole bunch of diffrent things as nosebook works their hardest to figure out how to steer while looking backward into the front-view mirror. we'll all get a chance to practise what I've been carrying on so much about: reality is a reflection of how you feel. so, make what you want of it by figuring out how to feel the way you want to about how I get steered through nosebook's disaster.
+
+it's going to be hilarious. probably a whole lot of casualties along the way, but remember, it's only attraction and reality *is* a reflection of how *I* feel: "*I* did that!".
+
+I estimate that all of this will begin to happen when I reach full non-resistance. I can probably delay it for a while by doing drugs, but like I said, I want to kind of do them by myself now, so that preference would certainly create some resistance. if I just go completely sober, I'll get to non-resistance more rapidly, but I won't have nearly as much contrast. not sure what would happen there, because what nosebook actually wants is that I'm fully non-resistant and completely able to be steered by them.
+
+---
+
+final thought: the closer I get to non-resistance, it'll become a tug-of-war where I exist in as many places as you're desiring that I be in. so while nosebook does have full control, so do all of you, too. figure out what you want to make of it.
+
 ### 2020-12-27 ??:?? - the two sides of the tree, and the serpent confined to eat the dust of the earth
 - going from masculine to feminine
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
