@@ -127,3 +127,13 @@ the stone type may have something to do with it as well, as these niches seem to
 ### eagle defeating serpent symbolism
 
 - @[youtube](https://www.youtube.com/watch?v=ZcvLYfKfDK4): eagle holding smake in beak and talons
+
+### lord shiva - supreme god
+
+- often shown with a snake in hand and (dwarf) demon under the feet: @[youtube](https://www.youtube.com/watch?v=smQoJGDkHfo)
+  - [hand positions](https://en.wikipedia.org/wiki/Nataraja)
+    - (left back) holds agni (fire)
+    - (left front) facing (right front) holds (elephant)
+    - (right front) joins (left front) holding snake (serpent)
+    - (rigwt back) holds a sound device (sound which created the universe) damaru (symbolises rhmythm and time)
+  - left and right hands of serpent and elephant are joined  

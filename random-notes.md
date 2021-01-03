@@ -218,3 +218,13 @@ it seems like this rate of emanation happens based on the definition of the enti
 I hope that's pretty close to what you have... anyway, following that idea, when the 12068y interval happens on our star, it would suggest that a massive amount of material would either come out of the south or north pole (depending on the spike direction there), and all around the star would essentially flare simultaneously, with the majority of the material coming out of thee equator?
 
 anyway, I've watched nearly all of your videos now (only missing 14 from series 4 -- it's a long series!), and this is the best I've pieced together all of the information into a cohesive thought. am I close?
+
+### polar reversals
+
+I believe that on aquarius<->lion axis there is a reversal of rotation direction, and on the scorpio<->bull axis, there is an optional flipping over that occurs if the planet goes up or down a power level. I just found more evidence of this in praveen's video today here: @[youtube](https://youtu.be/AvmoH5cvXBM?t=83).
+
+you can see 13 divisions of the circle, and off to the rigt, it appears that two of the divisions are in a bigger division. this must be the composite symbol of scorpio which is half serpent (ophiuchus), half eagle. the red like going down the centre there must be showing a change in rotatiotn with the cresent to the left or right of the circle.
+
+the x-axis there is marked by a square with an x in it which must be the symbol for the flipping over of the planet.
+
+my theory is is that there are two things going on. first, the planet is in a 24ky orbit with sirius, and that the planet will continue to experience the same procession of the equinoxes of the zodiac for each half of a cycle. the closest pointand furthest point from sirius will occur when the planet is looking at scorpio or taurus. halfway to sirius, the earth will reverse it's direction right before reaching aquarius or right before reaching leo.

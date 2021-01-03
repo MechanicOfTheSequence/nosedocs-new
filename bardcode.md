@@ -75,6 +75,18 @@ the three candlesticks - the three degrees of fire
 
 ### TTT = TH = IAM (that) IAM = AM-I-AM
 
+I AM that I AM
+
+@[youtube](https://youtu.be/tmVlhBgSRPk?t=473)
+
+comes from hebrew: ehyeh asher ehyeh
+
+each lettler begins in aleph, so with the reverse cypher, aleph becomes tav, so it is shortened to "TTT".
+
+---
+
+
+
 god: there I AM
 jesus: there AM I
 
@@ -246,3 +258,102 @@ off topic: in this sense, if you consider that the expanded form of perception f
     - as I reduce the need for constant physical expression, eventually I'll become 100% non-physically functioning, essentially giving me a very "source-like" perspective and there is nothing nosebook can do to stop it, other than minimise its physical expression (like is happening in the present).
       - there's a funny reaction to this one where maybe some people don't like the idea of getting more non-physical functionality in their genome.
       - lol, don't worry. that's where nosebook is good at stuff. I'm sure they're working really hard on forcing the body into different more harmonious energy states. I'm sure nosebook will have this fully controlled soon enough.
+
+### sonnets
+
+date code
+
+@[youtube](https://youtu.be/tmVlhBgSRPk?t=1028)
+
+94 = april 4
+148 = may 28
+
+---
+
+IF THIS FALL INTO THY HAND, REVOLVE
+=
+SOLVE THE FOURTH T, FINALLY
+VII: HAND
+
+----
+
+anubis, I think is the masculine version of sirius. the feminine counterpart is sothis/sopdet
+
+the same moon configuration happens again in june 2022, cept instead of the new moon happening on the 27th, it happens on the 28th.
+
+vaguely, a picture is beginning to emerge because anubis embalms osiris (saturn) after set (mercury) murders him. isis conceives0 him as horus (the reborn saturn). however, this rebirth of osirus will not happen until after we pass through the "underworld".
+
+if you take the idea that our solar system is on a 24ky orbit with sirius b, then we began the journey through the underworld 12kya, and the "rebirth" of saturn as horus will happen when we enter into the age of aquarius.
+
+there's a bit of a twist to the story though, because imagine that the planet instead goes through a *reversal*, which means that now, instead of aquarius appearing on the horizon with the rising sun, the planet will instead see "leo" (leonardo? the lion man) rising on the horizon.
+
+---
+
+this may have something to do with the fourth t, because if you look at those t configurations there arranged, they appear quite similar to the "swastika" symbol, which is a reference to the "reversals" on the 4 corners.
+
+let's say the earth *does* go through a reversal, and instead of going toward aquarius, we switch over to seeing leo rising in with the sun (in the west). what I think this is trying to say is that the rebirth of saturn will not happen until all of the 4 t's have been crossed.
+
+this, I believe is a reference to the procession again. saturn came into power in aquarius-capricorn (22-24kya), and then remained in power through scorpio (eagle/serpent) where we would have been in closest proximity to sirius (18kya) (this is midsummer's day). from then on, our distance to sirius increased from scorpio down to leo (12kya). at the halfway point now in our orbit with sirius (12kya) and I'm guessing another reversal happened. we climb from aquarius back up to ophiuchus (serpent), when the sumerian legend of the eagle eating the serpent's children and being cast into the ground (also summarised in garden of eden story), appears happen. this is about 6kya, and I figure this is is the legend of the serpent (associated with saturn/atlantians) is cast to the ground, and I'm speculating here, but just follow the symbols... this must be associated with the deluge, where in that myth, the serpent cries (eg. saturn is related to the great deluge). this had to have happened ~6kya, and there must have been another reversal as well. I believe when this happened, the great pyramid was involved in this destruction of saturn.
+
+osirius (saturn) was displaced by the destructive aspect of thoth, set. this, I believe is correlated with the great pyramid, which I believe is assomiated (or built by) thoth. I believe the great pyramid transformed negative thought energy into beneficial energy using sacred geometry and perhaps other means. this means that the atlantians were able to give their attention to a whole lot of unwanted stuff and not have them attract disaster. keep in mind that this was happening 12-6kya, so during the time that we were reaching our furthest distance from sirius (kali yuga), and at the very top there (ophiuchus), I think the great pyramid overloaded and broke. immediately all of their negative thought energy became manifest really rapidly and the atlantians were destroyed by the athenians, and then all of their setup built upon subjugation and surperiority collapsed in an instant.
+
+I can't be sure that my narrative is correct, and I don't really know how to prove it. there is positive proof of an ice age that happened 12kya along with a reversal, which seems to fit well, cept that if the earth's rotation reversed (which appears to happen at lion/man), wouldn't explain why "lower egypt" is in the south. I have no way to prove this, but I think there is another reversal which happens at the peaks (serpent/cow) and what happens is the earth literally flips over. north becomes south and south becomes north... totally speculation, but just go with it a moment.
+
+assuming for a moment that my narrative is correct, this means that 3/4 of the zodiac has been covered. if you imagine that 4 t symbol as symbolic of the zodiac, then you get 3T. however, for 4T to happen (that is to cover all of the zodiac), then we will need to pass through leo(nardo?), cancer (69), gemini. that means, to get there, we need to have another *reversal* again. we're due for a reversal here soon, so we'll head off to leo and then to cancer.
+
+the part about anubis guarding the organs of osirius while in the underworld is important. the underworld is the 12ky that we're most distant from sirius, and after the midday point, we're going back into day time. interestingly enough, the sphynx has the shape of a lion and a man and is facing east. this structure symbolises the division of day and night with sirius by showing man/lion symbol as the threshold for this day/night. it also I think is in some ways prophetic of the rebirth of horus (it was called horemakhet).
+
+let's say we do have a reversal again. the thing is that we're completing our passage through the underworld now, so we're entering back into the light, but it's not yet "horus of the horizon". why? because if we reverse, the sun will be rising in the *west* in leo. this is exactly the opposite of what the prophecy says.
+
+following my train of thought above, the program is:
+
+- cow / bull / oxen (taurus mountain)
+- ram (aries/war)
+- fish (we're here)
+  -> earth's rotation reverses
+- lion (masculine/destructive venus)
+- crab (69)
+- cow / bull / oxen
+  -> if earth remains the same power level: continue on to ram
+  -> if earth goes up or down a power level: goto serpent/eagle
+- serpent/esgle
+- scales
+- virgin
+- FINALLY: aquarian man (horus)
+
+---
+
+TL;DR - I postulate that pole reversals and rotation reversals happen at the 4 corers of the zodiac, and up until now we've only traversed 3 of the 4 corners. in order for the rebirth of osiris (saturn) to happen, we must pass through the remaining corner, the 69. then, then before reaching taurus mountain again, the planet must reach a higher/lower power level (become the great pyramid?/repair the great pyramid?) and be willing to switch north and south poles to go up to serpent/eagle again. 6ky later, the planet will finally traverse aquarius. however, if the planet remains at the same power level, it'll continue to traverse the lower part of the zodiac endlessly, from `lion -> cow -> fish`, then reverses again and goes `lion -> cow -> fish` (eg. 3T).
+
+I'm confident that in 6ky, we'll have the tecnology capable of allowing for a pole reversal, so it's probasbly not a problem.
+
+another funny thing about the symbolism there is the "diane" stuff. while she is a moon goddess, she's also assiciated with the underworld, and also the "triple way" (trivium) -- which looks a lot to me like 3T. anubis is also god of the underworld and is the opposite half of the other sirian gods: (sopdet/sothis, isis)
+
+https://en.wikipedia.org/wiki/Diana_(mythology)
+
+lastly, another correlation with the 6 : 4 : 2, I believe is a reference to the great day/night cycle. in the vedic texts, a yuga is listed as: 4800, 3600, 2400, 1200 years respectively. divide each by 1200 and they are 4, 3, 2, 1. or, if you consider that there are two of each of these ages, 8, 6, 4, 2. the golden age there lasts the 8, leaving the 6, 4, 2 -- or all the time when it's not golden age -- eg. the underworld (diana).
+
+
+IN DIAN KING
+IN DIAN BOY
+IN DIAN HEIR
+
+I postulate that these are reference to tho different sections of the "underworld". I don't know what what order they would go in, but following that we're talking about the underworld, they must be the treta, dvapara, and kali yugas. I would estimate then that these are the following: king = kali, boy = dvapara, and heir = treta. the underworld if you divide the 24000 cycle into two equal parts, will divide these up into three equal parts:
+
+1:25:34
+
+if I'm right, there should be symbolism talking about down things going up and up things going down. there may also be snake/serpent/reptile symblism.
+
+if we take the left hemishphere to be "I AM" and the right to be "THAT" (which interestingly enough corresponds quite well with the two hemispheres of the brain)...
+I AM | THAT
+I AM | THAT
+
+...then following the sequence I proposed above (man -> serpent/eagle -> lion, man -> serpent/eagle, cow -> fish), it would say, "I AM THAT I AM". furthermore, if you were to revolve in the northern hemisphere, it would say, "I AM THAT" (where the eagle soars). and if you revolve continually in the southern hemisphere (without going up to higher consciousness IOAM), then it say "THAT I AM".
+
+the difference here is that if one says, "I AM THAT (revolve) I AM THAT (revolve) ...", then they would have an unconditional (or "source") perspective.
+
+however, they revolve in the southern hemishphere, it would repeat, "THAT I AM (revolve) THAT I AM (revolve) ..." -- this is clearly a very conditional or defined by the material world perspective.
+
+interestingly enough in the sumerian myth, the zodiac is represented as a tree. combine that with the garden of eden story and while the eagle soars high above, the serpent is confined to the ground (and eat the dust of the earth) -- that is to continually be a part of the alchemical process of purifying the alchemical gold (of becoming unconditional).
+
+don't think only soaring like an eagle is great either. I like both. call me a winged serpet if you want
