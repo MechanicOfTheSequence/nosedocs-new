@@ -228,3 +228,18 @@ you can see 13 divisions of the circle, and off to the rigt, it appears that two
 the x-axis there is marked by a square with an x in it which must be the symbol for the flipping over of the planet.
 
 my theory is is that there are two things going on. first, the planet is in a 24ky orbit with sirius, and that the planet will continue to experience the same procession of the equinoxes of the zodiac for each half of a cycle. the closest pointand furthest point from sirius will occur when the planet is looking at scorpio or taurus. halfway to sirius, the earth will reverse it's direction right before reaching aquarius or right before reaching leo.
+
+### moving waster with electrostatich or high-voltage electircity
+
+@[youtube](https://www.youtube.com/watch?v=NjLJ77IuBdM) has the explanation that high voltage creates an electrostatic field around it, and then water which is a polar molucule will be attracted to either the positive or negative polarity equally -- though if you were to look at the attraction, then the positive side of the wter molecule would be attracted to the negative and vice versa, so the water molecules in each situation would be oriented exactly 180(degrees) opposite from each other.
+
+@[youtube](https://www.youtube.com/watch?v=jIMihpDmBpY&t=228s), derek explains it as ion mixtures being pulled the melecules...
+
+ben's explanation seems more logical to me. also, I think there's possiblibly a thing going on here which I don't really know how to explain. I think ions are just molecules that do not have net neutral charge to them. hydrogen seems to have a very (+) positive(?) charge to it, and is very corrosvive/exploxive. oxygen seenms to have a have a strong (-) negative(?) or attractive charge to it. when I try to think of this in a bigger sense, the first thing I get is that stars are like hydrogen. they're bigger, positively charged and emissive (corrosive). electrons are more like planets. planets are more like oxygen, cept they're smaller and atrractive. I think the attractivness of these different bodies is determined by their hydrogen density. more hydrogen = more solar-like.
+
+anyway, if you have an imbalance of either of these (+) emissive, or attractive (-) forces, you end up with an imbanance. a water molecule is the perfect balance between these forces. it appears that a there needs to be a ratio of 2:1 ration of atttractive to emissive componenents. it's quite likely that a solar system must be in balance with these masses, so the attractive stuff (non-hydrogen, or mabye, "matter") must be 1/2 as much as the hydregon.
+
+I don't know where helium falls into this, but it seems that the sun is constantly sending tons of "solar wind" outward which contains all of the heavier elements and clumps up into and is attracted by planets. the sun seems to be very concerned with reclaiming it's hydrogen, from the departing solar wind, and helium is likely used in this process somewhere.
+
+star/planet perspective
+visual conceptual/categorical

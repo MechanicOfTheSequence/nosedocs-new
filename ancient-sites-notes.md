@@ -135,5 +135,18 @@ the stone type may have something to do with it as well, as these niches seem to
     - (left back) holds agni (fire)
     - (left front) facing (right front) holds (elephant)
     - (right front) joins (left front) holding snake (serpent)
-    - (rigwt back) holds a sound device (sound which created the universe) damaru (symbolises rhmythm and time)
-  - left and right hands of serpent and elephant are joined  
+    - (right back) holds a sound device (sound which created the universe) damaru (symbolises rhmythm and time)
+  - left and right hands of serpent and elephant are joined
+
+another depiction @[youtube](https://www.youtube.com/watch?v=XngvKGPIG_A), but with some significant differences:
+- hand positions:
+  - (left back) holds a snake (serpent) while doing (elephant) posture
+  - (left front) faces downward
+  - (right front) is horizontally open
+  - (right back) holds the vajra device while doing (elephant) posture
+- interesting animals (clockwise)
+  - bird in it's trre hole
+  - lizard crawling up the tree
+  - mouse running up tree
+  - mouse getting eaten by snake
+  - cat sad cause mouse was eaten by snake
