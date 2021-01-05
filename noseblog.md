@@ -4961,6 +4961,45 @@ I estimate that all of this will begin to happen when I reach full non-resistanc
 
 final thought: the closer I get to non-resistance, it'll become a tug-of-war where I exist in as many places as you're desiring that I be in. so while nosebook does have full control, so do all of you, too. figure out what you want to make of it.
 
+
+### 2021-01-05 13:33 - losing my preference
+
+a few weird things have been happening as of late where I don't really understand them, however, they all have to do with preference. first, I was watching an applied science video where he was talking about encoding data into a flame. the video really disliked to me, and I concluded that was his "worst" video I'd ever seen (so many more contain mind-blowing revelations or super clever ideas). in comparison to other people it's just a video I kinda didn't like, is all. it's a bit weird I had such a strong reaction to such a short and meaningless video.
+
+a few other minor things happened too[^1], but the next example was when I was watching a slyssa video and she was talking about how she she and her husband's grocery list is nearly all alcohol. again, I had a negsative reaction to that, but not like a really strong one. I know from my own experience what stage that is in for alcoholism. I too lived a life where I only ate restaurant food and drank alcohol and coffee (almost never water). it was basically the pinnacle of the worst period of my life.
+
+I don't really know why I cared, cause I wouldn't have if I didn't care. the next thing to note is that it was a negative emotion, which basically means my source perceives the same thing a different way. it's obvious to me that my source does not care whether slyssa purchases or drinks alcohol. these things are entirely her choice and only she can know if that feels good to her. though I would *prefer* that she didn't (cause of my own experience), it's none of my business, and my wanting to care about that is what felt bad.
+
+---
+
+as I was thinking about that this afternoon after waking up, I was realsing that so many of these things that other people are doing which feel bad to me, have to go. I was even thinking about my preference in the girls situation. the fact that there still remains a negative feeling emotion toward some of the outcomes, also needs to go. these are all indications that my source perceives the same thing a completely different way.
+
+I think what is happening is that nosebook is heightening my feelings of preference to ensure I stay in resistance for a longer period of time. I don't really mind how long they want to try and keep me in resistance. I figure they can keep it up for as long as they want to, and have suggested that this may actually last the whole 18 years as they continue to make decisions based on all the stuff they don't want. I dunno. I don't care.
+
+the way I see it, mr. motor has to ensure that none of the manifestations ever happen, while at the same time keeping me resistant to stuff. the way it seems like this is happening, is they're amplifying my preference so that I feel it more. eventually, all of those bad-feeling preferences will even be released by me. for example, now I'm more certain than ever it's never a good idea to care such that I try and influence someone to go the way I prefer them to go.
+
+as I keep releasing more and more resistance, less and less things will feel bad to me, which basically means that nosebook will have less and less ability to steer me with negative emotion. eventually, nothing anyone else is doing will make me feel bad anymore. I will only go in the way which feels good to me.
+
+at this time I'll probably be pulled in a lot of different directions by a lot of different people. I honestly can't imagine this being much other than chaos, but I'll still be able to be fine in it. I think my goal when I reach this point will be yet another stage in the "releasing resistance" things. think about it like this: if I no longer have preference toward what I don't want, all things can potentially feel good to me, whih means I can do anything now -- but I'm mostly pulled in the direction of the stronger attractors around me. not always though. obviously, if I really want to get away, it'll feel good to get away, so that's what I'll do.
+
+the important thing to understand here (mosly for nosebook), is that if nothing feels bad to me anymore, then all things now feel good to me, so I can only be steered in the direction of the things that feel better than the others (lots of good feeling options, and some feel better than others). it could get a bit crazy for nosebook to try and figure out things that they want me to do which feel better than the things I'm already doing. I don't know how they'll fivgure that one out, honestly. not my problem though.
+
+---
+
+for the time being, I'm just going to continue on lowering my preference.
+
+as a weird unrelated side thought, I was thinking this morning about how nosebook would merge with the machines, and I think I got my answer. each time they transfer their conscoiusness into another body, I think they lose basically all of the practised ideas and information stored in the brain, so really only concepts continue on. when they get over to the new body, the system will need to "train" their brain to "think clearly" again, teaching them what things are important and what things are not. they'll essentially have to begin to distill their whole knowledgebase into a training program and corresponding persistent system which maintains all of this information for them.
+
+essentially, they're creating a training program which "programs" a human body to think like they do, hold all of their secrets and keep everything running the way they want it to go. obviously, the training program and the system itself which they hook theirselves into will become more and more complimentary until they are the system, "reincarnating" endlessly (they're scared of death) into human bodies. they will become a group consciousness composed of the "system", the "training program" and the millions of bodies thet they're incarnated into (using as their minions).
+
+this process will probably take a few hundred years or so (more than 4-5 generations). it'll be gradual at first with just the need to transmit the information necessary between bodies, so that the whole system doesn't collapse as major people require a new body. later though, the system will contnue to expand and be more and more optimised to where the body can be reprogrammed in a short period of time (eg. agent shith), and they'll have full control over everything.
+
+they'll be limited by their own genetics though, as they'll want to continue to expand their own consciousness though, and will see us as their vehicle to do so... this is why I anticipate that the next time, getting to future x7, x15, etc. will be a relatively short period of time. I think this is why they plan to keep me incarnating indefinitely in their controlled world. I don't mind. eventually, I suppose it'll be possible to "go infinite" once they're merged with the machines and are finally conscious that it's either win-win or lose-lose. it'll become more evident over this next era that they need us for their own expansion, so they may have to begin to think about entertaining the idea of giving their attention to what they want :)
+
+lol...
+
+[1]: like, I went on a rant about youtube forcing their mobile users to watch ads, and how maybe I should spend some time to create an app to get around that for others. personally, I don't watch youtube on a mobile device, nor want to, so it would be not at all in my interest to make this, as the idea only feels like fighting against "the powers that be"'s cash cow. it reminds me aaron making a golden bull (hathor) for people to worship, and moses causing all kinds of problems by melting the egyptian priesthood's cash cow and forcing them to drink it... I just don't really want to fight against google'a cash cow -- know what I mean...
+
 ### 2020-12-27 ??:?? - the two sides of the tree, and the serpent confined to eat the dust of the earth
 - going from masculine to feminine
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
