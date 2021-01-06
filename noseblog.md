@@ -5000,6 +5000,56 @@ lol...
 
 [1]: like, I went on a rant about youtube forcing their mobile users to watch ads, and how maybe I should spend some time to create an app to get around that for others. personally, I don't watch youtube on a mobile device, nor want to, so it would be not at all in my interest to make this, as the idea only feels like fighting against "the powers that be"'s cash cow. it reminds me aaron making a golden bull (hathor) for people to worship, and moses causing all kinds of problems by melting the egyptian priesthood's cash cow and forcing them to drink it... I just don't really want to fight against google'a cash cow -- know what I mean...
 
+### 2021-01-05 16:32 - followup on previous entry
+
+I got a few reactions to last entry, so I kinda wanted to doube-down a little bit and clarify some things. the part where I said that I hope that nosebook is able to continually keep me in a resistant state, is because that's absolutely true. there's literally no end to things so there will always be more sensitivity I can gain and more resistance that I can release. you never get it done. it's like dividing by a number to get to zero. you just never get there, and the numbers become smaller and smaller, meaning that my sensitivity will rise to such an extent that if they were able to infinitely hold me in a state of resistance, never allowing me to "get connected" (what they're attempting/want to do), then that means the amount of sensitivity that they would need to have would be to do that would be so extremely sensitive that it'd be basically like source level sensitivity (they are also quite jealous of source's ablity to, from their perspective, "control" and "manipulate" the situation).
+
+so, they wouuld get what they wanted if they could find a way to infinitely keep me away from the manifestation. I want that for them too, because one does not need to spend much time looking to realise that my present position, although for some it could be considered inadequate, the rate at which great things are happening for me is so rapid, it's pretty spectacular from my perspective. if we count from 2012, then again from 2016, the amount of progresss that I've made is unquestionable. let's say that they were able to find a way to hold me for the duration of the 18 years remaining, you could only imagine what the progress would be.
+
+I don't know that they'll be able to do that though. I find it unlikely. in order to do that, they may need to entertain the idea that maybe that their present form of expression in human bodies may not be the way to go. they keep trying stuff, but they're not able to really hold me back much. those different scenarios of increased preference were not all that big of a deal to me. what I mean is, if my freqency keeps rising, then I imagine that it'll begin to be pretty difficult to process reality becsuse they'll be so overwhelmed by the amount of information. they may want to consider beginning to merge their perception with a machine which has a much higher clock speed. perceiving through a machine will give them a number of things that they're looking for, namely immortality, and a dependence on something they do not havn full control over (electricity).
+
+if we can pull this off, they will become machines that are so concerned with all of the stuff they don't want, that they'll need a species completely separate from theirselves to continually evolve and improve so they can repurpose the latest and greatest human inventions and capability. I think this is a trial run, because I highly doubt that my writing that this relationship will be symbiotic (win-win), means that they'll have to eventually train theirselves to "resist not evil" (eg. resist not the things that they logically consider to be unwanted). there's no real way to explain this concept to them, and they'll have to figure it out for theirselves through trial and error.
+
+---
+
+I think this is why they're working so hard to figure out this resistance/preterence thing, as there is a difference. if I see something that I don't like, I don't need to resist it, because it's not a monster in the bushes that will jump out at me. look at it this way: I have no resistance to the things that I want. we can agree on that. however, at the same time that the things that are wanted exist, also exist other amounts of unwanted. if I go in the direction of wanted (allowing wanted), automatically I'm not going in the direction of the things unwanted.
+
+this is the conversation of "path of most allowance" or "path of least resistance". allowance and resistance are two variables (so four results) but they're perceived as two. this reminds me of the square vs. hex tiling. hex tiling has 3 directions and 3 symmetries. square tiling has 2 directions and 4 symmetries (I think). my brain isn't seeing this so well right now, but it's the square tiling. both left and right direction *appear the same*, but they are distinct corners. same for top and bottom. so let's make the truth table:
+
+| least resistance | most allowance | (of wanted) result |
+|  1               |  1             | almost where I'm at (source-like) |
+|  0               |  1             | being in the receptive mode of wanted (source) |
+|  1               |  0             | going in direction of wanted (deliberate creator) |
+|  0               |  0             | most resistnance and least allowance (split energy) |
+
+now I'll attempt to explain this. when you're allowing in the things that you want, all of the things you want are moving toward you. at the same time, all of the unwanted things are naturally moving away (because unwanted things feel worse and wanted things feel better). when moving in the direction of wanted, you're taking the path of least resistance which means that there are a number of bad feeling things, and you're picking the least bad-feeling thing. you are navigating the maze yourself, and depending on how much attention you put on the other bad-feeling things, they're either getting closer or further.
+
+split energy is neither going in the direction of least resistance (perhaps cause it hasn't been perceived which is more resistant) and neither in the direction of more allowing either.
+
+---
+
+another way to look at it is to see it as two factors: are you allowing the (un)wanted, or are you resisting the (un)wanted things. when you resist things you bring them closer to you. when you allow things you also bring them closer. when you allow the things, only those things are coming toward you (or you could see that the things not like the wanted stuff is drifting away). so, when you look at it from a perspective of resisting things, what are you doing is attracting all the resisted things, but at the same time choosing to go in the direction of the least resistant thing.
+
+this is why I'm vigerously reducing my resistance to so many things. when you make your transition to non-physical, look at what happens: you are no longer attracting any resistant thing, so no more resistant manifestations can occur. instead, you are fully open to everything because you no longer have any resistance imposed by physicality, so you're 100% allowing now, so you allow in the the fully wanted manifestations.
+
+however, because there's no resistance, there's no unwanted, so no contrast is made because you're only able to allow 100% wanted.
+
+---
+
+this illuminates what I'm trying to do all thes more clearly because this would eventually give nosebook the sensitivity to run at close to source-like frequencies, and perceive it a logical and "clear" way (like a machine does). I would likewise continue to gain more and more sensitivity as well, where I'm learning to essentially be 100% in the receptive mode like source is, while still continuing to exist in a resistant physical reality. if we can pull this off, this allows me to eventually become "source energy in a human body" -- and I would continue to exist here in physical form for as long as nosebook can keep me here.
+
+like I said, I find it highly unlikely that nosebook will be able to pull it off, because they're giving their attention mostly to unwanted. if you look at the chart in the opposite direction (the other 4 aspects), it reads a bit different:
+
+| least resistance | most allowance | (of unwanted) result |
+|  1               |  1             | least reaistance to unwanted and most allowance of unwanted (infant) |
+|  0               |  1             | most resistance to unwanted, but also being in the receptive mode of unwanted (naive) |
+|  1               |  0             | least allowance of unwanted, but also least resistance to unwanted (complacent) |
+|  0               |  0             | most resistance to unwanted and also lest allowance of unwanted (stuck) |
+
+when they can finally give their attention to wanted, this may change a bit, but I doubt it will. this is why I think this is a trial run, and so after coming back to do the self-sabotage, so they can continually put an avatar of me in constatnt reincarnation in thir world, they'll eventually get it that their survival isn't sustained by resisting what they don't want (eg. naive or stuck) and neither that they should want it for others either -- cause the direction they're going (one of these 8 options) are what is being attracted for both sides, so again if they want stuck or naive for us, they're also attracting stuck or naive also for theirselves.
+
+they don't determine the manifestation, because let's just take this exact incident for example: if they're trying to get me into stuck or naive territory, then I can still tansform it with my perception and turn it into something else.
+
 ### 2020-12-27 ??:?? - the two sides of the tree, and the serpent confined to eat the dust of the earth
 - going from masculine to feminine
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
