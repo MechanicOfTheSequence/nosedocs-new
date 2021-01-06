@@ -5050,6 +5050,37 @@ when they can finally give their attention to wanted, this may change a bit, but
 
 they don't determine the manifestation, because let's just take this exact incident for example: if they're trying to get me into stuck or naive territory, then I can still tansform it with my perception and turn it into something else.
 
+
+### 2021-01-06 11:40 - nothing is emperically good or bad
+
+one of the things that I want to clarify about the previous entry is the idae that there is a "best" or "worst" way to feel. there isn't. all of the things that I've been talking about are to help you to *identify* when you feel something, and then consciously choose how you wish to perceive it. there is no best or worst. you have 100% the freedom to feel any way you want about it.
+
+for example, in the second to last entry, I explained that alcohol doesn't make me feel good. that's essentially how I choose to feel about it. it first started when I noticed that after drinking, watching stars was very difficult, so instead of wasting my time drinking, instead I'd rather spend it watchnig stars. I valued that a whole lot more than drinking. I also valued my time programming too, and although I did have quite a bit of success progwamming drunk (especially in comparison to stoned), I found that the quality of my work was much higher when I was sober and I appreciated the result a lot more. as a result, I found the simple coffee and cigarette combo to remain as the most effective substance for programming.
+
+there's no right answer for any drugs, alcohol or any substances (coffee, diets, etc). it entirely depends on you and how you feel about the thing. you get the complete freedom to feel however you want about it. there is no best thing either. a person who feels good (and only talks about and does good-feeling things) while drinking alcohol will have far better results than someone who is a completelly sober negative nancy. it has nothing to do with the substance, but more to do with how you feel.
+
+you could have the perfect optimal diet which gives you all the nutrients you need and all of the other optimal stuff, but if you're a miserable person, the diet won't help much; you'll still be miserable.
+
+I've been thinking a lot about this actually because in a recent video @[youtube](https://www.youtube.com/watch?v=yzLN1RwyuYg), luke mentioned that he stopped his ice baths because he was feeling totally out of it and stuff. I woke up the following morning from a pretty significant set of vision uptrades and was feeling especially out of it also myself. I'm kind of used to it though because it happens every time I go up a few power levels, however, it's quite likely he isn't, and I remember my first few times I really felt like I was hit by a truck, when previously the vision upgrades would make me feel really good. I wondered if luke was experiencing a power upgrade. I estimate that he did, though I have no evidence to say one way or another.
+
+thn reason why I said that is to illustrate that there are many ways to learn what I'm talking about. the ice baths (and other cold related exercises) are a great way to train yourself to begin to feel the way you want to feel dispite the circumstances. once you can feel good even in the cold, you will notice that you generally feel better about everything and now have practised the capaability to feel the way you want to feel.
+
+for that reason, I think it's especially good for depression, giving you the way to feel the way you want to feel, however, once you feel good, you have to change the way you perceive the thoughts that cause that depression. depression doesn't come out of nowhere, and you eventually gain the sensitivity to know what thoughts (or bnliefs) feel good, and which ones cause a feeling of depression. the ones that feel depressing, are a 100% indicator that those thoughts are 100% opposite to how your source perceivces the same exact thing. 100% opposite. think about that. if you can convince yourself to instead see things the way your source does, then you will automatically feel much better about all that stuff that used to cause depression.
+
+I wish I had some people around me that are depressed that want to clean up their perception a bit. I find it very easy, and I want to show others how easy it is. it's really easy to make simple transformations to some basic beliefs which allow you to begin to see things more like your source does. when you do, you will feel free. after changing enough of these limiting beliefs, you'll feel so free, it'll feel like you can levitate and fly whereever you want to go: no limits anymore[^1].
+
+---
+
+> you can choose the best thing and feel the worst about it, or choose the worst thing and feel your best about it. you get to choose how you feel.
+
+by being able to choose how you feel, you control how you percieve things. many people might claim that this is "fake it till you make it" or some other version of being fake. being fake is pretending you feel better than you really do. I used to hang around a lot of rich people, and the common attribute that I've noticed among them is this, "we all know money doesn't really make us happy, but let's all pretend we're happier than we really are so we appear to have it all" -- and that kinda really bothered me for a while but the reality is, if you can feel the way you want to feel, you have something that money cannot buy. you are more envied than anyone else for your ability to feel the way you want to feel. forget all of the other stuff; it's not important.
+
+if you see someone out there pretending to feel better than they really do, this is common, cause most people are faking it. don't be like the pharisees who do all of their things in the appearance of other and for their approval. it doesn't get you anywhere. be real about how you feel, and find a way to perceive the things you want to feel good about in a way which actually feels good.
+
+many peeple can say many things about me but, do you really think I actually perceive all of these things as "just more energy" or do you think I'm faking it so that I can pretend to feel better about less-than-ideal circumstances?
+
+[1]: this may not actually happen in reality, however if you've had good trips on any psychedelics, you'll know the feeling I'm talking about.
+
 ### 2020-12-27 ??:?? - the two sides of the tree, and the serpent confined to eat the dust of the earth
 - going from masculine to feminine
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
