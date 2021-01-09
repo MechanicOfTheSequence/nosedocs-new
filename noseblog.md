@@ -5183,7 +5183,7 @@ the massive increase in information available to people now has made it easier t
 
 I thought it was interesting he brought up the isolation chamber experience because I don't know that it would affect me all that much. in fact, for me, if that were to happen, I might actually "get connected" because of such little stimulus. it's only through the constant distractions (mr. motor, etc.) that keep me from thinking deeper and deeper thoughts about how amazing I am. if I were forced to be in a place where it was 100% silent and nothing to stimulate me, I think that I wouldhave such a tremendously lively experience and come to some really mind blowing realisations of myself. it would likely be one of the most amazing things ever (and I'm willing to try it *wink*). I think there's a reason why people use sensory deprivation tanks -- probably to get away from their mobile for an hour or two.
 
-so what's funny is that as energy increases, the number of realisations per minute (leary called this RPMs) goes way up, meaning that there is massive progress in technology and such, yet also in the human psyche as well. imagine being in a space where you go from 3-4 RPM to 100s of RPSs. if all of those realisations are about other people and external things which are inconsequential, congrats you've successfully noticed a whole lot about yourself in things external to you -- but because they're external to you, you don't have to actually realise them about yourself[^4].
+so what's funny is that as energy increases, the number of realisations per minute (RPMs[^5]) goes way up, meaning that there is massive progress in technology and such, yet also in the human psyche as well. imagine being in a space where you go from 3-4 RPM to 100s of RPSs. if all of those realisations are about other people and external things which are inconsequential, congrats you've successfully noticed a whole lot about yourself in things external to you -- but because they're external to you, you don't have to actually realise them about yourself[^4].
 
 obviously there's a lot of people that don't want you to self-realise though, there is quite a bit of value in them as well, because the longer they can hold you off from the aha moment, the bigger the buildup. going back to the universe realising itself on the diagonal, you can see that as energy increases (the "great attractor" at the end/beginning) will cause the RPMs to go up higher and higher until the speed everyone is going will create a certainty of alignment. the ones who cannot handle the speed will fly off only leaving those closest to the diagonal right before the aha moment.
 
@@ -5200,6 +5200,8 @@ I take this a step further and want to see if we can skip aha moments alltogethe
 [3]: just watch someone trying to learn something while their phone is getting a million notifications and every time they begin to get a grip on the concept another notification comes in. or someone trying to program with a lot of distractions going on.
 
 [4]: so what are you paying attention to? what are you realising about others? if it feels bad, maybe if didn't perceive that same aspect in yourself as something bad, it wouldn't feel bad to you, and you would no longer continue to attract that stuff which just reinforces that feeling (causing you to believe it more).
+
+[5]: leary called this "revelations per minute"
 
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
