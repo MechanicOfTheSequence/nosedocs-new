@@ -810,7 +810,7 @@ there is a bit of an irony to it.
 
 #### (9:38) - don't be such a scruteniser of where everyone else is
 
-ok, here's another trap they inserted. I don't perceive that I'm a scruteniser of everyone else, which, if this is people's opinion of me, then I didn't realise it because I'm not receptive to it. if that's how people perceive me, it wasn't intended for it to be that way. this must be a reference to the youtube comment I made of "let the dead bury the dead". I'm not sure. I don't think it is, so I don't understand what is the rub (it it is people's perception of me).
+ok, here's another trap they inserted. I don't perceive that I'm a scruteniser of everyone else, which, if this is people's opinion of me, then I didn't realise it because I'm not receptive to it. if that's how people perceive me, it wasn't intended for it to be that way. this must be a reference to the youtube comment I made of "let the dead bury the dead". I'm not sure. I don't think it is, so I don't understand what is the rub (is it people's perception of me).
 
 I can go to the party but I didn't realise this is how people perceive me. I mean, how does perceiving me as a scruteniser feel? I don't imagine it feels good. try to find a way to perceive that same thing in a different way...
 
@@ -821,3 +821,51 @@ so someone who scrutenises is someone with ambition. they have a mental trajecto
 ---
 
 or not, lol... the real secret in knowing that the things are all reflections. so someone who perceives me in this way is someone who has a strong mental image of what needs to be accomplished. easy as that. you can only identify things in others you're also resonant with. so whenever someone pisses me off, then I just find out what it is that thing that pisses me off about him is only something that I myself am. I then try to find the better way of perceiving the thing I see about myself in others. I am the things that piss me off. I choose how to perceive those things that I notice that I am.
+
+### 2021-01-09 01:09 - (2020-12-19 p1)
+
+#### (09:23) - sheltered
+
+wow, I can't believe how different this is when I'm not stoned. I really liked it more when I was stoned. it's hard to see the sam ethings that I saw a week (or so) ago. let's take this part where aberaham is talking to the questioner about how she are not really as practised at being around the other people, "because if she was really practised at being the new you became once you got away from negative them, then now that you're back in the vicinity of them you wouldn't feel it."
+
+I remember hearing this when I was stoned and I totally understood it completely differently. I went back "home" to smoking weed, and though I haven't been there in a while, I figured I must be much worse at all of this than I think I am.
+
+in hindsight, it's clear that I'm doing just fine, and I wasn't really all that affected by smoking weed. it's just that everything has so much more of a vividness to it, and so I'm sure there are all kinds of really dumb ideas beingput into my head all the time, but for some reason I believed more of them when I was stoned. I can't believe how much worse I thought I was doing. I was actually really scared to go back to the party and see the nightbours for fear that they were going to suddenly pull some negative emotion out of me (or something).
+
+it's really bizarre to me how strangely different I felt smoking. quite a few things are really improved (like listening to abraham is like a full sensory experience, where everything is like supercharged with feeling), but then at the same time it kinda concerns me how easily I can believe ideas that clearly aren't true. I'm super out of practise trying to integrate into normal people's life experiences in such an altered state of consciousness. I really see things faar differently stoned than I do now.
+
+I don't know which is better.
+
+#### 1:00:54 - why you feel negative emotion
+
+I just wrote an entry @[noseblog](2021-01-08 22:14) where I was talking about distractions and how they keep ypou from making realisations about yourself. I realised as they were talking (quote is below), that you do need to distract yourself (they called it "absolute productivity"), to be able to allow your vibration to rise. the flaw in what I was saying is that your realisations are always resonant with your vibration, so if you realise things (about yourself or others), they'll be a match to your vibration. so, they recommend distratcting yourself to allow that shift upward.
+
+> a lot of the very negative opinions that you have about the world, or about your life, or your body, or your husband or about somebody... the reason that they exist; the reason you're feeling them, is because your inner being knows something so different than that and is activating a current within you to call you up through it... if you could just chill. if you could play more games; if you could have more fun... are we convincing you a little bit of the absolute productivity of putting yourself in the place where you allow your inner being to call you upwarwd to shift your vibration..
+
+I dunno man. I find the distractions good and stuff, but personally, I've found with myself that if I distract myself, then I get right back to it where I was right before the distraction. they recommend going up the emotional scale (60 seconds earlier from this quote) talking about going up the scale practises you to "go through" the emotion easier. I think that's probably true for me. I must do some variation of that, however I find it easier to modify my perception and practise that so when I return it's more likely to just skip the old way entirely.
+
+I'm not sure what is the best way, because my way kind of skips some steps, as I don't take time to walk up the scale, so it may come back to bite me, but I dunno. I don't really think there's a problem because there's this recognition when I get the new perception, like "on yeah that's right. I don't need to [whatever] that to feel good about it". it feels like a long lost momeory that I had been distracted from remembering.
+
+so what I'm saying is that it made sense to me that you need to distract yourself from the negative stuff to get a good footing, but I've been noticing recently that it's almost as if the distractions are there to keep me from remembering the way I *really* see it. weird. I'll keep this is mind, but I'm not used to feeling much negative emotion. in fact, I started this out by noticing how much more negative emotion I felt listening to them while stoned (fear, worry, concern, doubting myself, etc.) than I do normally now. when I'm stoned, I do need to take these distractions and go play a stupid game or whatever to get away from the bad ideas (or uncertainty) feedback loop.
+
+I'm not sure if the solution is to, now that I'm so good at this, to purposefully smoke and stuff so that I can improve my vibration in altered states of consciousness, too. not sure.
+
+#### (1:02:20) - the meek shall inherit the earth
+
+I was thinking about some of the illusions of time and one of the things that I came to the conclusion is that time pressure is this weird thing where it seems to dialate in strange ways when performing. I can't quite explain it, but when there's like some sort of pressure imposed by others, my consciousness of them and their expectations seems to cause problems with the perception of time.
+
+I always wondered about the meek shall inherit the earth... strangely, I didn't really have a problem with the meek part, because I always knew it as the people trying to assert their rigtht(eousness) onto others as "the way" for the earth -- though abraham always said that these asserters are good for contrast... so not to try and get rid of them, as they're a beneficial part of the equation.
+
+the part that always wondered to me as the inherit part. what in the world does that mean? well, I just thought about it logically, and inheritance happens when an old person dies and leaves you something that belongs to them. so I guess the "owners" of the earth will leave the earth behind to the meek as their "inheritance" -- huh...
+
+this morning and yesterday I was wondering about this because nosebook is trying to get assert different things. one of the main themes is that they want to ensure that there are no children born yet at the same time they are also trying to figure out how to keep me distracted with a bunch of girls so I don't build anything great. I can't figure this out because if they're peacing out (leaving the earth behind as an inheritance), then what does this matter to them?
+
+the image that I was getting as I was writing the above is that energy would rise to such a height that the "owners" of this earth would eventually die and leave the earth behind to the meek.
+
+who are the meek? they don't give a very good "definition" for it...
+
+> that pure positive energy is where all of the power is, and in your releasing of struggle, and in your reeasing of pushing against. in your no longer trning to jusify. in your no longer trying to defend... in your no longer trying to be right (by making someone else wrong). in all of that, there is a releasing of resistance that allows the LOA and your inner being to call you upward into that vibrational reality where everything that you want is -- and the more you allow that, the more you get to witness the manifestations -- that match it.
+
+so, basically, the ones why aren't trying to do stuff and make stuff happen (with action). eg. the ones who feel pretty good most of the time even if they're getting run over by actioners.
+
+it struck me as interesting that I stopped having that performance time dialation because I can only do as good as I can do. there's no need to try or to worry about what I'm doing. worry is only a waste of time and is counterproductive. time no longer moves fast or slow for me anymore and I'm getting less and less of a memory of past. I'm more focused so it feels like faster or slower, but it becomes more "natural" feeling. I imagine that a dancer, once past the initial shock of the the audience, can settle into the dance and just let it flow out of them in a natural way. it's kinda like that. it's not that it's fast or slow, but instead smooth or natural feeling. almost as if it's pleasurable and not at all like there's something that needs to be done (or else). no conditions. I just do what I do, and whatever happens, happens. I'm genuine and everything that I'm doing is an expression of that; there's no performance.
