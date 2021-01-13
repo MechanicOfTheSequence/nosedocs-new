@@ -5246,6 +5246,65 @@ I think it's endless, so that's why it's all about the fun factor.
 
 [2]: however it's fun for me to think about how big of a disaster it is for them. imagine they try and distract me with girls, but then we start finding our connection, so they switch to something else. how are they going to find a replicating number of me's busy without technology? certainly they won't want us to have too much technology because it increases communication with others (spreads ideas) and they definitely don't want me working on tech stuff, but at the same time they don't want me to be spending too much time alone either -- and neither with too many other people either. I have no idea what they're going to do... actually, the idea that came to mind just now is if things were really gay and men were dominated by women to believe that they should be worried about what others are thinking and feeling about them. it could cause problems -- especially if there were a huge gender imbalance (like too many females and most men are gay, or too many men and very few females. it would create tremendous competition, and competition is a great way to waste time).
 
+
+### 2021-01-13 01:18 - I don't really understand what's going on...
+
+it feels like nosebook is pushing to try and make stuff happen again, because it feels to me as if there are people making some assumptions that I'm rejecting them or something. I just don't like how anything feels and am completely unwilling to try and move in a direction of something that doesn't feel good. I decided I want to give my attention a little bit to what I don't for a bit in effort to figure out what it is that I do want.
+
+the best I can come up with is that what I don't want is the manifestation of the girls. it feels like a whole lot of people pulling me in a lot of different directions, and I just don't really want that. my answer here is that I want to "get connected" then I'll figure it out from that new vantage point, and conclude that is what I do want.
+
+---
+
+I've really been quite a bit out of sorts lately and I can't really get things going in a stable direction. seems like every time that I start to begin to like something it goes away or I feel very confused about it. on one hand I don't really care because this is just evidence that nosebook is manipulating stuff again.
+
+it feels like nosebook keeps trying to pressure me to try and figure out what sort of setup I want in relation to the girls. I don't. I don't want any setup at all. I can understand what they're trying to do because likely they don't want me to get connected without people around me with which they can try and steer me with. from their perspective, they don't want me to get connected and to just be able to go wherver I want to go and do whatever I want to do... but, uhhh that's the point. that's exactly what I want to do. no girls. no nothing. I'll figure it out. I'm going to fly to very remote areas where no one is around and just kind of chill out and discover all of the stuff inside of me for a while. this is what I want to do. forget the girls; everything I'm looking for is inside of me. it's not external. I imagine I may want to begin to turn some of that internal stuff into external things that others can see, but I want to do the discovering of it.
+
+likely they'll benefit from it quite greatly because they'll eventually figure out what all of the signals mean and make some sense of it all, but I mainly just want to chill out and be alone.
+
+anyway, back to what I think is happening: like I said, I think they're trying to make it so that I don't have any time to be alone or to do any internal discovery -- instead they want to keep me constantly distracted with girls, so they're trying to figure out what sort of situation they can steer me into. I'm not sure if their plan is to get me into the situation, and then let go of their efforts (or lower them considerably) to keep me away from as much "enlightenment"[^1] as possible -- like if they're going to try and run me at 20% capacity instead of trying to keep me at 0% (or whatever the case may be).
+
+I mean any amount *is* more than I have now and it is an improvement as well, so it's certainly quite a positive thing, but then I imagine that if I only get a portion, then it'll only increase my desire to just keep going.
+
+---
+
+I just feel extreme discomfort with what they're trying to push me toward. it feels like they're continuing to try and keep me confined. I'm sort of all or nothing in the sense that I want to either be stuck or free, but not somewhere inbetween. this is only the case when it's a large change. normally however, I like gradual changes and shun big changes. so I figure if they're already planning to try running me at a fraction of perception (I find this pretty likely), then why not just let me grow naturally? I'll be confined to mom's house for a while, I think... I just don't know enough to be able to say one way or another here because I don't know how "close" I am to "connection".
+
+what I'm saying is, as long as I remain in a disconnected state, I prefer to remain how I am, and will continue to insist that it remains the same, because I want to find me way to that "connection" my own way. I'll just keep releasing resistance the whole time. this is what I prefer and why I want them to just continue on doing their best to keep me from it.
+
+in other words, what I'm saying is, let's just keep going how we're going and when I finally am surpassing the abilities of the system to hold me back, like I mentioned above I have a whole lot of internal discovery that I want to be doing, and then from that new perspective, I think it'll be fairly obvious what the girls setup will be because I'll automatically feel quite compelled to move in that direction.
+
+however, if they're wanting to try and retain some large or small fraction of my perception, then I say just stop adding more limits or just add less limits and I'll eventually reach the point where I feel comfortable to do something with the girls. at the moment, I have no such comfort at all. the entire thing feels very uncomfortable and out of (everyone's) control. this is likely a reaction I'm feeling from nosebook more than anything.
+
+as always, I'm not going to just jump right into something I don't feel comfortable about, so the gradual method seems to be the best one, as it'll certainly give me a better feeling of comfort and the ability to actually begin to see the thing come together in a way which feels more and more pleasing, and I don't have to begin until I feel ready either.
+
+---
+
+how ready is enough? I dunno. maybe I'll never feel ready. I just don't know. feeling ready at least takes time; time that nosebook doesn't want me to have, because they want to try and feel like they can control everything or actually produce anything tangible with anything I discover internally.
+
+---
+
+there is another discussion that I was having this morning about a pattern that I noticed in each change of era which is that each alternating era swaps between being oriented such that the institution of the era is designed to serve the individual or about the institution itself. you can also see it as the difference between chaos and order -- or thinking from the perspective of the part (specialised) thinking as opposed to thinking for the benefit of the whole. it's best to think of it as externally focused vs. internally focused.
+
+either way.. it appears to me that announcer of the era is one era ahead so that it closly matches and appears to be an improvement on the present era. for example, this era is picsis which is all about group thinking and stuff like that. it's clearly externally focused. we're taught to behave properly in ordinance with the culture and the mandates of the institution which destermines that culture (church, school, science, etc.) the next era is capricorn and this one too is externally focused, so when I come along having accomplished the template of what it means to be individually or internally focused, then it's time for me to begin to experience things in a group oriented way. this is probably why the girls thing grew to be so big and why I have considered that it could be ahead of its time -- as the gnomitos thing may have been actually an echo of the future.
+
+dispite nosebook's resistance to it, at first, they later figured it was a way to keep me even externally focused (distracted) instead of going internally focused. the entire first part of this entry was about me wanting to go internally focsed for a bit until I'm feeling good about things, then I'll focus externally.
+
+what seems to be the pattern between these changes to era is that they look really enticing to the powers that be (fer example jesus was talking aquarian stuff while leaving aries). if you believe terence's idea, what happened is that the people that were able to go to aquarian thinking went off in the time split, while the other picean ones stayed here on earth. my version is similar, cept it wasn't fully a time split, but a time loop. either the result is the same. what happened is that this earth went into an era, instead of with internal perception, but a focus on external percption. as a result, the ones that are running the show are still focused internally, and that's why they are "draconian" (to see clearly), and retain those secrets and keep them from the masses.
+
+it's clear that after the reset, that things will be quite different, and like I mentioned in the previous entry, it's clear to me that people will be much more individually and internally focused by the end of the era, because nosebook will have to work so hard to ensure that they don't ever form any groups or be around people that are good for them. in this way, nosebook will secretly be entirely externally focused, worrying about all of us, and the conditions that we're in, almost completely oblivious to anything happening internally.
+
+what you can see then, is that we're headed for internal focus in the next era (whether it's aquarius or leo) and nosebook is headed for external focus.
+
+so, if what I'm saying is correct (and it is), I find it more likely that what will *actually* happen is that nosebook will try their hardest to get me to go externally focused with the girls and stuff, but like I said, it's likely ahead of time. instead we'll probably decend into a more and more internal focus. there will probably be girls involved.
+
+---
+
+I think mabe what Im trying to say here is that this seems to be a focus problem. nosebook doesn't want me to be externally focused in the sense that they don't want me to be making pyramids or anything electronic (or any physical stuff like that). instead, they want me focused on external things that they do control (the girls). what I'm saying is that I think it's a focus problem. if they keep trying to focus me externally, then I'll want to focus on external stuff that interests me. however, what if I focus internally and create a rich internal environment (that they control?), and just not worry about what's happening externally.
+
+I see the confusion. I don't know how to explain. maybe a good way to try and do that would be to think of the differences between taurus and picsis, and then look at how I describe the next era (aquarius or leo), to try and get a picture of what that may look like. maybe to get a better idea imagine how cancer or capricorn may be, where the announcer of the era has learned the next external focus and is looking to extend the internal focus even further, but the sabotage results instead with external focus where the gnomitos idea seems like a good solution to nosebook's future probem (just like the church was a solution to the roman's jew problem). I'm doing something else for a while...
+
+[1]: I dunno the right words for it; whether it's DMT, serotonin, or whatever the brain is doing in those hightened states of "alignment"
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
