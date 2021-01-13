@@ -5305,6 +5305,36 @@ I see the confusion. I don't know how to explain. maybe a good way to try and do
 
 [1]: I dunno the right words for it; whether it's DMT, serotonin, or whatever the brain is doing in those hightened states of "alignment"
 
+### 2021-01-13 15:28 - it's all inside of you
+
+I hadn't really realised whst the comment in the second to last entry made where I was talking about how when I woke up I could see a bunch of women that were somehow associated with or influenced by a bunch of gsy men that were also around me, and it felt as if they were wanting me to fill some void inside of them. I don't mean "void" in the sexual sense. I mean like they believe there is something that they believe they're missing inside of them, which their inability to satisfy someone else is evidence of that. I had a strong nagative reaction to that because what they're looking for is inside of them. they may look at me and I may appear attrsactive because I have that, but I don't have what they're loooking for. none of them can get it from me. they can only find it within theirselves.
+
+I'm sure that nosebook is capitalising on this, which is likely the primary reason why they are so determined to keep me externally focused. they must know that everything I'm looking for is inside of me and that's why they have to keep me from it.
+
+let me attempt to explain in this way: when I was younger I had a lot of negative views about myself, but I noticed that anything I put my mind to, seemed to become a reality. my problem was not making reality happen, but making the reality that I wanted to happen, to happen. I figured everyone was like me. they are, but almost no one realises it about theirselves. our society is so designed to make sure you do not ever believe in yourself and instead place all of your hopes, wishes, aspirations into the basket of the church, science school, or whatever institution that is there to give you the approval of saying that you're finally worthy enough to believe in yourself, because you now believe what we want you to believe. only when you believe what they want you to believe, *then* you are actually allowed to believe in yourself. you've finally earned it.
+
+one of the funny things I've noticed about all of this architecture stuff that I've been watching from SGD channel is the use of numbers and patterns to create things. the builders seem to use a mathematical code to convey how "enlightened" they are, and how well they understand the mysteries. it's a giant pissing contest. in his latest video (@[youtube](https://www.youtube.com/watch?v=THt9zv6apGc)), he shows that the romans were capable of making large single-piece granite columns. the work is brilliant, and shows obvious mastery of soneworking. I don't doubt that the masons were capable of making these colums. the evidence is there in their constructions.
+
+instead, what blows my mind is this common pattern that I keep seeing emerge. the roman leadership is completely dysfunctional. the "senate" was nothing more than a gathering of crooks and thieves to figure out who they could take advantage of next. the glorious roman empire brought plenty of high technology and amazing advances to humankind, yet all of it rests on the sholders of pure genius and slaves which these crooks utilised to construct their latest display of power and grandeur. it's the same story repeated throughout history. going from the stories, this has been happening from the time of the atlantians right down to the present. it's just morphed over time as the idea of slavery has become more and more unacceptable. instead they have to retain the slavery without calling it that. money isn't slavery, but it's said that "everyone has their price" -- so now instead you have slaves to the monetary system (which they control) instaed of diretctly to them.
+
+anyway, I decided I wanted to begin to think about creating a pyramid just because it sounds fun to me and I admire them a lot. in programming, you really don't get a good appreciation for something until you've tried to recreate the same thing yourself. for example, when I was younger, I worked on menuet, fiddled around with bootloaders and wrote a lot of assembly language, so when I watch andreas posting videos on serenity. having experience in a lot of those aspects, I can quite understand the difficulty of it and it's just cool, ya know...
+
+so I started on the pyramid idea and I was immediately attracted to a lot of different numbers which feel good to me and I like. it's been like this all my life and I just like those numbers, but no one has initiated me into the mystery schools. no one taught me draconian vision, yet I figured it out. from their perspective, in order to get these things, I need to earn them. I have to go through the initiations which they did to get these things. I can't just discover them inside of myself.
+
+the builders theirselves (vitruvias, da vinci, etc.) state that these constructions are to be the measure (reflection) of man. therefore, it seems obvious to me that if that is true (and it is), then these same concepts can be discovered *internally* and then brought out to the external, in just the same way that a well built temple or cathedral will inspire you internally. it's a two-way road. I'm sure of it.
+
+they don't want you to know that though, because then that means that *anyone* could become a demigod and they would lose their superiority -- because they didn't get their superiority through internal discovery, but through initiation.
+
+---
+
+so, back to what I was talking about looking for things in me when what they're really looking for is internal.
+
+after I wrote yesterday's entry, I started realising what I was really talking about with these alternating external/internal focus, what I was really talking about
+
+brb
+
+self-influence
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
