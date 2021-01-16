@@ -1056,9 +1056,9 @@ as I was writing them, I couldn't help but to notice that I used a lot of infini
 
 it appears that the difference between these two are the infinite versions. I noticed that I cannot help myself but to use infinte forms like a child does. I desire to have a language where I could express likelihood (belief) in a way intrinsic to the sentence, forcing me to define how much I believe what I'm saying[^1]...
 
-instead, because I don't have an easy way to show how how much I believe something by intresically encoding the likelihood (of truth) into the concept[^2], I instead use infinitives like a little child.
+instead, because I don't have an easy way to show how how much I believe something by intresically encoding the likelihood (of truth) into the concept[^2], I instead use infinitites like a little child.
 
-however, what I'm seeing is the power of these infinitives because they show the two (hidden) opposite poles: the absence of wanted/unwanted. it's a very interesting idea :)
+however, what I'm seeing is the power of these infinitites because they show the two (hidden) opposite poles: the absence of wanted/unwanted. it's a very interesting idea :)
 
 [1]: this idea actually after having thought about it, really adds a whole new dimension of dishonesty to language because now I can explicitely tell people I believe something I may or may not believe. well, whether other peoole use this feature to deceive theirselves or others is none of my business. I only want it to be able to communicate clearly with others.
 
