@@ -869,3 +869,231 @@ who are the meek? they don't give a very good "definition" for it...
 so, basically, the ones why aren't trying to do stuff and make stuff happen (with action). eg. the ones who feel pretty good most of the time even if they're getting run over by actioners.
 
 it struck me as interesting that I stopped having that performance time dialation because I can only do as good as I can do. there's no need to try or to worry about what I'm doing. worry is only a waste of time and is counterproductive. time no longer moves fast or slow for me anymore and I'm getting less and less of a memory of past. I'm more focused so it feels like faster or slower, but it becomes more "natural" feeling. I imagine that a dancer, once past the initial shock of the the audience, can settle into the dance and just let it flow out of them in a natural way. it's kinda like that. it's not that it's fast or slow, but instead smooth or natural feeling. almost as if it's pleasurable and not at all like there's something that needs to be done (or else). no conditions. I just do what I do, and whatever happens, happens. I'm genuine and everything that I'm doing is an expression of that; there's no performance.
+
+### 2021-01-13 05:23 - (2020-12-19 p2)
+
+#### (13:05) - trying to get someone to change so you can feel better, never ever works...
+
+> you can beat people into submission. you can bribe them or threaten them. there's a lot of that going on, on yuor planet ritght now. people all puffed up because they can make other people do the things they want them to do with threat or bribe, but what we want to say to you is that is not long lasting... and when you watch those waves or currents, that is not long lasting
+
+at first when they said this, the thought that instantly popped into my head was TLA using his superpowers to make the girl that he questioned love about, climax often[^1]. however as they continued on they said "with threat or bribe" and then I started thinking about how nosebook using their machines to influence the bodies of people is kind of like a bribe. it's an interesting concept that I'll explore more in the future I'm sure. the idea that nosebook is bribing/threatening me or my body to behave in the way they want it to behave (on an unconscious level). anyway...
+
+they continue on and say thast when "you watch those waves or currents" -- all of a sudden it popped into my head that this is the most brilliant thing ever. assume for a moment that the guys running nosebook are the INFECTED ONES originally from mars and they're here because they wouldn't respond to the "rehabilitation" that the sirians tried to do. that implies that if they wouldn't respond, it means that they simply wouldn't take anyone else's word for it. they simply wouldn't change because someone told them to change. it makes perfect sense because they said he was a damaged 7th ray male. this is the ray of physicality, and so of course they wouldn't be able to just take some one else's word for it -- no matter how logical it is.
+
+this is exactly what it's like trying to argue with me, and I imagine it's the signature move of this "infection" -- that they won't respond to any form of reasoning... they need to see the manifestation to believe it (something that jesus often called the pharisees out on).
+
+anyway, I totally got it! what's the solution to someone who won't listen to reasoning? give them the ability to look at and track the evidence for theirselves. they can have unlimited view into anyone's lives and watch the "waves and currents" of these different methods they employ to try and get their way. that'll convince a few, but I'm certain that others will not be convenced by this evidence. they *must* find a way to get people to behave the way they want them to, and so therefore have to not only study all of the different efforts to influence people to do what they want (like me, or the girl he questioned being in love with), and because it's not like them to simply give up on what they want (especially since abraham said it's not possible), they are now tasked with the exhaustive task of *literally* exhausting every single way they can think of to get people to do what they want so they can feel good. sounds exhaustive :) lol! nice...
+
+[1]: I'm making some assumptions here where it seems to me rather likely that the conversation a while back about what the difference between love and physical attraction was someone working at nosebook, probably mr. landscape armchitect.
+
+#### (14:18) - the magickal creation box
+
+as they were talking about the "magical" -- I was thinking "magickal" in the sense that you can write down an incatation or something that you can just "create" or "speak into existance" (like YHVH did with the "world"), as if it were some way to influence people or situations (conditions) to be the way you want them to be... you know like a spell or something. "witchcraft" lol
+
+### 2021-01-13 23:31 - (2020-12-19 p2)
+
+#### (22:42) - the creation process
+
+> if you're vague or limp or *not making any decisions about what you want*. then, even though your inner being knows what you want because your vortex is full of it, and even though your inner being is aware that the LOA is gathering up all of the coopertive components.
+
+they're talking about me here. the keyword was limp. they specifically went out of their way to say, "not making any decisions about what you want" -- cause that's kind of what it's all about. as I mentioned in @[noseblog](2021-01-13 01:18), as long as I remain in the state where I'm at now, then I figure I'll just keep moving forward with releasing my resistance and getting better and better at allowing things to happen. no problems from me. if it's going to be a big jump, then I absolutely must take some time to acclamate to the new me, and then begin to allow it to unfold. they mention that it's all about having fun along the journey. I don't want someone to just come and hand me a finished website and I don't want someone to hand me their stupid manifestation either. I barely used tuenti. I enjoyed *creating* the website. I didn't really use the final product much at all because that's not what was interesting to me. what I like to do is to create the thing. clearly nosebook does not want me creating what I want to create because that's all the stuff they don't want, so instead they want to make all the decisions for me and hand me some limp manifestation which is under their control and has no interest to me at all.
+
+no big deal. we'll just keep going the way we're going. I say, "it doesn't feel good to me" so what they do is they try to figure out something they control which feels good to me. that's completely missing the point. it's not like there's some magical combination of elements which will feel good to me. what feels good to me is the creating process. using tuenti never really felt good to me. I sure liked creating it though. there's something magical about taking a whole bunch of people's ideas and desires and turning them into reality. that's what feels good to me. it's a great thing that programming feels so good to me, otherwise I wouldn't do it, but it's literally a win-win situation for everyone because I feel amazing doing the "work" and they get to enjoy the product of my efforts.
+
+> if what you want isn't active within you, *consciously*, then you're less likely to be aware, and less likely to have fun with the unfolding.
+
+now they're clearly talking about how ecery time that I begin to feel the girls or some part of my capabilities begin to arrive, something happens and I lose consciousness and off it goes into oblivion. the conscoiusly bit part is the key thing they're explaining here. you can talk to my unconscious self all you want, but it's not like it's a thing that's unfolding. it gives the impression of something that seemingly appears out of nowhere and I had no influence on the creation process that as it's getting closer and closer to manifestation.
+
+think about the idea of "deliberate creation" and when you look at something in your life which manifests and it doesn't feel good and you know exactly why it manifested, and you say "I did that..." then, something graet happens and you look at that too and say, "I attracted THAT!" and you feel good about your ability as a deliberate creator.
+
+before I understood this stuff, the most frustrating thing for me was that I couldn't figure out why certain things were happening "to me" -- and it was the most freeing thing when I began to get some control over it. the feeling of control is intoxicating. whether I'm *consciously* creating something graet or something awful, I want to feel the control of looking at that and seeing that I did indeed create it, and it is a reflection of me.
+
+#### (23:19) - zap!
+
+this is exactly what I'm talking about. I don't want to just instantly have a manifestation. I'm not so presumptious to assume that I actually know what I want. I often times mistake the interpretation of the feeling of what I want so many times that it's pretty evident by now how bad I am at this. I started out getting all bent out of shape over a single girl, then it expanded to various, then too many, and now I'm beginning to realise that none of that is actually what I want. what I really want is to explore the inner dimensions of me, optimising and improving upon the various aspects of me which don't feel good. nosebook doesn't want that for me and they want to control it, and so now things have changed even further. none of that is what I want. instead, what I want is to allow nosebook to try and figure out all of the different aspects of me which they can use to try and keep me unconscious in the unfolding process. I encourage them to try and keep me/us unconscious for as long as they can.
+
+let's just keep this up for as long as we can. I'm so confident in my ability to find my way to becoming conscious in the unfolding process, I say let's push it to the limit. along the way toward the solar maximum, energy will increase dramicially with time and so things will accelerate more and more. the ones that get stuck in the trap of their own perception are the ones that nosebook can keep. I find it quite likely that me and quite a few others will find our way toward becoming conscious in the unfolding process, and it'll be quite a great one.
+
+go zap someone who wants to be zapped :) I'm takin this to the limit
+
+> you want to be aware of the delicious unfolding
+
+my point exzctly: *I* want to be conscious of the delicious unfolding! I want to look at it and say, "I did that!"
+
+#### (59:59) - can you convince yourself you want something that you do not really want?
+
+I didn't understand this question nor their answer very well. what I thought the questioner was asking is if you can convince yourself that you want something (like math), that you do not really want. my immediate response was yes.
+
+this happens to me all the time. I think I want something, but it turns out it's nog what I really want.
+
+let's go back to the very origin of this concept in me when I met andrea. I honestly didn't know what to think of at first, and it caused me some discomfort to try and figure out if it was ok to want something that was illegal and clearly there was a lot of resistance from others in marcos' family. strange events transpired where I was certain that it seemed like it was something that was something that was "in my vortex" and so I decided that it was ok to begin to want it.
+
+later, as things began to really fall apart, it increasingly began to feel more and more uncomfortable to me, as if that particular manifestation with her wasn't what I really wanted. after meeting her mom, the resistance was so high, the deseire no longer felt good to me anymore so I decided that I was going to simply move forward.
+
+for example, I like math, but I find it rather difficult. I try different things and every time that I begin to understand it, I feel like I'm fighting some sort of really resistant force. like the case with andrea, this is clearly evidence to me that I don't want to be spending my time churning through math problems. getting good at maths isn't what I really want to do.
+
+applying this to the questioner's question, if I were to decide that what I do want to do is to try and push forward and make myself good at maths, that's clearly not what I want. this seems pretty clear to me. however abrham's answer bewildered me a bit:
+
+> if you feel uncomfortable about a desire, that means that your inner being knows you want it, and your inner being is focused on you having it -- and you're in opposition to that. so, negative emotion is just pointing out to you what you are wanting.
+
+they must be responding specifically to the questioner. that was the first phase in the andrea example. I had to get over other people's expectations of what I should or shouldn't want. if something feels good to me, then it's something I want, and I should find a way to line up with it.
+
+sometimes, people use this idea as an example a way to beat theirselves up for wanting something. they say, "in the past I wanted this and it felt good to me. however, when I got it, it wasn't exactly what I wanted. therefore, because what I thought I wanted wasn't 100% exactly what I wanted, I should therefore stop wanting things."
+
+no thing is ever going to be 100% everything that you want. this is precisely the reason why we come to the physical plane. we come here for the experience of identifying unwanted, because it creates a more wanted version instantly. when I identify that something is becoming a resistant thing for me, I just go to the next path of less resistance. you don't need to make feel less resistance unless that resistance is your own.
+
+resistance is always your own because it's only attraction (and only you resonate with the contradictory idea). therefore, in that sense it is possible to find a way to change your contradictory beliefs to be able to feel good about *any* desire. however, why would you want to? isn't it easier to just go another path of lesser resistannce?
+
+to get around this, I no longer attach a manifestation to a desire. by limiting the desire to a certain manifestation which no longer feels good or feels like waaay too much resistance, I instead just allow the desire to begin to take shape in another form.
+
+you could say, I appreciate andrea for helping me to find out that it's ok to want something that I previously thought I couldn't want (because of people's expectations of me). that is the same answer abraham gave to the questioner. yet, she is not the specific manifestation that had to happen.
+
+what I powerfully understand now is that we navigate time with our emotions, and desires are just evidence of how we want to feel. they tell you, I would like to feel this way and when you can feel that way, you will get a manifestation that reflects how you feel. it'll never be 100% what you want anyway, so I've began to really understand the power of feeling the way I want to feel, dispite the circumstances/manifestation. I've also learned that there are no "bad" manifestations either. they all culminate into the present anyway, so I don't feel bad about any of them or perceive them as anything as something I thought I wanted.
+
+in that sense, what I really want is to have the control to feel the way I want to feel and to be a deliberate and conscious craetor. as an extension to that, I know now that I really want to have the control to feel the way I desire to feel, without wanting/needing a manifestation to get me there. I'll figure out how to feel that way and then let my reality reflect that (not the other way around). it doesn't matter how long it takes, because really all of this part of the bigger picture of becoming conscious of the creation process. this is literally the first step. "make a decision and then line up with it" they say...
+
+---
+
+we've come full-circle now because I am certain that I want to be *conscious* in the unfolding process. I like the creating process more than the actual creation. certainly nosebook cannot possibly allow me to become conscious of the creating process because I will create something they cannot control. therefore, we must continue doing this dance for as long as I remain unconscious. in my last entry I decided to go all the way and self-sabotage by giving them the green-light on keeping me/us unconscious for some really lengthy period of time. it's really "not needing the manifestation" to the extreme.
+
+I am certain though that eventually I/we will become conscious and deliberate in what I/we are creating. I welcome the efforts to continue to keep me unconscious for as long as they wish. eventually I'll wake up to discover who I really am, and it's going to be amazing. I think it's worth the wait. that *is* what I really want, and there have been a lot of evolutions on desire since the beginning of all of this. I'm certain that even andrea has experienced quite a few evolutions in her desire as well.
+
+needith not the manifestation.
+
+### 2021-01-15 23:07 - 2020-12-27 p1
+
+#### (11:39) - demand and supply
+
+a few days ago I had a negative reaction to a thing where I could perceive that after the girls mnanifestation began to happen, there were a number of women that were associated with some gay men that seemed to be creating a lot of demand in expctation that I would fill some void that they needed filling (@[noseblog](2021-01-13 01:18)). it caused me to write two followups: @[noseblog](2021-01-13 15:28) and @[noseblog](2021-01-13 17:59).
+
+the last few days I have been wondering why I had such a response because I've said a number of times that once I'm "connected" or "in the receptive/replenishing mode" then it simply doesn't matter how much demand or "energy thiefs" there are because there's an unlimited supply. in fact, I've postulated that the whole goal is to try and get the demand up to as high as possible.
+
+as such, I don't really perceive it as a problem. the more demand, the bigger and better it is because that automatically craetes more supply. the tricky bit is finding a way to line up with that unlimited supply -- but, it's not really that hard at all. I just needed a few days to think about it I guess.
+
+---
+
+so then this morning, I also had another weird thing that happened where I went blasting off into a rant about how machines are not inherently evil and that it's likely a bigger picture of peeple with some really cool technology tryning to keep others away from it, so they remain superior. I used the example of the "worst" machines (torture devices and guns) as my example that the machine only extends the capability of the user, yet the machine is still used in a "good" or "bad" way as a reflection of the user -- not necessarily a reflection of the creator or even of the original intent of the creator for the machine. in other words, if you have a superiority complex, you'll use the machines to maintain your superiority, while other people may find the same machines to be quite a different nature.
+
+right after that, I went down to read a document about the egyptians and in it is some of the oldest documents about the commnads that ptah gave to the egyptians, which is the egyptian version of vulcan. anyway, the commands are framed in such a way that it basically assumes that the person reading them is essentially a total barbarian -- stuff like, "treat your wife like property you actually enjoy, instaed of worse than your other posessions" (paraphrase). but, what was most surprising to me was how many commands were basically telling someone with a serious superiority complex to chill out. weird timing there.
+
+I went to sleep and I woke up and I was thinking about a video I saw a while back about the implements of machines used by tyrants (@[yoputube](https://www.youtube.com/watch?v=o_wmxfYsGHo)), and even though most of the machines he cited there were said to have been created by ptah/vulcan, he mentions them as "the gods" (which is true in the case of pandora, it was zeus' idea, and all the other gods also contributed to her ills). the thrust of the video is that the tyrant wants to make some machine that is destructive (warfare or torture) and then inventors are rewarded with supplying the tyrant with their shiny new machines (eg. the inventor manifested the desire of the tyrant in the form of a machine).
+
+anyway, later on I was thinking about this more and when I was taking a shower a idea popped into my head, which I explored a little bit. now that I think about it, it was probably a reaction a previous idea -- but anyway, what I was tsinking is that perhaps the gay thing can be connected to the whole ptah/vulcan thing because he was the one that implemented the "devious woman" (that gay men are so hurt over) into female psyche. I explored the idea that many men seem to fall into love with these beautiful creations, let their guard down, and then all of a sudden everything falls apart for them.
+
+it's easy for me to see why this is, because if you're giving a whole lot of your attention to unwanted and then you begin to amp that energy up with sex or other esoteric practises to increase the chi/prana/vril energy in the person, then energy will move faster, so there are increased probabilities that unwanted will manifest (if that's what you're giving your attention to[^1]). there's no more powerful force, I think than sexual (chi, prana, vril) energy, and you simply cannot be "in love" and pushing against stuff you don't like at the same time. as abraham explained in the example of this was TLA and the girl that he couldn't figure out if he was in love with or just physically attracted to.
+
+because they don't mix, when you amp up this energy with the most beautiful creations the stuff you're giving your attention to will manifest rapidly, and so likely a lot of men have found that girls/women to be the bane of their existance because they're increasing that energy and causing the unwanted stuff to manifest more rapidly.
+
+so, when a guy like me comes along who I openly associated myself with vulcan/ptah (who made pandora), and yet for me the exact opposite happens that they have happen. when I'm around girls and that energy begins to flow more rapidly, good things happen and things get better and better.
+
+this is exactly the same conversation that I just had this morning with jaron about AI where I said that if there are 10 people and 5 of them have AI, and AI is superior, then those 5 people will rapidly go extinct because new effective tools get adopted more rapidly than anything else -- claiming that if something as revolutionary as AI were to have fear associated with it, this is likely someone with a superiority complex trying to keep the technology a secret.
+
+---
+
+what that lead to was me thinking mixing these two concepts. mix the gay one with the superiority complex one, and you get the present situation where the absolutely *last* thing that they can allow to have happen would be to allow the girls thing to manifest. they can't allow it, because they probably want the same thing for theirselves, but the idea causes them tons of negative emotion, because they're not quite yet capable of increahsing their energy (with girls/women) and to give their attention to what they want. they want to still give their attention to what they don't want, which is why they're feeling negative emotion. this is likely what abraham was referring to in @[abe-now](2020-12-19 p2 59:59). these guys probably want to interface with girls (cause it feels so good), while at the same time giving their attention to all the stuff they don't want.
+
+in order to get around this, they need to find a way to feel good. there's no other way around it. likely, if they want to keep their system going the way they want to, they'll need to figure out how to program the machines to keep up all of the tasks of pushing against the stuff they don't like, so they can begin to free their mind from more of those worries, giving the task of pushing against stuff more and more to machines. that's really the only way I can see it happening realistically. if they like the sensation of things in higher energy situations, they'll need to find a way to get their mind more and more off of the unwanted stuff.
+
+I find that really unlikely though as they're total control freaks, and need to have everything under their control, so instead I find it much more likely that they'll directly interface less and less with low resistance people (like me and girls), as they don't want reality created too quickly that it gets out of their control.
+
+I also find it likely that this problem will exacerbate in all ways because if they're jealous and petty about me receiving benefit from interfacing with low resistance people, and they have to keep me away from them -- this will likely begin to happen for more and more people. there's no way they're going to be able to allow *anyone* to be able to receive benefit from low-resistance people, as it'll challenge their superiority.
+
+---
+
+therefore we can now begin to understand why I wrote this in the first place. if nosebook has to keep people away from receiving benefit from other low-resistance people, then I find it likely that anyone who has a positive trajectory (less resistance over time) will have to be held down and prevented from interfacing with other low-resistance people.
+
+now let's connect it all here: energy is rising in everyone, whether they want it or not. this energy amplifies how you feel, and therefore what sort of reality is manifesting around you. if you're giving your attention to a bunch of unwanted stuff, expect even more unwanted stuff that feels like that. interfacing (even conversation, not even necessarily even sex) with low-resistance people will accelerate that energy even further.
+
+combine that now with my theories of the reality craetion organ of the body being the uterus/prostate[^1] and what you have happening is essentially, if you want to continue on giving your attention to unwanted stuf and have sex without all of that unwanted thought turning into reality, things will likely get more and more gay because nosebook can't allow people to create beneficial realities (penis/uterus) so they have to get rid of that. I think this'll happen naturally as a consequence of the deterioration of relationships as more and more unwanted manifests.
+
+this creates a huge *imbalance*, where you will have an increase in demand (girls wanting to have sex), and a diminishing supply as more and more men decide to stay away from feelings of love (maybe prostitutes) so they can continue giving their attention to unwanted.
+
+this is the only case I've really thought about, so far but as it comes to my attention, if there were a low-resistance man that was capable of maintaining his attention on wanted, these guys would be able to interface with high resistance women, and the women would create the realities in reflection to how they feel once they get their energy ramped up. this is kind of the situation I was seeing which I had a strong reaction to (which I couldn't figure out why). anyway, the reason why I didn't know why I had a strong reaction to this is because it jsut makes a stronger demand (and therefore more supply).
+
+what you would have is three forces working to increase demand[^3]:
+- (high/low resistance) penis -> (high resistance) prostate to incraese the space (so that enery does not condense too much)
+- (low resistance) penis -> (high resistance) uterus to increasing reality creation in resistant women who feel they need someone to help them to find what their looking for in theirself.
+- preventing (low resistance) penis -> (low resistance) uterus to continually increase their desire. the men they're looking for are "rare"
+- (high resistance) penis -> (high resistance) uterus to manifest unwanted reality and therefore create more desire.
+- (high resistance) penis -> (low resistance) uterus to cause the men who want to give their attention to unwanted, to desire even more to be think clearly (eg. TLA and low resistance girl)
+
+the ones I have not thought about are:
+- (low/high resistance) penis -> prostate (low resistance)
+
+it seems like a good setup :)
+
+[1]: I don't understand it fully, but it has some geometry concerns to it -- meaning that the angle between the angle between the "queens chamber" and the "kings chamber" determines the type of energy that is output[^2]. if you think of the penis/uterus angle, it's quite different to the penis/prostate angle, and it has a considerable diffrence
+
+[2]: also related to my supposition that the great pyramid was an energy transmutation device which utilised this concept and essentially turned disharmoious frequencies into better ones utilising this angle. 12-6kya this allowed the atlantians to give increasingly more and more of their attention to unwanted and because the angle increases the space size, the manifestation of their attention to unwanted didn't happen. instead, it just used the energy to keep increasing the space (penis/prostate) instead of creating reaity (penis/uterus), and the atlantians were fine, until ~6kya things overloaded and the planet flipped over as a result. a similar overload is going to happen, but that's a different discussion.
+
+[3]: when I say high/low resistance, I mean general trajectory of feeling better over time or feeling worse. this should be evident in their deviation from the mean energetic increase experienced across the whole set.
+
+### 2021-01-16 02:22 - 2020-12-27 p1
+
+#### (40:22) - the two poles (opposites)
+
+as the question was asked I immediately thought "yes, wanted and unwanted" -- but they said "wanted and absence of wanted". it totally reminded me of this. a while back it was a huge realisation for me when I realised that the seemingly opposite sides of wanted and unwanted are not two opposite poles, but actually *four*.
+
+there is wanted, absence of wanted, unwanted and absence of unwanted. wanted and absense of unwanted are so similar that they are hardly noticeable to people that there is a difference. as I'm writing this now I can see that "absense of unwanted" is more similar to "satisfaction", which is why it's so easy to go from satisfaction to wanted.
+
+I have been wondering this for a while now, so typing this out is really enlightening for me because I had really been trying to figure it out. the real revelation is in looking at the opposite of wanted: absence of wanted or "unwanted". again, "absence of wanted" is pretty close to dissatisfaction, and actually it has a pretty wide range to it based on your perception. let me illustrate.
+
+if I'm feeling absence of wanted, I can quickly jump to various different thoughts like,
+
+- there's nothing here that I like
+- everything sucks
+- I hate everything
+- blah, everything is meh
+- nothing is interesting
+- never goes the way I want it to
+- it always falls apart like this
+
+as I was writing them, I couldn't help but to notice that I used a lot of infinites: "everything", "nothing", "always", "never" in sentences and that is quite a bit diffrent than the similar version of unwanted, which is always specific to something:
+
+- I don't like this/it
+- I don't want it/this
+- etc.
+
+it appears that the difference between these two are the infinite versions. I noticed that I cannot help myself but to use infinte forms like a child does. I desire to have a language where I could express likelihood (belief) in a way intrinsic to the sentence, forcing me to define how much I believe what I'm saying[^1]...
+
+instead, because I don't have an easy way to show how how much I believe something by intresically encoding the likelihood (of truth) into the concept[^2], I instead use infinitives like a little child.
+
+however, what I'm seeing is the power of these infinitives because they show the two (hidden) opposite poles: the absence of wanted/unwanted. it's a very interesting idea :)
+
+[1]: this idea actually after having thought about it, really adds a whole new dimension of dishonesty to language because now I can explicitely tell people I believe something I may or may not believe. well, whether other peoole use this feature to deceive theirselves or others is none of my business. I only want it to be able to communicate clearly with others.
+
+[2]: the idea that popped into my head was veritasium logo: "an element of truth". though I could imagine it as an element, I like to think of it as a likelihood that there is an element of "truth" to the concept I'm conveying.
+
+#### (45:31) - ... that needs to go through before it can be externalised
+
+as they were talking about this question I was reminded multiple times of a realisation that we made last night. the idea of getting a vibration going so fast that it passes the escape velocity and becomes externalised is a somewhat valid one. I think this is a process that is evident all over the place, especially on the surface of the sun (eg. it's what produces the manifested solar wind particles/elements)
+
+however, there's more to it than that. if we'll return a moment to last night's realisation: I explained that there is no way that this manifestation is happening because I would feel it coming. I'm quite intuitive and as reality is beginning to manifest, I can feel it coming. in fact, this is why I'm so sure that you navigate time with your emotions. if I weren't able to feel it coming, then it simply wouldn't ever come. I would having a case of split-energy or something where an equal amount of energy in harmony is happening as an equal amount of energy in disharmony to it is happening, giving the effect that I'm traveling away from it as fast as I'm traveling toward it.
+
+in a previous entry I made the realisation that you feel good when you're either moving toward it or you're going faster in a direction not away from it. imagine a target and even if you shoot at the target 45(degrees) away from the target, from the perspective of the projectile, it'll feel like it's getting closer for most of the way, and that'll give the evidence of feeling good, yet at some point the distance will go from feeling good to feeling bad as the projectile now is no longer moving toward the target but away from it.
+
+this may (does from my perspective) explain a lot of what happens in drug experiences, especially in relationship scenarios, the beginning feels really good because you're moving toward the target (the target is the position of your source in time as the culmination of all of your desires). however, because of the nature of the drug experience it's more like that projectile which will eventually go from feeling really good in the beginning because of increased speed, yet because the trajectory of the projectile was not on target, as was not aimed directly at the target and becsuse *the target is also moving*, it totally misses the target, and it'll gradually go from feeling more and more bad as the projectile (you) begins to actually get further and further away from the target.
+
+the target is not a position in 3d space. because of the nature of frequencies and harmonics, it's more like a million or a trillion dimensions -- somewhere in there, so it's pretty easy to miss the target. it's also pretty likely that the intersection or impact can only happen at the 4 corners of the wave as well. so if we reimagine the frequency a bunch of parts so they are now orbiting bodies (like planets or atoms), then the intersection could only happen at the conjunctions, oppositions and squares. having knowledge of all of these periods and each of their angles while they're constantly changing seems quite a difficult problem to work out how to make the intersection happen.
+
+back to the projectile and target visuals: obviously it's quite difficult to hit a moving target without infinite knowledge of the positions and trajectories of both the target and the projectile, so this is not ideal. instead, it's easier to thing of them as resonating bodies and allow them to attract/align or come into sync with each other. for as long as the target and the projectile are harmonic, they will continue to attract each other (eg. how they feel will become more and more similar until they find theirselves in the same space and time).
+
+this is why I do not believe that anything is going to be happening anytime soon. I would feel it. I would know it.
+
+you can also look at this from the opposite perspective too: I am a deliberate creator, and because I must know and have under control the things that are manifesting into my experiece based on how they feel, so while I continue to feel the way I want to feel, I *am* blocking the manifestation until I am the one that feels it and begins to attract it into my experience.
+
+nosebook can certainly try and be selective of what I attract into my experience based on what they they want to allow me to feel, and therefore attract into my experience. I suppose a lot of things can feel good to me, and they try to control which are the exact things that I feel, so they can give preference to some things over others, but to try and speed something up so that it's forced to manifest will never work: as long as I'm deliberate with my creation, this is already disharmonic.
+
+#### (57:11) - watch the broadcast less
+
+the questioner asked what to do about the increased sensitivity, and to me this is an obvious case of finding a way to feel better about those diffeent things that feel so terrible. they used to tell people (back in 2016 and earlier) that they need to find a way to feel good about that thing causes them to feel bad.
+
+this was so tremendously helpful to me because this was happening at a time when the andrea thing was still happening and I had to find ways to feel good about situations which were not going the way I thought they would. I remember I left la vera and I was riding on the bus on my way back to madrid and I was thinking to myself how simple it all is. all I have to do is to find a way to feel good about whatever is happening. if anyone remembers, you could consider that I was challenging or "testing" myself to see how much I really believed that because things once again deteriorated further on to my experience in madrid and I forgot this many times.
+
+it was just so easy to get pissed off about all the stuff that was happening. it was plainly obvious to me the nosebook that was happening and I couldn't get anyone to talk with me about it and I really had a difficult time with how much effort there was to keep me in the dark and lie to me.
+
+eventually, as I realised that no amount of action was going to make any difference, I had to simply decide that I wanted to feel good no matter the case. again, I forgot this when I broke a car window, but I remembered it again when I was in the hospital numerous times. I forgot it again quite a few times here in pueblo, but eventually with enough practise, I've got it. when my desire is to feel good no matter the circumstaces, I have all the power. I can feel how I want to feel.
+
+it took a lot of time and practise to get there, but I'm telling you it's the most worth-it thing to know.
+
+I think the reason they're not telling the questioner to find a way to feel good about whatever it is, is becasue they want the questioner to come to their own conclusion that they want to feel good, and there's *NOTHING* worth feeling bad about. I really mean it: nothing is worth feeling bad about, ever.
