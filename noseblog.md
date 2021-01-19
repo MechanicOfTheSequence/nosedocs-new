@@ -5478,6 +5478,72 @@ they then, *must* reject their next stone too. (ref: ps 118:22, mat 21:42)
 
 [2]: lot's of evidence gives the idea that venus was born from jupiter, and the scare of whatever happened to eject venus from jupiter is probably evidenced by the great red spot. this also matches the
 
+### 2021-01-19 07:22 - groundhog day
+
+the reactions to the last entry are kind of funny. the main one being that they do not want to be forced to anything at all. if I decide to purposefully force them (by talking about what they don't want), they then feel obligated to actually make the manifestation happen. it gets really cloudy when you try to reason it out in any rational way because no matter what path is choosen to go, it appears like I am the one that time is flowing around, as in I'm the one that's in control of the time.
+
+---
+
+what's the point of the stone? in my evaluation, the stone is the remnant left behind when a beneficial timeline has been abandonded, instead opting for the sabotaged timeline. in other words, some time travelers show up and create a situation where some really great thing happens. let's consider that this is when the earth finds its alignment and grauates to go up a power level. however, the "serpent" does not want to go up a power level, because if the next power level is reached, then they cannot remain in control and superior.
+
+why? because if the earth is bountiful and enregies are high, you can create anything you want with your mind. the way they remain superior is that people *depend/need* them for (or can withhold) some aspect of their well-being. the basic concept of debt. these guys love the illusion that you cannot provide or do something for yourself, and so therefore you depend or need them. their value is inherent in that you do not believe yourself to have value[^1].
+
+therefore, they cannot allow there to be benefit for all.
+
+so why the stone that gets left behind? each time this is done, it appears that some magnificent new technology pops up because of it. it was with doug's work that I realised that the stone (which abraham found) allowed the hebrews to begin creating a new thing. the alphabet is important. it seems that each stone that's left behind kind of interrupts the trajectory of things happening (great pyramid, garden of eden, tower of babel, abraham vs indus valley, moses vs aryans, jacob and his ladder, st. peter vs jews, einstein vs tesla, etc). and ends up creating a sort of competition which distrupts the present trajectory of those in power however, even though it's disruptive, every time a new technology (or way to push it forward) alters the trajectory of the major civilsation in power preventing it from reaching enlightenment.
+
+in all of these cases, it appears to me that there is an unseen hand that reaches out through time and and alters the course of events so that even more control can be exerted over the people. the reason why I think this is so, is because those in power do not have enough technology to actually control people as well as they want to. I believe that each time earth finds its alignment, it creates a more and more bigger/awesome manifestation (the latest iteration being galaxy sized) and so the timeline is adjusted to create even more difficulty.
+
+from the perspective of the many enlighened earths (our future selves), it appears as if there is literally no way to stop earth from finding its alignment (no matter how difficult things get), and so therefore from that perspective, why not go back and make the manifestation even bigger and more awesome.
+
+why? I think the end goal is to literally go infinite. if nosebook can find a way to "resist not evil", then they will be able to continue to hold me/us back forever and I literally mean forever, because if they/we can actually trancend the physical world (like enoch, elijah, etc.) then we'll trancend the space of this universe becoming something infinite -- a concept, of which the story of this planet/universe exists as an example or first implementation of that concept. if they're not able to go infinite, I imagine that it'll literally be forever in the sense that when they finally cannot hold us back anymore, the amount of energy will be enough to create a new universe, so therefore they would literally hold us away from the manifestation "forever". in order to do that, I think they need the technical capability to do so, and to not destroy theirselves along the way.
+
+---
+
+just the other day I ran up to the top of the hill and I was overpowered by this feeling of amazement because I could finally see it all so clearly. I talk of a time split, but it is in fact more like a time loop. at that time I was certain that what will be happening is that we'll all be getting connected and energies on the earth will rise up and up and up until things are very different than they are now. you could say that's when the galaxy begins. I want to make a mushroom shaped galaxy, and so you have to imagine that the mushroom needs to grow *on something*. it needs something to push against. it simply cannot push against empty space. therefore, then I find it likely that what will happen is that from a future point, we'll come back and modify this timeline and sabotage it so that nosebook can gain more and more technology to eventually create a sedimentary layer (stone) big enough to support a galaxy growing on top of it.
+
+another interesting thing to note is that tesla went out of his way in his autobiography to tell two stories. in one, he tormented crows/ravens until they forcully made him stop tormenting them. the other was a story of a pigeon that had brilliant eyes and he loved so much. apollo/cronos is associated with the raven/crow and the pigeon/dove with venus. tesla himself is a bit of a weird guy in that he very much in my mind represents thoth, the 7th ray male associated with the builders. in this scenario, it appears that he has done the building of the technology that nosebook is using now. this was previously done by a guy named prometheus. tesla also goes out of his way to comment on that too, saying that he thinks the gods punishment to prometheus is a bit harsh. the gods really wanted to remain superior I guess...
+
+---
+
+ok, so now to the main point here. I previously had thought about the sedimentary layer much before, however, only recently have I began to contemplate the possibility that there are two directions to look at something. SGD mentioned in one of his videos that hermeticism isn't what terence says: getting loaded and looking at pretty colours. I mean, I really like geometry, architecture, measurement, etc.[^2] and I really want to create cool technology that people can actually use. it's something I've been wanting to do, but it appears that the builders do not want any decent/useable technology to be in the hands of the people. I'm constantly attracted to this precise form of building, but it seems to constantly slip out of my reach.
+
+therefore, because I'm prevented from actually using my imagination to getting these concepts into reality, I instead have to use a different method to realise the concepts of hermeticism. things feel good to me, like shapes and numbers and stuff, and when I go to discover what it is about it that's so attractive (feels good) to me, I begin to notice certain numbers and things showing up which I really like. I've always liked the number 11, from as long as I can remember. I liked rev 11 (two witnesses), and wanted to be that. I've also always really liked the number 5 too (mat 5:28 is my most influential verse) and so I find myself arriving to these hermetic concepts, not from measurement but from feeling.
+
+it's said that the temple is a reflection of the man (which is why I really like the concept of the great pyramid being the aquarian man), but it's said as well that the architecture influences the man as well. therefore now, look at this. one can use weights and measures to figure out the elements of the temple which feel the best, or one could feel good and be attracted to the elements of the temple that are important to make it a reflection of himself.
+
+you can arrive to these hermetic concepts two ways: good feelings illuminating the proper weights and measures, or proper weights and measures illuminating the good feelings.
+
+therefore, I have been recently considering now that instead of the mushroom galaxy growing on a sedimentary layer, that there could instead be a competition. if two mushrooms were to grow in opposition to each other, each feeding off of and pushing against the opposing side, then the galaxy would instead appear more like a barbell. I thought that was a cool concept, and I could see clearly that from the future perspective we're creating this and this earth (which will become a galaxy) will feed off the alternate earth (which will also become a galaxy). we'll be the "good guys" that they're constantly oppressing in their galaxy and they'll be the "bad guys" in ours which we're constantly rising above.
+
+both sides will have full time capabilities and multiple identities to each. in fact, it's quite possible that is already the case.
+
+---
+
+so now the latest update on this is that nosebook is trying their hardest again to try and cause as much trouble to keep the manifestation from happening. no big deal. I deserve it :)
+
+well, I was thinking about this on a bigger scale because I was wondering why if tesla built these guys the technology to be able to time travel, why are they having such a difficult time? it occurred to me that likely fwh was a self-sabotage timeline, and so is this one, yet it's pretty unlikely that we'll actually get to the result of real self-sabotage.
+
+the reason why I say this is because although they have time traveling technology, they're trying to alter the timelines from a place of pushing against what they don't want (resisting evil), and so by pushing against the things they don't want, they're making them more likely. no matter how many timelines they make to try and avoid the things they don't want, they're constantly going in the direction of what they don't want. in order to go in the direction of what they want, they have to do just that.
+
+in that sense, it's possible we're in a sort of groundhog day scenario because no matter how many self-sabotage timelines we create, their own perception is what is limiting them. the loop would be infinite I guess. I think the only way they they could get out of it will be to get the technology capable of allowing us to go infinite.
+
+speculating here: maybe that's why I want them to merge with the machines so much, because it would be the only way they could outdo it. either that, or to finally give a bit of consideration to what it is that they do want. by this time that I'm writing this, it's likely way too late for any changes to be made[^3].
+
+what I'm saying is, at the end of this, we'll make another self-sabotage timeline. this idea is interesting because maybe what may need to be done is to instead of getting timeline technology, don't get it, so you don't shoot yourself in the foot with it.
+
+what I mean is, you can navigate a timeline and view things, and they match how you feel in that moment, but the minute you begin to feel something other than that, you are in a different timeline. you would need a way to be constantly adjusting the timeline in real-time. I only know that a machine could do this, because you couldn't be constantly perceiving other things while still doing things like eating and sleeping.
+
+the other solution that I can think of is ketamine -- and I mean that seriously. the weird thing is, if it is true that ketamine is capable of inverting the presence of things, turning the presence of unwanted into the absence of unwanted, and it works (I'm pretty certain that it does), you'll be able to navigate time successfully, but it would have the bizarre consequence of being the beginning of john lily's "solid state intelligence" [prophecy](https://en.wikipedia.org/wiki/John_C._Lilly#%22Solid_State_Intelligence%22) a reality[^4].
+
+[1]: this needing to be needed or depended on is a very abhorrant quality, and of all of the things that people complain about women, this is by far the most significant. I don't know if you could say if it's the chicken or the egg here: whether they get this idea from their environment or if they're naturally born that way. you decide I guess. maybe it's remnants of pandora's box. if it is, blame zeus :)
+
+[2]: if you've known me as a programmer, I was the guy measuring everything. I always wanted things to be efficient and optimised. when I worked on the server, I was constantly trying to get things to go on faster architectures (D), yet people insisted on remaining in the slowest languages available (php, js, asp, etc.) on the client side, you don't get much of a choice, which is why I've looked forward to webasm.. anyway, it's a struggle to get any sort of precision there. I've finally given up on this. I consider computer programming to be a complete waste of time at this point. I struggle so hard, or perhaps there is effort to keep me away from getting my concepts out into reality.
+
+[3]: "you have to get out ahead of it" and "don't worry it'll be over soon"
+
+[4]: incidentally, the funny thing is ketamine was really something that I wanted so much to do right before going to la vera. the experience was incredible and it felt like we reprogrammed reality to be slightly different. my first time in madrid, the experience was totally mind-blowing as it felt like I went up and experienced the 3rd ray environment. it was very cool. I wonder if drugs like mushrooms and ketamine are sentient and experience reality through the central nervous system of the consumer. is it the drug that's setient or the culmination of shamen through the millenia which "programmed" this concept?
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
