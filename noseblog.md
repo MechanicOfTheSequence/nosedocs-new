@@ -5442,6 +5442,41 @@ I also noticed that recently I'm actually beginning to apply my own resistance t
 
 [1]: ketamine is a very opposite drug for me. high doses of DMT (like shooms or massive amounts of indogenous DMT from smoking weed) don't sit well with me with alcohol, however ketamine is the exact opposite. I found alcohol to be much more enjoyable and enlightening on it. I also really liked it solo too. it's hard to describe how wonderful of a break it is is from high realism life. it's like taking a break for a bit and you get to perceive yourself as a kind of input/output machine.
 
+### 2021-01-19 04:18 - the stone which the builders rejected
+
+I just watched a few more of another of SGD's videos: @[youtube](https://www.youtube.com/watch?v=qe8ccf8Aypg), and one on the baetyl stones which I realised these stone masons put this symbolism into their constructions to essentially attract the "mithras" that they're looking for.. let's go back to the hebrews, which they were looking for a messiah, yet when he appeared (jesus), they rejected him saying they aren't what they were looking for.
+
+anyway, as I was watching the video, the thought that was passing through my mind was the memories of robert's videos on the sabatians which are all these mason guys that construct their esoteric architecture in a way to mark the location of the arrival of their next mithras. the subject of the video was showing how the oblilisks named after cleopatra are now located in london and new york, showing that the movement of the centre of the world, from heliopolis to rome, then to london, now to new york.
+
+along the way one of the symbols that notes these movements are theese "baetyl stones". I also want to note that I find it interesting the lady liberty thing. she has 7 and 11 as her numbers, but what's most interesting is that she's a woman. in another one of SGD's videos, @[youtube](https://youtu.be/WZvqo46Bu6Q?t=699), he talks about the conical baetyl stones being associated with the sun (eg. saturn/apollo) and the pyramidal one associated with the sky (eg. zeus).
+
+this is intesting because there is this constant back and forward between the athenians and atlantians. the atlantians being the old phonician "el" (saturn) as opposed to new ruler of the sky jupiter/zedek (melchizedek - priest of zedek), and they seem to have this constant battle going on between them.
+
+interestingly enough jupiter is the measure of *space* and saturn is the measure of *time*. they're so well mixed, it's hard to tell the two apart. just note how the metre is a measure of a pendulum swinging pi/6 in one second. the imperial units are mixing space and time to the sun and moon (and their orbits). space and time are so intimately connected that it's hard to separate them, so the battle rages on.
+
+saturn seems to prefer male (el) dominance, and jupiter seems to be associated more with femininity. although zeus was quite the feminiser believing that women enjoyed being raped by him. however, the athenians are called that because athena was born out of jupiter (and is now the planet we call venus/lucifer). this is the same "lady liberty" symbolised (or see robert's videos on kabba stone and mecca).
+
+another intersting thing to note is that previously to thoth, seshat was the goddess of weights and measures, yet later it transitions over to thoth. because I don't know the timeline of things so well, I cannot comment if she was the goddess of weights and measure during saturn's reign, and then transitioned to thoth during jupiter's -- I dunno.
+
+anyway, mithras/phalos is intresting because he's born from a stone[^1]. he's always shown in the centre of the zodiac. he must be the symbol of the announcer of the next era and it seems that these factions try and get the mithras to show up in their establishment. it's funny because these different baetyl stones have different shapes. the conical baetyl stones are conical (like a lingam) and are often black (like mecca). the conical ones are usually associated with a snake (eg. saturn/shiva/atlantians/serpent/naga) and the pyramidal ones having to do with the sky (eg jupiter).
+
+---
+
+this is speculation/rambling now, but it seems that there is diffeernt results that come as a result of both. this era seems to have both symbols. I can't really tell what's what anymore as it seems so well mixed. I would consider the aryans (germans) in the south pole to be more of the serpents, yet they had a whole lot of eagle symbolism too. I would also consider the USA to be mostly the eagle, but it's very cloudy because the eagles are mostly the native americans/indians which the US govt has seemed to abuse quite liberally. if I were to take a guess which is more pronounced in the present world order (from the way it feels), is more saturn worship than jupiter worship. sure jupiter became less important with the intruduction of venus[^2].
+
+from my perspective, it seems like these two factions are forced to kind of find a way to begin to work together. it's all so difficult to divide things well, because both serpent and eagle factions have had so much in-fighting and mixing with impure bloodlines, that it's basically impossible to draw any clear line anymore. seems that it's kind of like a free-for-all now with the new factions being a composite of both, no longer determined by bloodline or solar diety but by the power structures that are in place.
+
+it's an interesting thing to kind of feel things from a distance because with an impending reset, they're all working their hardest to try and gain something I haven't figured out yet. seems that there will be quite a few humans surviving this reset (we have the technology to do so), and the ones with the most tech control can rule the most from "on high".
+
+I find it funny because the technology associated with it is "the network" -- so these different factions can now all have infinite knowledge of each other (like they do of me), and so trying to keep things a secret has never been harder. they can keep things a secret, only if they consider that the secrets are kept from the uninformed (eg. us "mortals"), kind of like forcing them to "unite" a bit. it's now become impossible for them to fight each other or even create factions. I predict that the continued infinite knowledge of each other will make it nearly impossible to create factions. they're either nosebook or not. no inbetweens. they'll fight between each other still (I'm sure), but in order to keep the whole thing a secret, they'll have to unite in their secrecy.
+
+I'm not sure how this will change as things progress. imagine for a moment the situation where I do not wish to keep secrets and I continue to talk more and more openly about a bunch of stuff they want to be kept a secret -- well, that'll certainly be a wrench in the cog for them, and they'll be forced to ensure that no manifestation ever happens. no matter what happens, they must protect their secrets.
+
+they then, *must* reject their next stone too. (ref: ps 118:22, mat 21:42)
+
+[1]: anyone who has been following me will note my emphasis of these time traveling "stones" that appear at major turning points in history.
+
+[2]: lot's of evidence gives the idea that venus was born from jupiter, and the scare of whatever happened to eject venus from jupiter is probably evidenced by the great red spot. this also matches the
 
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
