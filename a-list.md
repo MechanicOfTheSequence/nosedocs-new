@@ -323,3 +323,7 @@ next I watched a documentary on corsica (@[youtube](https://www.youtube.com/watc
 finally, earlier yesterday I discoverd a new channel called [ninth heretic](https://www.youtube.com/channel/UC8OIcUwVRaCE2YoAsfQwjHw). I really am enjoying her content, and in one of the videos I could hear a child in the background of the video and shortly thereafter I began to feel attraction (presumably from her). I went to sleep on it last night and I woke up again feeling it. so, I'd also like to invite her to join in as well if she wants to.
 
 EDIT: man I feel so much better now. before I wrote this I could feel quite a bit of tension, and now that it's written, I feel considerably better. this is beginning to make me consider that a lot of the tension that I feel around this is mostly coming from nosebook. today, I identified quite a few improvements that I can make because things are starting to get more difficult, and so therefore it's causing me to focus a bit more intently. I feel like it's a really good thing. man, I feel a lot better even just writing this edit, as well... :)
+
+### 2021-01-21 20:18
+
+about an hour ago I was watching jaron play a game when a girl on a movie that mom was watching on netflix was attracting to me. I forgot about it, then when I went up to brush my teeth just now, I saw her again and the feeling was stronger. therefore, I conclude that I want to invite her to join if she wants to :)
