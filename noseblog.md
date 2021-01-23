@@ -5544,6 +5544,40 @@ the other solution that I can think of is ketamine -- and I mean that seriously.
 
 [4]: incidentally, the funny thing is ketamine was really something that I wanted so much to do right before going to la vera. the experience was incredible and it felt like we reprogrammed reality to be slightly different. my first time in madrid, the experience was totally mind-blowing as it felt like I went up and experienced the 3rd ray environment. it was very cool. I wonder if drugs like mushrooms and ketamine are sentient and experience reality through the central nervous system of the consumer. is it the drug that's setient or the culmination of shamen through the millenia which "programmed" this concept?
 
+### 2021-01-23 15:44 - the fishmen
+
+since watching @[youtube](https://www.youtube.com/watch?v=OJ37K0SvUz0), I have been thinking a lot about the fish men. I remember I found some more similar fishmen stuff when I was looking at predynastic egypt, though it seems to have disappeared now, however I think it all just now came together for me...
+
+while watching @[youtube](https://www.youtube.com/watch?v=Lrd1O7cJFDI), it just occured to me what is happening here: I have always said that the announcer of the age is one era ahead of the their time. this always bothered me because I couldn't figure out the ramtha thing. he mentions that he was around at the time of atlantis, and his story is interesting. I can't remember much of it at all, but it always sounded to me that the epic battle where he was fighting and killing people so much and got into such a flow that he actually trancended death and gained permanent residence in the astral realm. this is quite similar to the story of enoch transcending human form and betcoming an "angel" (archangel metatron).
+
+interestingly the "fallen angels" have gained quite a lot of lore over the years, but they can be explained simply as astral entities that have "fallen" (incarnated) into bodies, and this is exactly what the sirians (kuthumi) says happened.
+
+anyway, so ramtha (a now astral entity) tells the story of the final battle of atlantis. it's funny because his name is *ram*tha -- as in, the symbol of aries: the ram. he was clearly the the announcer of the era. well, my theory is that at the time of the last battle of the atlantians (talked about in that youtube video), this was happening at the same time that earth had reached its furthest point from sirius and was about to reverse directions and begin to go back toward sirius.
+
+another theory that I have is that up until that final moment, the atlantians had learned how to create magnificent energetic conditions here on earth using stone structures like the pyramids and such. what I believe they were doing is offsetting the growing distance from sirius (and therefore the energy deficit from the increasing distance) with energetic structures here on earth.
+
+however, I don't know if this is cause or effect, but when the energies reversed direction and instead of moivng away from the energy source (sirius), we started moving toward (like solstice), and when that happened is the energy kept rising to become more and more amplified as things slowed down reaching the peak. simetime around the peak (probably a little bit after), it would begin to spring back. it would be like hitting the bottom of the bungie jump, after the direction reverses, it makes a huge rush of energy. this would be when the great pyramid went into overdrive.
+
+at that time the rush of energy was so strong, this is what allowed ramtha to transcend death -- because he was so in the flow he was only getting things in correspondance with wanted. I thin this perhaps made a "time split", as it's unlikely that the whole world experienced this catastrophe. I've always had this mental image in my mind of this peak that goes up really high (when ramtha was killing off the atlantian army), and then when he "ascends", he would have appeared to die or vanish from the physical plane, leaving behind an earth in strife with massive amounts of energy present. obviously with no one continuing to move things forward in the direction of wanted, the muga amplified energies would make the way people feel become manifest immediately. I imagine that after his/their departure the world descended so rapidly into chaos, that things would quicly turn into disaster. exactly like a bungie jump.
+
+this is exactly the same sort of picture that I see when I saw doug's image of the multiple haronics of a sine wave added together to make a square wave: right before the wave inverts directions, there's a pretty big peak before the dropoff. I think the same thing is going to happen coming up here soon.
+
+---
+
+back to the fish man. as robert is explaining, the asyrians/babylonians tell that this fish man came and taught them forms of civilised living. I never understood the fish man, but claro, this guy is obviously the announcer of the next era.
+
+I figure the whole ramtha thing happened when we were in scorpio, and he's the symbol of the ram which is the sign after taurus after the vertical flip (north becomes south and south becomes north). more on that later because I finally figured it out this morning.
+
+well, the fish guy is showing up before they go into aries, so he's perceived as the era ahead (picsis) of the one they're going into (aries). likewise, in my mind at least, jesus was often with the aquarian man, yet instead of getting his vision of aquarius, he became the sacrificial lamb (aries), and we moved into picsis. he too was ahead of his time.
+
+ok, so I was thinking about this while writing this and one of the funny things that I was remembering was that raquel would always call me cangrejito, I think mostly because I always had red skin, but she was quite persistent in calling me crab, making little pincer movements with her fingers playfully all the time as well.
+
+at this point it seems pretty obvious to me that we're heading off into leo (she was born in leon) after the reversal, so like ramtha, a symbol of a ram wouldn't make any sense in scorpio, it doesn't make much sense to perceive me as a crab. I thought that was funny.
+
+so, while I doubt that the guy showing up was an actual fish or merman, it appears that the earth was still quite energetic at the time and people still perceived these "enligtened" guys as the symbolic form their imagination gives them -- just like I doubt they were really 7-headed nagas or dragons -- but instead they were just people like me who had the ability to impress the image they desired to be perceived as upon the imagination of the perceiver (it wasn't only the "serpents" that could shapeshift; zeus had this ability too)
+
+nice. I have more thinking too -- soon.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
