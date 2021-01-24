@@ -1097,3 +1097,30 @@ eventually, as I realised that no amount of action was going to make any differe
 it took a lot of time and practise to get there, but I'm telling you it's the most worth-it thing to know.
 
 I think the reason they're not telling the questioner to find a way to feel good about whatever it is, is becasue they want the questioner to come to their own conclusion that they want to feel good, and there's *NOTHING* worth feeling bad about. I really mean it: nothing is worth feeling bad about, ever.
+
+### 2021-01-17 03:46 - (2020-12-27 p2)
+
+#### (26:56) - manipulating him with my book
+
+as abraham was talking about writing a book about the woman's husband, they were saying "... and you *will* see him with an extra twinkle in his eye, ... etc." and while they were saying it, I could feel mr. motor reeling at how annoying it is for abhraham to be telling this woman what she *will* be doing and what will happen. as that was happening, he was clearly venting behind me about it.
+
+after that they got to the next part after they said there are books (of positive aspects) she could write about him, they said, "and when you tune yourself in that way, you're not tuned to the other (honory version of him)".
+
+let me back up a moment actually because I should explain the setup here. when I was listening to the question, abraham said, "get a book, like this:" [shows hands with finger sizes] and I see a book about that size that looks like one of those mini-bibles and I think it was like yellow or something. anyway, it was like one of those contact books that people had a while back. they said "do you see the book?" and I say, "yeah I saw the book" and they said something like "ok, you're going to fill it with positive aspects of this man" or something like that.. as they were saying it, someweird thoughts were passing through my mind about how I should write positive aspects about derek and stuff.
+
+the context for this is I skipped over sending in the questionaire that they had for 10 aniversary on youtube a few times now, not for any particular reason, but because it feels forced. if it's going to happen, it'll happen just fine without someone pushing to try and make it happen. I feel resistance to it because it feels forced. it's probably not derek or anyone else's fault. it most definitely has the effort factor of nosebook all over it. it seems like they took my old comments a while back (other noseblog repo so I can't reference it) where I said that I liked how the events played out and unless something happens diffreent, I'll just go with the that. seems they've gone to quite a lot of effort to try and figure out how to get all of that under their control (or something). they wouldn't be pushing for it if they didn't think that they could have under their control (obviously).
+
+before listening to this abe episode, I felt like writing @[noseblog](2021-01-16 22:17) where I had a strong feeling like there was a lot of "convincing" going on. for now, I'm just skipping their attempts to try and manipulate stuff into place...
+
+that brings me right to the book of positive aspects here now, because after mr. motor's venting, the thought that enetered into my head is that *I* should actually make a book of positive aspects of mr. motor.
+
+he's steady
+he's predictable
+he has an inner being
+I know deep down he wants to feel good
+
+---
+
+so, I think it's a great idea to write positive aspects of mr. motor. I'm certainly going to do it. I had to use the restroom though and when I went up to do it, I was thinking about how I was getting the thought to write positive aspects of derek, but I was also feeling fernando and joy as well when I was getting the original thoughts. as I was peeing, I began to get a different sense, and that I should also add in ben as well.
+
+I'll likely write positive aspects of the four of them. it seems like a good idea. anyway, as I'm writing this, I went from pretty blah feeling to now having one of the most intense caffiene highs I've had in quite a while. I haven't drank much coffee. I need to take a break for a bit. brb
