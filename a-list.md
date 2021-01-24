@@ -327,3 +327,7 @@ EDIT: man I feel so much better now. before I wrote this I could feel quite a bi
 ### 2021-01-21 20:18
 
 about an hour ago I was watching jaron play a game when a girl on a movie that mom was watching on netflix was attracting to me. I forgot about it, then when I went up to brush my teeth just now, I saw her again and the feeling was stronger. therefore, I conclude that I want to invite her to join if she wants to :)
+
+### 2021-01-23 - 21:36
+
+yesterday, mom was watching a TV program (dunno which one it was), and there was a girl wearing red. I like her persistence. if she would like to join in, she's totally invited :)
