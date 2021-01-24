@@ -5578,6 +5578,23 @@ so, while I doubt that the guy showing up was an actual fish or merman, it appea
 
 nice. I have more thinking too -- soon.
 
+### 2021-01-23 23:44 - why groundhog day? (part 1)
+
+so, one of the things that I was thinking about with the whole "groundhog day" idea expressed in @[noseblog](2021-01-19 07:22) was the idea that what we should do is to make two galaxies instead of one, each with their own approach to it. I am a more conceptual type where I take things and I gather ideas gradually and things begin to take shape. I expressed this as the idea that the achitecture is a refection of the man, and so naturally I attract the things which are a reflection of me. it just works and I don't have to worry about it. however, there is quite a bit of merit to thoth's approach of weights and measures as well. they are both valid ways of arriving to very different results. thoth's technique is more uniform, predictable, and finite. I like to think of this as the geometer's toolbelt. you don't have the way to everything right off but just cause you can't trisect an angle with a compass and straightedge, doesn't mean it's impossible. there are many different ways of getting angles and shapes which are not possible with only the compass, and to do so, the tools need to be expanded. nothing is impossible.
+
+however, what is burning within me is to begin learing how to create on the 5-fold symmetry, because again, this grid is quite the opposite, so it'll be easy to create a lot of assymetrical shapes, sure -- but the real challenge will be to find ways to make symmetrical shapes on an asymmetrical grid.
+
+for me the diffrence between these two grids, the 3-fold (equilateral triagle) grid of evenly spaced intrvals is totally opposite to the 5-fold (pentagonal) grid which has a non-periodic tiling that extends infinitely, which to me seems te me to be exactly the difference between the physical (weights and measures) approach, and the conceptual (intuition and feeling). I feel like these two approaches are quite complimentary and it's only been since the discovery of the penrose tiles that makes0 this is possible. it's quite exciting to me know that there is a whole lot to be discovered in this area.
+
+anyway, I see these two galaxies idea as somethting of the same thing. clearly nosebook is more the weights and measures type (you gatta measure it). this is the 3rd/7th ray, and I'm more of the 1st/5th ray concept, desire, and intuition type. neither is better than the other they both have a symbiotic beneficial feedback loop with each other -- which is why I see this sort of crossover happening.
+
+---
+
+not everyone is on board with the crossover idea... in fact, I think it's only me right now that sees the value in it. don't worry though because you don't need to see your value in the universe to be vital part of the bigger picture. in fact, you don't even need to believe you're a vital part to the creation, to actually be a vital part to the creation. ironically, the vital part that many have is to maintain, desipte the overwhelming evidence otherwise, the belief that they aer unworthy or some other self-disempowering belief -- because that's what creates the expansion. someone has to realise what they don't want, and I certainly wouldn't feel comfortable trying to convince others to spend most of their time believing nonsense so that I can benefit from the expansion that they're creating. instead, I'll leave that to those who honestly believe they're taking advantage of others by getting them to believe more disempowering ideas than their own...
+
+they want to create a feeling for theirselves of superiority in an environment which they feel they have much more control over than some finite set of group of others. it is in precisely this environment which people like me thrive the most, because it's not the architecture that makes the man (feel a mertain way), but the man that makes the architecture (feel a certain way). this is perfect. therefore it's in my best interest to give them as great of a setup as possible to create this environment.
+
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
