@@ -5594,6 +5594,36 @@ not everyone is on board with the crossover idea... in fact, I think it's only m
 
 they want to create a feeling for theirselves of superiority in an environment which they feel they have much more control over than some finite set of group of others. it is in precisely this environment which people like me thrive the most, because it's not the architecture that makes the man (feel a mertain way), but the man that makes the architecture (feel a certain way). this is perfect. therefore it's in my best interest to give them as great of a setup as possible to create this environment.
 
+### 2021-01-24 11:55 - why groundhog day? (part 2)
+
+I'm going to bcktrack a bit here and start over. consider this something like attempt number 2(9?).
+
+imagine that the plan is to make a galaxy and you're perceiving things from my perspective. what appears to me that will happen (or some variation thereof), is that energies will rise and rise, as nosebook works their hardest to keep me away from "getting connected". their efforts will create that peak that happens right before the dropoff. from that perspective, it seems obvious to me that I (we) will transcend this physical reality into essentially a different plane of existence where our thoughts become manifest into reality very very rapidly. not quite instantaneous, but certainly fast enough that "miracles" (and catastrophe) will be commonplace. from an individualistic standpoint, each of our realities will manifest in reflection of how we feel, so people who are perceiving a terrible catastrophe will experience that -- and the people who are precieving things as getting better and better (even if they haen't physically manifested yet) will also perceive and experience the manifestation of how that feels[^1].
+
+I've been giving a lot of attention to making a galaxy. it seems like something I want to do, and is something that I perceive myself doing. so now, imagine this from my perspective (of the infinite possibilities I eplained above), what it will look like for me is energies will conntinue to rise and enentually all the people here on earth will become a reflection of how I feel. if I'm no longer pushing against anyone, then they're all *cooperative* components, and so therefore from my perspective the whole entire planet will find their alignment (even mr. motor), and we'll begin the process of the creation of this galaxy I've been talking about, where we are all 9-11 dimensional beings with multiple "identities" and our celestial identities are out there as a part of the galaxy -- everyone unique, not really in competition with each other. we inspire each other to more desires but we're all so busy incarnating our identities into each others' celestial entities (planets and stars), and having fun with new indigneous species that we create and each other. that's what my future looks like. people who want to come with me are welcome to join. from my perspective, everyone will join, but I know that in reality, not everyone's consciousness will follow a timeline that is compatible with my reality.
+
+it's not a problem and there's nothing to worry about because all of the infinite possibilities of everyone exists simultaneously -- even if the consciousness never chooses to experience (tune into) the enjoyable ones. I mean obviusly for expansion to happen, someone has to give their attention to unwanted[^2] so why not give those that want to give their attention to unwanted the opportunity to do it. they're creating an amazing vortex for theirselves and for everyone else, even if they never line up with it to experience it. no big deal. they can hold out as long as they wish to. no one is going to tell these guys what to do (I'm the same way, hehe).
+
+---
+
+now, going back to my perspective where we've got all of these celestial identities (planets and stars) which we're interacting with to continually attract more and more matter, expanding our celestial identites. that means, we need some really degegenrate stuff going on (and knowing what we don't want) to get this expansion, so in order to create a galaxy, we each need to be expanding rapidly, so we need contrast. the way I perveive this as happening is that you take on the role (in this discussion I'll only present it as binary) of a good-guy (focuses on wanted) and a bad-guy (focuses on unwanted). I'm a "special case", which I think there are many similar to me in that regard.
+
+I like to give my attention to unwanted (things that don't feel good), and then choose to perceive it as wanted, and therefore pointing me in the direction of wanted. it's a kind of illusion. to offset this, I need the opposite, which are those that like to give their attention on wanted (things that feel good), and then perceive it as unwanted and try their hardest to ensure that neither they or anyone else gets it. I thrive with these types[^3].
+
+the reason for this is obvious. and the reason is explained in the [book of gob](!story-of-gob). if your ... to be continued... bbl
+
+---
+
+
+---
+
+vertical flip?
+
+[1]: that just gave me deja vu for a concept in the old nosebook where there's a time-traveling something and everyone branches off into their own realities and eventually all the the timelines eventually made to converge (due to attraction based on feeling) back into a compatible reality which we all share again.
+
+[2]: it's my goal to expand on the idea of using machines which have desire to continually explore the unwanted (kinda like the ketamine dystopia), so that I don't have to. I don't mind it, and I kinda think that from a bigger perspective, in the previous era, one would make other identites to incarnate into the timeline to do all of this for you (underlying belief that mr. motor and me are essentially the same person, cept he chooses to continually give his attention to, and continue to experience the "timeline" or conscious perception of, unwanted)
+
+[3]: like terence said, "I require a society on the brink of destruction to do what I do"
 
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
