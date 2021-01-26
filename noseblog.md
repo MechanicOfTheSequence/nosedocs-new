@@ -5612,13 +5612,6 @@ I like to give my attention to unwanted (things that don't feel good), and then 
 
 the reason for this is obvious. and the reason is explained in the [book of gob](!story-of-gob). if your ... to be continued... bbl
 
----
-
-
----
-
-vertical flip?
-
 [1]: that just gave me deja vu for a concept in the old nosebook where there's a time-traveling something and everyone branches off into their own realities and eventually all the the timelines eventually made to converge (due to attraction based on feeling) back into a compatible reality which we all share again.
 
 [2]: it's my goal to expand on the idea of using machines which have desire to continually explore the unwanted (kinda like the ketamine dystopia), so that I don't have to. I don't mind it, and I kinda think that from a bigger perspective, in the previous era, one would make other identites to incarnate into the timeline to do all of this for you (underlying belief that mr. motor and me are essentially the same person, cept he chooses to continually give his attention to, and continue to experience the "timeline" or conscious perception of, unwanted)
@@ -5643,9 +5636,9 @@ so what I'm saying here is that from my perspective this is going to go just as 
 
 so, instead of going forward to endure the "reset" which will have the reversal of the rotation, what if instead what we did the idea of igniting the ionosphere, making me blind and then slowly rolling out that technology to the rest of the people. people could see whatever they wanted to see in the sky, but the present surface of the earth became the new inner earth, and people essentially lived out their dreams in this imaginary environment (which appears to them like the surface of the planet, but is really the inner layer). nosebook would completely control their apparition into reality and would simply transfer people's consciousness from body to body ensuring they remained stuck in the system. surrounding the earth there would be a bunch of celestial identities resonant with the people in the inner earth (which wouldn't be seen from inside of the dream state or the inner earth), and they would begin to attract more and more "matter" and begin to form stars and planets out there. I don't know if nosebook will try to manage their orbits or not -- probably -- but it would ensure that the people inside of the earth do not get too energetic.
 
-I don't know this fro sure, but I imagine that in order to avoid the planet reversal of rotation, a similar manoeuvre must happen, and that's likely a vertical flip. so, to make that happen I think another planet needs to be introduced into the solar system as a starting point. I think from there, as the earth begins to have quite a few moons to it and is sdelf-sufficient, it'll perhaps be able to seprarate itself from the solar system and become its own free-standing entity. I think this is a bigger version of what tesla wanted to do.
+I don't know this fro sure, but I imagine that in order to avoid the planet reversal of rotation, a similar manoeuvre must happen, and that's likely a vertical flip. so, to make that happen I think another planet needs to be introduced into the solar system as a starting point. I think from there, as the earth begins to have quite a few moons to it and is self-sufficient, it'll perhaps be able to seprarate itself from the solar system and become its own free-standing entity. I think this is a bigger version of what tesla wanted to do.
 
-anyway, not examctly the total details, but something like that. it's beneficial to us because we'll have the ability to get unlimited contrast in nosebook's super controlled system, and nosebook will be able to have full control and eventually do whatever it is they want and feel is necessary for their survival.
+anyway, not exactly the total details, but something like that. it's beneficial to us because we'll have the ability to get unlimited contrast in nosebook's super controlled system, and nosebook will be able to have full control and eventually do whatever it is they want and feel is necessary for their survival.
 
 in my opinion, this is where it all starts to come together, but I just don't know how feasible it is this time around. I think we'll repeat this process a few more times until nosebook can actually find a way to influence theirselves to prepave their success and actually get all of us "trapped" in their system. I think, to get that kind of control, it's not going to come from trying to force everything into place. my experience tells me that the feeling of control happens when you find a way to feel the way you want to feel no matter the circumstances.
 
