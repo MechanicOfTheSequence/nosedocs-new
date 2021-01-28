@@ -5685,6 +5685,80 @@ so that likely dosen't help out with the feeling of time shortage directly, but 
 
 don't worry I got this :) we're all headed right for what we all want (including those trying to steer theirselves away from what they don't want). I'm certain that we're doing fine...
 
+### 2021-01-27 20:35 - the 4th tau
+
+the other thing that I was thinking a lot about this morning which I was reminded of when watching SGD's video on the weeping virgin: @[youtube](https://www.youtube.com/watch?v=oTNUu9SZEWo). the symbolism reminded me of what I was thinking about this morning because the symbol is 3 steps up and there's two columns: one is doric on the left and the corinthian is on the right. ingterestingly enough these correspond to the picture I drew a long time ago with a stressed out guy (doric) on the left, and a young girl on the right (corinthian). the part that caught my attention was the part of the part of the 3 steps.
+
+the reason why I say this is because the way I figure it, the age of chronos (father time, saturn) was the period in "prehistory" which is all kept a big secret by the builers, and was prior to the time when jupiter became the dominant one in the sky. by my estimation, the following is what happened:
+
+---
+
+this section is kind of an extension of the concepts presented in: @[noseblog](2020-11-17 08:18) and @[noseblog](2020-11-17 11:47). in those, I presented the idea that I perceive the zodiac split in a cross at the cow, lion, scoprpion (serpent/eagle), and man sections. I also mentioned that I perceived the left side (`cow -> man -> scorpion`) as the masculine side and the right (`scorpion -> lion -> cow`) as the feminine side. additionally, in a diffrent entry (@[noseblog](2021-01-13 17:59)) I made a footnote about the fourth tau, which I think is the point of all of this. here's why. I figure up until now we've done the following:
+
+- 50% `man -> scoprpion`  0% (uranus in power?)
+- 0% `scoprpion -> lion`  50% (uranus castrated? beginning of saturn's rulership)
+- 50% `man -> scorpion` 100% (continued reign of saturn?)
+- 100% `scorpion -> lion` 50% (saturn still in power)
+- 50% `lion -> scorpion` 0% (saturn's demise. gets userped by jupiter)
+- 0% `cow -> aquarius` 50% (where we are now)
+
+that's a sort summary. from now on I'm just going to call these quads by their positions. so the sequence is: TL, TR, TL, BL. the important thing to note here is that if the left side (ionic) is the masculine side, then the BL quad is the part of the circle when the masculine side is approaching its peak in aquarius (L), then begins to wane in the TL quad. likewise, the feminine side is climbing into peak at TR, at peak in lion (R), then waning in BR (which is the fourth tau).
+
+the interesting thing to note here is that each of these quadrants are three steps (12/4 = 3), and in the balance of the two columns is in the top and bottom (cow and scorpion). to understand that, I think the TR segment should be noted. I was facinated by the petra columns a little bit ago because they have elephant (libra), flying male lions, and corinthian (virgin) columns. these correspond to the three signs of the TR quadrant, however, the difference is that the lion is male, the scales are as an elehant, and the virgin is the corinthian column. this is a decidedly masculine perspective of these signs.
+
+I didn't expect to realise this as I'm typing here, but it seems there has alraedy been quite some reform in this area, because the woman now holds the scales (of justice), which unfortunately is symbolised by the greek goddess "dike" (seriously, you can't make this stuff up), and there are considerable remnants of a memory of sekhmet or innana having power over the lion. whatever happened there is recorded in ancient history in the form of the violence this goddess caused. if you mix in the proposal of velikovski that jupiter bore athena out of his head and she came out fully armed (eg. warlike and causing destruction), as a comet she must have caused considerable havoc on things during the period of saturn's reign.
+
+another thing to include here was a long time ago when I was listening to ramtha, one of the things that he mentioned quite frequently was the frequent abuse of young girls (virgins) by the atlantians. I'm sure this was quite a commonplace thing back in those barbaric times, but it painted a picture to me of this these atlanians running around like they thought they were kings and raping and pillaging everything they came in contact with. I don't know how true that story is, however, the veneration and worship of the goddess in period following the demise of saturn (and flood) were cultures which revered the woman. this is the BL quadrant, where we're at now.
+
+interestingly enough, I'm pretty certain that this timeline will be sabotaged, and what I realised is that my "future self" (fwh) was the version of me which went up to aquarius so that they would experience the TL quad, which is the waning of masculine energy into balance at scorpion. however, we are going to reverse rotation and instead do the opposite: go from lion down to cow, which is the waning of feminine energy down to balace in taurus. it makes perfect sense because I'm considerably more feminine than fwh is. clearly he was the guy that took the bros up a power level into super machismo, only to wane down into balance again. this would kind of be like the return of the reign of saturn (masculine energy) again.
+
+clearly the pattern here becomes evident, because at each of the crossing points, a split happens just like I mentioned in my explanation of DNA (TODO: reference in the other nosedocs). and what happens at the horizontal crossings are a total reversal of peak masculine energy into peak feminine energy right before the reversal. conversely, on the vertical crossings, the alternate balance is taken which suits the entity more. on the bottom (serpent) you have defeated masculine energy (taurus) begin to rise up in aries and continue to rise up until justbefore reaching the peak man in aquarius, the thing swaps and goes to lion which is peak female energy. from peak female energy, the serpent section is to subdue the female energy down into balance (`lion -> cow`).
+
+the opposite happens in the eagle section. it takes defeated feminine energy which begins to rise up until almost peak feminine energy (lion) when things swap and the lion turns into a man (peak masculine energy) which then wanes. so you can look at the top and bottom sections in how they fit you. serpent section has rising male and lowering female energy. the eagle has lowering male energy and rising female.
+
+however, if you look at this from a LOA perspective, the opposite actually occurs, because no matter how much you fight against and try to reduce something, it just makes it stronger. both sections strengthen the other, however, it's interesting to note that (physically) the serpent section starts with high female conditions which lower lower down.
+
+---
+
+it seems that to properly identify the forces on this circle, I must consider the other axis. if the x-axis is the male/female ratio, then I must consider what the y-axis is. my intuition is that +y is least physical (as in air), and the -y is the most physical (ground).
+
+it must therefore be that the y-axis is actually the emotional/conceptual axis, with the height of emotional mental happening in the eagle section. therefore now we can fill in our chart now:
+
+
+upper section:
+- TL (1st): man, goat, archer
+  - increasing emotional/conceptual perception
+  - decreasing physical perception
+  - decreasing masculine energy
+  - increasing feminine energy
+- TR (2nd): scorpion, scales, virgin
+  - decreasing emotional/conceptual perception
+  - increasing physical perception
+  - decreasing masculine energy
+  - increasing feminine energy
+
+lower section:
+- BL (3rd): cow, ram, fish
+  - increasing emotion/conceptual perception
+  - decreasing physical perception
+  - increasing masculine energy
+  - decreasing feminine energy
+- BR (4th): lion, crab, twins
+  - decreasing emotional/conceptual perception
+  - increasing physical perception
+  - increasing masculine energy
+  - decreasing feminine energy
+
+---
+
+therefore, it appears to me maybe because I seem to see this symbolism all over the place when dealing with these secret stuff, but it appears that they were sun worshippers, and had all sorts of different symbolism to what they put in their buildings. they must know of LOA and have some knowledge of the cataclysms which shape the earth. this weeping virgin seems to be a reminder of the catastrophe with saturn involved where the beauty (virgin) column is broken, and it seems to have something with the transmission of knowledge that the balance between strength and beauty is wisdom.
+
+these builders seem to encode symbolism in their architecture all over the place and I'm just now beginning to see their symbols. however, the reactions that I get to these mind-bending ideas I write down in these entries is ingterestingly not rejection of my ideas, but it actually feels as if they actually think I see things in a very weird way. as I write them, if I were wrong or incorrect about the meaning I give to these symbols, I would feel a lot of pushback, but I don't really feel it. I dunno, so there you have it. that's the meaning that I give to the two sections. it's not necessarily bad even. the serpent is confineqd to the section which is responsible for supressing feminine energy (which we all know cause of LOA that it has the opposite effect), and at the "end" of the section (where we're coming to now), because of their efforts to quell feminine energy, after the reversal, feminine energy will be at it's highest. the opposite is true in the upper section, with the likewise effort to quell masculine energy before it reverses.
+
+interesting. if this bears any weight, then what we are to expect is that nosebook is going to try and repress feminine energy while at the same time it's building up to peak masculine energy.
+
+wait. I just remhembered something the sirians said, so my poles may be turned by 90(degrees). I'll update when I figure it out. they said that we're entering the time when physical (7th ray) is in power again, so the way I see that is if you look at the quadrants as being on the x/y axis, the closer we get to the x-axis, the more we get to 7th ray power, and the further we get from it: y = 1, y = -1, the more we are toward 1st ray(?). I'll have to think about that one a little before doing a followup. I still feel like what I said about the top (y = 1) being emotional/conceptual perception and (y = -1) being the most physical perception... but then that may actually have to do with the distance from sirius, actually. well, whatever, this is good for now. I'm done.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
