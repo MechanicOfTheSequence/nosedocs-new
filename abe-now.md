@@ -960,7 +960,7 @@ I am certain though that eventually I/we will become conscious and deliberate in
 
 needith not the manifestation.
 
-### 2021-01-15 23:07 - 2020-12-27 p1
+### 2021-01-15 23:07 - (2020-12-27 p1)
 
 #### (11:39) - demand and supply
 
@@ -1124,3 +1124,100 @@ I know deep down he wants to feel good
 so, I think it's a great idea to write positive aspects of mr. motor. I'm certainly going to do it. I had to use the restroom though and when I went up to do it, I was thinking about how I was getting the thought to write positive aspects of derek, but I was also feeling fernando and joy as well when I was getting the original thoughts. as I was peeing, I began to get a different sense, and that I should also add in ben as well.
 
 I'll likely write positive aspects of the four of them. it seems like a good idea. anyway, as I'm writing this, I went from pretty blah feeling to now having one of the most intense caffiene highs I've had in quite a while. I haven't drank much coffee. I need to take a break for a bit. brb
+
+### 2021-01-27 13:16 - (2020-12-27 p2)
+
+#### (19:03) - why? because they feel better
+
+this is something that doesn't work for me -- well kinda doesn't. a while back I had various difficulties with mom and nosebook (and other things too). I was sorta in one of those bad-feeling places, and there wasn't much anyone could do to help me. I felt at the time, terrible -- and there appeared like no one was able to help. it was all hopeless. I felt tremendous dispair and stuff. at that time, I remebered that used to be able to just find nicer things to focus on and I would feel better, however, it was kinda like a very short drug high because it didn't last very long at all. the slightest thing would remind me of the enormous problem (which at that time was nosebook and what they were doing to me), and then that small reminder would send me right back into depression and rage. I eventually gave up trying to feel better and just decided I would be miserable for a while.
+
+I can't raelly remember how long I stayed like that, but what changed it for me was realising that not anyone (nosebook, mom, etc.) was responsible for how I felt. the most empowering thing was realising that it's all attraction and that I was doing it all to myself.
+
+so, sure some words feel better than others do, but no good-feeling words could have any lasting effect on how I felt. the real problem was that I was making someone else responsible for how I felt. when I started to take responsibility for how I felt, I got all the power back and the depression began to lift. every time the issue came up, I had a chance to find a way to take responsibility for how I feel, and that is so empowering.
+
+the previous person wrote a whole slew of words as if the words were some sort of magickal incantation to summon that experience that they described with their words -- however, through the duration of it all, you could feel that the whole time they are wanting the beautiful man to jump out of the vortex and just make them feel all the ways that those words described.
+
+in my opinion, these two letters are kind of like before and after shapshots into the progression of a relationship. one usually has a list of things the other person needs them to do to make them feel a certain way. the other often times is less action oriented and has a list of ways that the other needs to make them feel. in both cases, whether it's perceived as an action or some magickal presence they have which gets the other to the emotion they want to feel, both sides are making the other side responsible for the way they feel. inevitaably, when one fails to satisfy the other (cause it's impossible), then begins the things that we do to regain our power by taking revenge (feels better than depression) and finding ways to make the other feel the way you feel, which is powerless to feel the way you want to feel.
+
+there are variations to this trope which involve wanting the other person to rectify, absolve, or save them from the way they feel -- but all of these variatios have the common factor that one person makes the other person responsible for the way they feel -- and it never works. it's literally impossible that it ever could work. it's like trying to get more than 100% efficiency out of a closed system; it's just not possible.
+
+interestingly enough, they followed up that thought I just took issue with, by saying:
+
+```
+fundamentally, the only thing you can control is [how you feel right now].
+you have the power of focus.
+
+get determined that you're going to feel that way.
+decide that you're going to feel that way
+and then find words that amplify that you feel that way
+until you establish a point of attrction that has some momentum going
+
+...
+
+will relapse? of course you will.
+will some days and subjects be easier than others? of course.
+
+but, you must know fundamentally accept that it's attraction attraction attraction
+and how you feel is your indication of where you are in this red-hot minute
+```
+
+get determined that you're going to feel the way you want to feel. that *is* where all of your power is. I stand as a living example of this. I cannot personify their words more. they are for real.
+
+```
+... in relationship to way your inner being feels
+... about all of the things that your inner being knows you want
+... of which your inner being is embracing and gathering cooperative componennts with the help of LOA and the focus of your inner being on every single one of those subjects
+```
+
+:)
+
+#### (27:05) - you're manipulating him right into happiness
+
+the last time I tried to write finish this, I only got to the 26:56 mark, when I started writing a section called "manipulating him with my book" -- but then I couldn't finish it. I suddenly became very bad feeling. if I had of continued on, I was only a few more seconds away from them answering the dominant reaction I was receiving of why did I title it, "*manipulating* him with my book"
+
+```
+you will become a cooperative component
+abraham, is this manipulation? (they say as they look down appearing to have shame)
+you're manipulating him right into happiness (and worthiness)
+you're manipulating him right into loving himself (just like you're remembering how to do)
+```
+
+lol. well, it turns out that was about 10 days ago, and it seems to me that the very sick feeling I felt must have been him (mr. motor) realising that I would "manipulate him right into happiness". since I didn't return back to listening to it because I felt too much resistance, I instead continued on to begin to understand the way that brain interprets the feeling of a presence or absence of something. I don't think mr. motor wants to feel happiness -- which is alright. I'm not at all bothered by that. that would require him to identify the way he *does* want to feel, and right now he only wants to be concerned with the way he doesn't want to feel. again, perfectly alright. so instead it appears that between these two sessions, we instead were beginning to lay the groundwork for me to realise that it's possible to feel the "absence of the way he doesn't want to feel" instead of the "presence of the way he does want to feel." -- allowing him to, with the inversion of the feeling of presence, achieve a similar result.
+
+it's actually quite a good thing to realise and it totally opened up a whole lot of new ideas on this because of how useful it is and a better understanding of how satisfaction works. I'll probably return to it in the future cause it's such a powerful new concept for me.
+
+anyway, lol :) it's not manipulation; it's calibrating
+
+#### (29:16) - after a month of writing in your book
+
+it struck me as weird the words that they used here. they went out of their way to say the word month.
+
+```
+there are no case so hard that you can't align yourself
+fundamentally, predominantly with their positive aspects
+and there is no one who is unreachable to feeling better
+
+some things will happen.
+you'll be you, the new you, who you've practised being becsuse *you've been writing for a month in your book*
+and they'll keep being them
+but they'll be more like the you, you're describing
+and less like they that they used to be, every day that you write in your book
+
+try it
+```
+
+well, I mean I don't know here. I was thinking that I should begin the book today but I've kept feeling resistance to things, so I haven't done it. I was also thinking about this full moon coming up tomorrow. I feel like it has something to do with this, because I watched a thing on it (@[youtube](https://www.youtube.com/watch?v=pbbxzaT6KTM)), and I remmember athen said words that really stuck out to me of it being a start of a new cycle. I relise that he probably says those words at least once every video, but they really stuck out to me. I don't really like mixing LOA and astrology much. usually I enjoy looking at the astrology meaning/interpretation *after* the event instead of before (it's always more meaningful to me in hindsight[^1]), however this one I actually noticed the words before. usually I don't really pay much attention to the words because I really have found that those words are a great way to build up a huge imagination and therefore expectations around some event.
+
+I think the reason why I was thinking of the astrology thing was the connection to the moon and the specific "month" word used by abraham here.
+
+it's interesting to me because my internal reaction to these sorts of things is actually the opposite: "a month, huh? what if I wait at least a month before I begin to write in my book, huh? then what :)" I'm sort of like that. I like to test LOA and see how it stands up.
+
+plus, I'm just not very into the idea of manipulating other people. I've come to know the power of my own attraction in such a way now that I kind of *want* people to be ornery around me. I give them full permission to do whatever they want to do. I don't want to try and influence (or mnipulate) them in any way. I'll be the one that's master of my perception and responsible for how I feel. I don't need him or anyone else to be happy or worthy for me. preferably, they don't so I get even more practise :)
+
+call me masochista, but I love antics. the most influential people in my life were the ones with the most antics. I had and still have quite a few antics of my own. it's what makes me individual, unique, and fun. I want others to be that way too, and all antics are fine. I'm responsible for how I feel, so that means we can laugh at each other's antics. just let it all hang out, right? dad used to laugh at me a lot. he would often tell me, "I'm not laughing at you; I'm laughing at your *antics*" -- a very powerful concept. or, "it's not you; it's your *antics* I find [insert word]" :)
+
+I guess we'll have to find out what happens.. heh :)
+
+[1]: actually, when I first started astrology, it was very attractive to me because I could feel some of the planetary energies that they would say, but not all of them. I found out my first problem was I was listening to mainstream astrology which is way off. I switched to vedic and I still felt a little more in relation to the signs and learned asbout the north/south node (rahu/ketu), but still wasn't working for me. at the same time I was also doing abraham stuff. I would listen to the astrology and get all kinds of crazy ideas of what I thought would happen based on what I wished to happen. it's basically a pure "paja mental" of expectation because of all of the abstract words. I noticed that the more ridiculous my expectations were, the less they turned into reality. I recognised it as a kind of the same effect of overly optimistic and unbelievable expectations as I had when smoking weed, so I began to look at them more from the retrospect and begin to correlate what did happen to what the astro prophecy said would happen. I grew up in the prophetic church movement so I recognised that more of it had to do with my own belief, than the idols or rituals performed. the idols or rituals were just a way to get me to believe in something, but ween't te belief itself[^2]. instead, now I'm beginning to realise that LOA is much stronger than any astrology forcast (either good or bad). next, I began to notice that as I used LOA instead of astrology, the events in my life seemed to correspond to the events happening astrologically. now, I'm going beyond that. let's see if I can transcend all of the forces and make comments like these :) I have a feeling astrology is a lot like perception: it's the perception that's the presence, not the subject (kinda like, "the medium is the message [not the subject]")
+
+[2]: it's like the gambler who believes he's lucky, but because he was carrying a rabbit's foot, *that* must have been the charm that made him lucky, not his own perception of himself. later on when gambling with the lucky rabbit's foot at first he appears more lucky than normal, but then it tapers off to where he now appears unlucky. he then wonders maybe it had to do with something else. the luck always appears external to him. it may never occur to him that the lucky rabbit's foot only was a good method to boost his belief when he actually believed in it, but then his own doubt caused him to begin to pull the rubberband back again instead until another lucky moment, where this time he will now believe again it was something outside of himself to make him lucky. two things are needed for luck: tesion/desire, and for that that desire/tesion to overcome the resistance to the lucky moment.
