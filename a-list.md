@@ -328,6 +328,12 @@ EDIT: man I feel so much better now. before I wrote this I could feel quite a bi
 
 about an hour ago I was watching jaron play a game when a girl on a movie that mom was watching on netflix was attracting to me. I forgot about it, then when I went up to brush my teeth just now, I saw her again and the feeling was stronger. therefore, I conclude that I want to invite her to join if she wants to :)
 
-### 2021-01-23 - 21:36
+### 2021-01-23 21:36
 
 yesterday, mom was watching a TV program (dunno which one it was), and there was a girl wearing red. I like her persistence. if she would like to join in, she's totally invited :)
+
+### 2021-01-27 19:17
+
+last week when I was listening to @[abe-now](2020-12-27 p2 29:16), I could feel quite a strong attraction from the single mom that wrote in there. I had difficulty finishing the episode, and I still haven't finished it. whatever. anyway, yesterday I wrote the section there about basiling out on the month of writing in my book, for reasons: @[noseblog](2021-01-27 18:09). when I woke up this morning one of the reactions was that actually one month had passed since that episode, so while I'm being difficult, it still did happen happen after a month.
+
+anyway, so yestreday when I was listening, I could feel her even stronger still and also quite a bit this morning too (though obviously it's gone now), I still want to invite her to join in if she wants too. kind of a crazy thing. I really have been thinking about that sequence of letters quite a bit lately and I can't express how impactful the interction was, even though we don't yet know esch other in real life.
