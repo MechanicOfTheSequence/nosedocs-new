@@ -5646,6 +5646,45 @@ you may not want to feel good, but neither do you want to feel especially bad ei
 
 for the time, I continue on doing what I always do. if you can't figure it out, no worries, we'll keep trying at it (that's why I labled this groundhog day) until you'll figure out how to feel the absence of how you don't want to feel :)
 
+
+### 2021-01-27 18:09 - so much manipulation
+
+yesterday after writing the part in @[abe-now](2020-12-27 p2 27:05) about manipulating him into his happiness, I decided to abruptly end the writing for some reason. I don't even remember. I also am having a terrible time with time now. I have very little to no recollection of yestreday, and almost nothing has chronological order to it anymore either, so I don't really know why things are happening the way they are.
+
+anyway, when I woke up this morning I was thinking about all of the maniplation subject cause there were reactions. the thing is, I know it sounds like a good idea maybe to kind of try and manipulate him into his happiness, but I don't think it is. abraham has been putting more and more traps into their things lately and this is another one of them.
+
+if I put my attention on manipulating someone, then I'm on the maipulation frequency (subject) and therefore that is what I'm atttracting more of into my experience (more things that feel like manipulation). so, why they would suggest such a thing is beyond me. I went to sleep wondering why that may be. I think it's a terrible idea to put the emphasis on manipulating someone, and therefore attract more of that into my experience. no thanks. I'm gonna keep it real. I'm not interested in manipulating anyone.
+
+---
+
+so I wake up this morning and I realise that was a *PERFECT* place to make an aleration to the timeline when making the self-sabotage. if I blindly just followed their directions and tried to essentially use a LOA form of a magickal incantation of trying to manipulate mr. motor (or anyone else) into something they don't want, it'll assuredely blow up in my face. I don't do magick. it would be absolutely perfect because the thing falls right into line with what people were attracting. in fact, right before that segment, right after the person with the poetic words, they said that there were a lot of people writing in wanting a way to influence someone to do the things that they want them to do, so they can feel the way they want to feel.
+
+it never works. it always falls apart if you try and get someone to do something so that you can feel the way you want to. *I* am responsible for how I feel! no one else has that responsibility.
+
+---
+
+interestingly enough the time thing I mentioned at the beginning is related here because if I'm no longer experiencing (remembering) time in chronological order, then it means I'm nearly completely separated from time now, and can now begin to move around freely inside of it.
+
+I was monologuing with myself in relation to some reactions that I was feeling from chris' daughter earlier, because there were feelings like there's not enough time. I often times experience feelings of time shortage myself but I just don't really have much choice to just keep doing the best I can. it feels to em like my day is gone in an instant, and I've done nothing more than just sort of jump from thing to thing. it feels like reacting to circumstances, but it's not me that's reacting. it feels like I'm being seriously manipulated to try and accomplish some short term goals that others have for me. I don't really mind it because I know that it's not really a problem. if I were to fight against it, it would get worse. just like them trying to keep my vision from expanding further, their efforts to try and prevent it from happening are what is making me to have so many so rapidly now. like the [story of gob](!story-of-gob), their efforts to try and impede me are actually causing the energy to double, even if the physical manifestation of my vision remains where it is. I also know that if what they're working so hard to try and steer me away from is actually what they're steering me right toward. their vision is just too short to realise this. I know this is true because that's what they're giving their attention to.
+
+therefore, I'm doing just fine. I don't need to fight them at all. in fact, if I were to try and fight their steering me, now I'm putting my attention on steering and attracting that. I would go in circles until I realised that it's all attraction and that by fighting their steering or trying to manipulation, I'm only attracting it further.
+
+obviously that's a perfect place to make a timeline alteration because I just don't care. I can go either way here, so I would be more than willing to self-sabotage myself here and conform to people's expectations that I should try and manipulate him back by attempting to manipulate him into happiness. wow, what a disaster that would be, let me tell you...
+
+oops, I got sidetracked... I was talking about time shortage, and I tried to figure out a way to improve upon that perception in the moment, but I couldn't figure it out right then. I got put to sleep, probably for reasons, but when I woke up, I realised that sure as I'm beginning to go faster and faster, it appears more and more like I don't have much time, but that's just because there's such a clock differential between experiences. as I get closer and closer to experiencing myself from a source perspective, I will, (like everyone else when they get there), from that perspective experience the entirety of the universe.
+
+in other words, there is no time shortage. it takes me as long to experience my life as it takes for the universe it experience its life. there isn't really time; there's only expansion and that's happening all the time, whether I'm conscious of it or not. pretty difficult concept to explain, but "time" doesn't really exist, and it isn't necessary for it to be chronological either.
+
+this concept is so difficult to explain properly, but just think about how many of your cells are experiencing time right now, and from the perspective of one of the cells, imagine how difficult it would be to imagine that you could experience the experience of all of the other cells that have existed and will exist in the collective experience of the human named kenny. if you were to comprehend(?) the experience of all of the other cells that have existed in the human called kenny -- then, the sum of all of that would in fact be the experience leading up to the realisation (feeling) of my "now" moment.. it's no different with the universe. there is no time shortage. time/experience sums up to a feeling, and that feeling is some distance from the parent entity.
+
+from that perspective, it's quite easy to understand what planetary or solar consciousness is -- when your now moment feels the way that the planet or star feels. the feeling of the collection of everything that has existed (and will exist), including other/new universes, is "source". you can feel (within the physical limits) similar to how that feels, but it can never be experienced in its entirety all at once. that is simply impossible. you can't really run out of infinity.
+
+---
+
+so that likely dosen't help out with the feeling of time shortage directly, but what I do know is thst if someonthing feels bsd, that always means that my perception of what I'm looking at, does not feel good, and is therfore attracting a future "now" that feels more like that. the more I focus within that perception that feels good (say more than 17 seconds), the stronger I attract that reality into my experience.
+
+don't worry I got this :) we're all headed right for what we all want (including those trying to steer theirselves away from what they don't want). I'm certain that we're doing fine...
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
