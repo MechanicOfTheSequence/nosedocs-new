@@ -54,11 +54,42 @@
   - maia
   - originally venus
   - later, minerva (athena)
+- https://en.wikipedia.org/wiki/Kothar-wa-Khasis
 
 #### apis (the bull)
 
 - herald of ptah
 -
+
+### confusion of jupiter/set and hera/venus.
+
+in egyptian mythology, osiris appears to be saturn by all accounts. and seth appears to be jupiter (not mercury), as his sister-wife is nephthys making her hera/juno.
+
+neith ia interesting because she is similar to nephthys, as the consort of set, but referred to as the cow goddess. the cow goddess is hathor (venus), but she has additional similarities to venus as well.
+
+however, in mesopotamia, anatu is the consort to anu (main sky god), and is the mother of ishtar/inanna/astarte (queen of heaven). anatu has storis on being quite destructive like sekhmet. I figure sekhmet must be an earlier incarnation of venus -- probably when she was not in the orbit she's in now.
+
+I theorise that sekhmet and anatu are the goddess depictions of the *comet* venus (likely recently ejected from jupiter), and inanna/astarte/ishtar is the goddess form of the *captured* regularly orbiting form of venus (as the new "queen of heaven", having now quite a brilliant celestial presence). I also say comet because with a long orbital period there would be a periodic ritual when she goes into battle (causing destruction) before her eventual capture. this could also explain her "virgin" status, still being quite young.
+
+anatu is said to have put and end to yam (neptune) (the beloved of el (saturn)), which fits quite well with the story of the athenians defeating the atlantians (atlas being the first of neptune's 12 children).
+
+there's another thing about metis (associated with wisdom, like promethuss), which is said to have been the mother of athena. metis is prophesied that she will have children by zeus so powerful that they will overthrow him. zeus tries to prevent this from happening, and somehow vulcan aids in the birth (in some accounts, "born of triton" (so maybe neptune?)) and then athena emerges fully armed[^1] and ready for battle. this fully armed bit may be a reference to that she will be rapidly entereing into warfare/destruction after her birth (aka anatu/sekhmet).
+
+the swallowing up the mothrer bit (both jupiter and saturn) may refer to some effect that happens during the process these planets go through when they're procreating. I can imagine that if there was a big cloud of something, it may look to them like they "swallowed" the newly emerged planet.
+
+the part about vulcan hammering may refer to some effect that the takes place on the planet which dislodges (through some sort of impact?) a piece of the planet.
+
+however, this could explain athena's birth, but it certanily wouldn't explain saturn giving birth to jupiter, as jupiter is larger than saturn. however, I may note that we would wonder how I, being slightly larger than my mother could have possibly emerged from my mother. if planetary creation is something that happens as a product of fusion, it would be primarily an electrical event. not enough infermation to know yet, though I do want to know how to make planets myself, and certainly that is one of my goals I have for myself.
+
+dumuzid/tammuz is also said in the epic of gilgamesh to have been one of ishtar's past lovers. tammuz gets a broken wing and/or dies, which is kind of like the death of saturn. other reborn dieties are osiris (saturn/cronos), and horus. it's obvious to see the time connection here. horus (kings) clearly are the "reborn" atlantians, which are allowed the rule the fertile nile area, while set (the red one) which I'm assuming from the colour of the lower egypt hat (red), that they get pushed back into the desert areas of the levant, becoming the the phonecians. the horus kings (like narmer) seemed to have come up from the south in "upper" egypt.
+
+however the symbolism of the nekhbet (vulture) symbol for upper (south) egypt and the utu (cobra) for lower (north) doesn't fit with the previous suggestion, assuing you replace the eagle with the vulture and the serpent with the cobra. it should be the opposite.
+
+however, this does not solve the similarities between hera/neith/nephthys being the consort of jupiter problem. anatu was the daughter of el (saturn) and her brother was baal (jupiter), which would make anatu hera, if she is jupiter's sister.
+
+horus ruled the black land and set ruled the red land. black is often associated with saturn and red with jupiter (minoans, phonecians).
+
+it appears that el is saturn and baal is jupiter. interestingly enough,
 
 
 ### velikovsk's planet gods:
