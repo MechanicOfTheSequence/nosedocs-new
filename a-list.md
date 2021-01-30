@@ -337,3 +337,17 @@ yesterday, mom was watching a TV program (dunno which one it was), and there was
 last week when I was listening to @[abe-now](2020-12-27 p2 29:16), I could feel quite a strong attraction from the single mom that wrote in there. I had difficulty finishing the episode, and I still haven't finished it. whatever. anyway, yesterday I wrote the section there about basiling out on the month of writing in my book, for reasons: @[noseblog](2021-01-27 18:09). when I woke up this morning one of the reactions was that actually one month had passed since that episode, so while I'm being difficult, it still did happen happen after a month.
 
 anyway, so yestreday when I was listening, I could feel her even stronger still and also quite a bit this morning too (though obviously it's gone now), I still want to invite her to join in if she wants too. kind of a crazy thing. I really have been thinking about that sequence of letters quite a bit lately and I can't express how impactful the interction was, even though we don't yet know esch other in real life.
+
+### 2021-01-30 11:44
+
+three(?) days ago, I think after writing @[noseblog](2021-01-27 18:09), I went to go to the bathroom and jaron had a picture of a girl on facebook up on his screen. I felt as if I wanted to keep going and not ask jaron about the photo, so I just went directly to the bathroom, however later I realised I felt some desire there. when I went back out of the bathroom, jaron moved away from the image, so I just moved on, but I've kept remembering it a few days in a row now.
+
+the other one that happened happened last night with a movie that mom was watching with a bunch of screaming kids in it. I kept feeling attracted to watch the movie while playing the gem matching game. I commented on the script of the movie being mostly shouting and jaron looked over. before that there were a bunch of kids doing stuff and I couldn't really tell what is going on. jaron looks over and says that he can't tell if it's a girl or a boy on the screen. I respond that I don't know cause my vision isn't good enough to make out defining features very well. I can kind of feel it's a girl, but due to the previous scenes I didn't know for sure. again, I decide that I was just going to leave it alone.
+
+however, just now when sitting in the sun, I remembered these two girls and also [Geek37](https://www.youtube.com/user/MrThemathgeek37)'s daughter that I had heard in the background of a video a while back. I wrote her down in the book, but since I keep getting reminded, I figure I would put put it here without problems[^1].
+
+finally, I kept feeling another set of feelings in relation to doug voght from diehold foundation, too. I don't believe it would be his daughter, so perhaps his granddaughter or something. I'm not terribly certain. however, I do feel good about it, whatever it is.
+
+anyway, so if any of these girls would like to join in, they're welcome to join :)
+
+[1]: see: @[noseblog](2021-01-30 12:04)
