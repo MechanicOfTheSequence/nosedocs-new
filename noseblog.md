@@ -5820,6 +5820,29 @@ in order to make this possible, I think the whole system would be JIT, and an ab
 
 [1]: this actually reminds me of something abraham says which is, "you can always tell by how it feels or what's manifesting".
 
+
+### 2021-01-30 12:04 - merging documents, attraction, and disasters
+
+while writing @[a-list](2021-01-30 11:44), I made a mention of two(?) girls that I had already written down in the paper version (a little orange notebook) sitting on my desk, and I could feel a bit of a desire to know what the difference between the documents are.
+
+for me, there really isn't a whole lot of difference between these documents from my perspective. the document itself isn't what makes the attraction. I think the act of writing it down just makes it more likely and provides a moment of focus. I've contemplated going back and merging the documents. however, I would have to do some serious cataloguing which seems like a lot of effort.
+
+the reason why I like LOA so much is becsuse it's so effortless. I don't need to worry about all of these details. I know that some people (like mr. motor) really like to worry about details, but I do not. I already know that it's working out just fine, and no matter what happens, I don't need the circumstance to make me feel a certain way. I've found how to feel any way that I want, dispite the circumstances.
+
+---
+
+speaking of which, this morning when I woke up I was thinking a lot about the entry I wrote yesterday and how it pertains to serenity and stuff like that. I was trying to figure out how to explain the users system in a meaningful way when I woke up. probably it'll be another entry after I give it a little more thought.
+
+anyway, right after that, there seemed to be a feeling in the air that what is being efforted to have happen is to try and get me to work on some computer stuff for a while in effort to delay the girls thing for as long as possible. as I mentioned in the previous section, it's really not a problem for me to feel any way I want to in whatever circumstance, so I just don't find this a problem and I certainly won't be fighting against it. I really don't mind the idea of designing or coming up with some ideas to extend the previous entry's first draft concept. it seems fun to me.
+
+however, at the same time, I can also feel some dissonance in the idea as well, and perhaps it's the different programmers which have thought about the idea since I wrote it, but there is a definite feeling of going away (or pushing back) from something unwanted, still. whether that's nosebook's motives for trying to keep me occupied or it's some beginning adjustments to designing a system which, from now on the system must be assumed to always be in a compromised state.
+
+I'm not sure really what the origin is. it could (probably) be both, so I'm just not worried about it.
+
+---
+
+anyway, in the mean time, what I could do, is to begin to merge this document with the paper one and also the previous noseblog as well. it'll be a little bit of work, but I think it'll have a good effect of focusing me in that direction. the reason being that I want to focus myself to move toward what I want.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
