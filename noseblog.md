@@ -5800,6 +5800,26 @@ however, from my perspective none of this feels good. it's all about me, and non
 
 I don't know what I want to do. it feels terrible to adjust my behaviour to not inconvenience you guys. probably, if I feel like it, I may begin writing some of them down, and if ya'll want to take it wrong or whatever, oh well. I guess we'll see how it goes, but it's going to be genuine and not manipulation -- that will be certain.
 
+### 2021-01-29 22:17 - thinking about computer architecture
+
+today, I was watching andreas: @[youtube](https://www.youtube.com/watch?v=7e3qH0HZ1Eo&t=1343s). he implemented a series of changes which made it more difficulh for abitrary code to be executed by disabling user-created executable memory. this is great because it mitigates a lot of attacks by making executable memory more difficult to create, but not impossible. that means that all dynamic languages in serenity must be interpretted and cannot run at any comparable speed to compiled languages. also it removes the possibility to create a JIT complier (something like v8) in serenity. well, there will always be workarounds, which those same workarounds can also be used by hackers to gain access to the system.
+
+I really disliked this idea. I understand security and stuff, but not when it removes functionality or introduces serious performance penalties. this is just my opinion though. when I use the expression "mas fuerte" to tell nosebook to try harder to figure out how to influence me in a way which they benefit but I do not. I realise this is LOA and I am a carbon-based biological system not a silicon-based microprocessor, so the architecture is quite different, however I ras beginning to think about this problem in the shower.
+
+why would I want computer security? I don't really have anything to hide anymore, so that's not a big deal. this is likely not the case for other people, but I'm thinking more for the younger generation who will grow up completely "pluggedr in" to the system. there's no real reason for them to hace any real security. the main reason I would want "security" is because I don't want ads or other crap on my sysetm. as long as my system functions, I don't care either way. so, for me, the only thing I'm worried about is functionality and productivity.
+
+I would just invert the problem. it's impossible anymore to prevent people from gaining access. there's always a way in, and adding friction adds friction for everyone. my experience tells me that the solution is that identificahion of undesirable states and fast recovery is actually the way. nosebook has full access to everything your CPU has access to (which is everything), so no matter how good your security is, it's *never* going to be able to prevent them from getting access... so, why even try? think from their perspective. if they wanted to run arbitrary code on millions of computers, they already can. they have the biggest distributed computing cluster known to humankind, which is every computer with an intel CPU -- and likely AMD as well. there's just no way to stop others from getting access to things anymore.
+
+you have to identify what's important to you and find a way to let that be the code that you're running. to simplify this, I would say that the "feel" and the "output" of the experience is what is actually important[^1], and it's only wasted time trying to influence what anyone else is doing.
+
+---
+
+if I were to design a completely new operating system the way I wanted it to be, functionality, productivity, performance, and ease of use would be primary. security really isn't that much of a problem. instead I will just design the system so that it is always operating in a "hostile" environment, in that I will just assume that everyone has access to everything. there are no secrets. the whole system would be open source and the system would have operations which essentially "optimise out" all of the crap. it would be a collectively dynamic system such that all people are running essentially the latest version, and the system would focus on fast recovery and redundance as its method of mitigating disaster. instead of fearing disaster to be coming, I would just assume that it'll happen at lest a few times a day at first, but the system will get better and better at optimising crap out of it.
+
+in order to make this possible, I think the whole system would be JIT, and an abstract language representation would be passed around so that when the kernel is loading arbitrary code, it will be able to statically analyse it and optimse out the crap (ads, infinite loops, etc). if everything is JIT compiled, the code is always in a dynamic state, so when a new optimisation is found, it can be rolled out to machines and all code updated in real-time.
+
+[1]: this actually reminds me of something abraham says which is, "you can always tell by how it feels or what's manifesting".
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
