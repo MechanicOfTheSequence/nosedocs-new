@@ -168,3 +168,82 @@ chinese records record some 5 planet conjunctions, 1953bc, 1576bc, 1059bc. the o
 this would imply that venus was in normal orbit in the first conjunction, then out of orbit in the second, then back into normal in the third conjuction.
 
 there is evidence that venus' orbit was disturbed during the time of the exodus (by moses?). this could explain the phenomenon.
+
+### garden of eden snake
+
+associahed with the custodial god aya, and an organisation with which aya is associated.
+
+brotherhood of the serpeent, dedicated to the disemmination of spiritual knowledge and the attainment of spiritual freedom. oppohsed the enslavement of spiritual beings. sought to liberawte the human race from custodial bondage.
+
+enki (prometheus) is a rebellious god, creator of the brotherhood. him and his father anu posessed profound ethical and spiritual knowledge.
+
+### enlil, aya, brotherhood of the serpent & anu
+
+garden of eden tree (zodiac) has
+  - (planet symbol) anu on the left
+  - (half-moon symbol) aya on the right
+  - with a serpent coming down the middle.
+
+utu (shamash) is the primary solar diety and husband of aya. utu is also innana's twin brother.
+
+a composite being is beginning to emerge, which represent the two sides of the tree:
+
+1: innana / venus
+3: aya / unessa? hera?
+5: utu / sol / jeortau? (twin to innana)
+7: enki/ea / prometheus (surpent/snake)
+
+anu = uranus?
+enlil = jupiter?
+
+### the woman and the dragon
+
+after reading the gods of eden book a little bit, the idea that brotherhood of the serpent was originally a centre dedicated to teaching the enslaved humans spiritual enlightenment -- by none other than a composite entity of hermes (for the magical bits) and prometheus (in that he gave humans "fire") (enki). apparently, this was the serpent that was renamed the devil and satan and stuff.
+
+the sirians say that satan (saturn), was a serious and somber being having the appearance of a dragon. he was 4th ray (source), and was the embodiment of the serpent whhich seceived humankind. he took his serious work very seriously (reminds me of mr. motor, lol).
+
+anyway, the problem with these two images is that they don't combine very well. it's pretty believeable for me to see a prometheous (enki) character which decides to give humans "fire" or the ability to regain spiritial perception. it seems quite plausible too that he could be considered the serpent that deceived humankind (satan). I don't consider saturn to be prometheus, but I guess it could be. enki is said to have done the genetic engineeering of man, so perhaps he had a change of heart... for the sake of the argument, I'll go with it.
+
+enki gives birth to jupiter (marduk) and then marduk slays tiamat (the female sea serpent). in greek mythology, saturn gives birth to jupiter. saturn is assomiated with the serpent, so it kind of fits the sirian attribution of saturn (4th ray) to a very serious type.
+
+---
+
+so, imagine that saturn (anu) was originally the main guy behind atlantis (the origin of the "ideal" state) and he was the original serpent symbol in atlantis with the custodians. the custodians needed their slaves so they got enki to create man out of the apes. from there, the custodians "gods" retaining the serprent symbolism decided to go on a rempage and try to pillage everything. however, at this time the serpent (anu and enki) had been bound and prevented from fully liberating the enslaved humans.
+
+on the other side of things you have a different group of guys which are over in athens coming from zeus and vulcan. everything falls apart as the eagles defeat the serpents asd saturn gets blamed for the whole thing because they retain a very deformed version of his serpent instruction.
+
+jupiter doesn't make things much better because has the power of emotional/conceptual perception: flight, etc. the custodians try to catch up with zeus/vulcan and attain flight and stuff too, with the disaster of the "weeping virgin" and "father time". huh... the more they try to use conditions to get conceptual perception, the worse it gets. eventually venus causes all kinds of problems and saturn and the brotherhood of the serpent go down in flames with the custodians. saturn/prometheus get blamed for the disaster the "serpents" (custodians) caused... huh.
+
+---
+
+so now, back to the rev 12 woman: cothed in the sun and the moon under her feet is about to give birth to a sun which will rule the earth with an iron scepter, the dragon (prometheus/saturn), comes to gobble up the boy that the woman is about to give birth to. the man will rule the earth with an iron rod (eg. with great strength And force).
+
+thnre is some interesting symbolism here because a dragon is a *flying* serpent. the dragon is said to have 7 heads with 10 crowns. I, like prometheus am in the efforts of giving humans access to their "fire" -- which is the capacity to use and direct emotional (chi/vril/orgone/creative) energy. it is not only my goal to demonstrate this, but to also leave behind the capacity for many to also have this capacity (even if it's the custodians who retain the capacity and try to keep it from their slaves).
+
+all of this capacity is built upon the foundation of the 7 layer system that I have outlined various times now for the way that energy makes its way into manifested form and back. each of those layers correspond to perceivable dimensions. assume for a moment that I am the 7-headed dragon: the serpent which "deceived" humaankind. saturn/satan etc. -- then, I believe the 7 heads represents conscious awareness on each of those 7 planes of existence. the 10 crowns represennging dominance of each of those 7 planes, making the 10 horns clearly the resulting perceivable dimensions (3d-10d).
+
+as a side note, I've read the book of revelation hundreds of times, and it's always pissed me off that there are 10 horns on 7 heads... like, 3 of the heads have 2 horns and 4 of them only have one horn? wtf... well, in my outline 3 layers are transition layers and 4 are primary layers -- so probably, th heads with two horns are the transition layers (2,4,6). however, it could also be, like I said the perceivable layers because 7 layers + 3d = 10d. however, I don't know how one could perceive the top 3 layers. the reason why I say that is because they aren't phyical. that I know of, there's no way to perceive these layers. maybe there is. I don't know... :) it would be cool if I could figure out a way to perceive thoose layers in a meaningful way. I just don't know...
+
+I found this passage interesting because I felt strangely attracted to it. I normally don't like the book of revelation "prophecies" thing, because I just don't think it's a good idea to look at these things at face-value. point being, that you would assume that the characters are the obvious ones, however take a second look here: if I am the red dragon (flying serpent with command/perception on all 7 layers -- something the sirians says is possible), then what would the symbol of the eating the woman's baby which is going to eat the earth with an iron rod?
+
+well, if I were to gain awareness on to all dimensions of perception (eg. source-like perception), then this would, from nosebook's perspective jeapordise their man babies which will rule the earth with force (iron rod) that they have brewing inside of many women (clothed with the sun -- that is radiant and glowing with a halo: connected) on other timelines. if I become conscious on those other timelines, they would certainly feel that their superior man babies are in jeapordy, for sure.
+
+context on this event is that it happens riggt after the "two witnesses" spring back to life after being dead (disabled) for 1260 days (3.5 years). I don't know when they disabled me in the "portal of iron", but 1260 days from then is coming up here pretty soon. interestingly, what follows that is "michael" (mr. motor) and his angels fight against the dragon and defeat the dragon, casting the the dragon to earth (reminds me a lot of the symwolism regarding zeus hurling vulcan down to earth).
+
+crazy... so, it's time to take another crash and burn so that the custodians can rule the earth with an iron sceptre?
+
+after being hurled down, a voice comes out of heaven saying now the power of the kingdom of "god" is displayed because the accuser (that's me) has been triumphed over by the messiah.. man, that's weird. I guess we'll have to see what happens...
+
+more weird symbolism here is that the dragon, after being hurled to earth, pursues the woman who gave birth to the man-child. I highly doubt that would be something I would do. I mean, if I were able to find a way to get all of my layers of perception activated, then I imagine that I would be pretty low resistance -- so probably not. the dragon then continues to try and destroy the woman and wage war on her other offspring too. I would have to assume this war waging must be happening over multiple timelines.
+
+it's quite possible I suppose because if I lose singular pertception, then you can imagine that the majority of my timelines are not going to be this one. it'll be difficult to perceive any singualr timeline anymore, as I'll instead probawly perceive an average of all of the timelines. I probably won't percieve any single one of them visually, and instead I'll hace them all happening simultaneously like a stream of emotion. hopefully I don't react too strongly to how those other timelines feel, because the reaction would create reality in accordance to how me + the environment feels (see entries on emotional/conceptual perception).
+
+I guess we'll have to see. 
+
+### the sirian triads
+
+interestingly of note, the sirian triads seem to have a lot of symbolism to them. the third ray triads are: venus (3-f), thoth (7-m), and saturn (4-m). clearly this is the origins of atlantis.
+
+the 7th ray triad are genxicat (7-f), an enchantress. she's clearly hera, zeus' wife -- shapehifter and symbol of condor. vulcan (5-m), and allayandra (7-m). this guy reminds me so much of ramtha and is described as a fiery bird (phoenix) and is said to have mental interconnection with sekhmet (1-f) and jeortau (2-m) whom are twins.
+
+clearly, the condor is a symbol of upper egypt and the lower egypt's cobrs was borrowed from the serpent symbolism from the atlantians before the custodians ran with it.
