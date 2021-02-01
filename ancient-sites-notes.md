@@ -150,3 +150,21 @@ another depiction @[youtube](https://www.youtube.com/watch?v=XngvKGPIG_A), but w
   - mouse running up tree
   - mouse getting eaten by snake
   - cat sad cause mouse was eaten by snake
+
+### 360 day year
+
+velikovski assumes that the interactions between mars and earth caused the year to go from 360 to 365 days. this happend around 757BCE
+
+@[youtube](https://youtu.be/XcvfQ2eA61o?t=6446)
+
+rome rounded around the same time replacing etruscan culture?
+
+### 5 planet conjunctions
+
+@[youtube](https://youtu.be/BRIEWvJOP8s?t=3260)
+
+chinese records record some 5 planet conjunctions, 1953bc, 1576bc, 1059bc. the one in 1576bc is only a 4 planet conjunction?
+
+this would imply that venus was in normal orbit in the first conjunction, then out of orbit in the second, then back into normal in the third conjuction.
+
+there is evidence that venus' orbit was disturbed during the time of the exodus (by moses?). this could explain the phenomenon.
