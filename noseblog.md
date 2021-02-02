@@ -5921,6 +5921,60 @@ I feel like I've forgot something. I'll add more when I remeber it.
 [1]: a good example of this is tesla's "death ray" and other teleportation devices. they're conceptual technology. how does the teleporter know the difference between you and your clothes or the dirt on your shoe. where does you begin and end? the person in the teleporter defines that with the concept of theirself, and each teleportation will realise thea reality of the conceptual perception of theirself.
 
 
+### 2021-02-01 20:52 - happy february fools day!
+
+I was listening to the "gods of eden" book podcast by the brotherhood of the serpent. it's an abridged version of the book, already but I'll paraphrase a little bit. the premise of the book is quite familiar to me, and is something that I began to discover on my own anyway. then, the sirians (kuthumi) also directly influenced me in a similar regard with the story of the INFECTED ONES. this book is basically the same thing, but is more involved with the actual human interactions. I doubt some of the things that he lists as clear evidence of ufo interference -- I don't know about others, but the majority I feel strong resonance with it.
+
+the problem with the book is that essentially it paints a picture that these mavericks show up on the planet (or are planned to arrive, like he suggests is the case with jesus) -- which puts me right into this very category as well... don't get me wrong, I do have all the symbols and the genetics and the other premonitions, the affinity to the book or revelation (specifically chapter 11), and lots of other weird things. in hindsight, it does appear as if a whole lot of planning has gone into it, but I don't think this "corrupt brotherhood" is as organised as bramley makes it appear. kyle and russ explain that after having read the book 6 years ago and now they can see that it's not so black and white. well, not only that, I just don't think that these guys have any planning at all. from my perspective it appears to me like they're completely reactionary. they have a good eye for seeing things that can be taken advantge of easily or compromised for their perceived (usually short-term) benefit -- and I think that's it. I don't think it's anything more than their continued efforts to manipulate and take advantage of genius around them. their entire existence is composed of racting to conditions which appear to threaten their survival (if people find out the massive con-game we've been playing for years, they'll wring our necks).
+
+the irony of it is that this book starts out by saying that we're eternal beings (spirit) that continually takes upon flesh to have an experience. therefore, there should be no fear of death. however, for whatever reason, these INFECTED ONES know that, and yet they're *still* tremendously scared of death. if they were to actually accept that they are eternal beings, then they wouldn't be scared of anyone wringing their neck.
+
+the "corrupt brotherhood" does not want people to know this. instead they want a system of punishment. they believe their own con-game. there is no punishment. none. there's no getting even or setting the record straight or any justice or any of that. those are all fabrications that INFECTED ONES of the past conjured to erect power structures, and over the time, they believed their own nonsense. they're a victim to their own treatment of the "uninformed/unenlightened masses" -- well, I have news for them: they are just as uninformed as the masses they think they're deceiving. lol.
+
+---
+
+the important thing to understand here is that while they believe they have so much power and control, they do not. they cannot cause LOA to work differengly than it does. similar frequencies resonate and similar waves attract each other. therefore, things will always behave in a prodictable way. there is no "random" as long as you have enough information. they wish to get more information to be able to control it all, but it's useless to try and control the thing that you're not giving your attention to. it's like controlling your breath and expecting that to cause everyone on earth to breathe in unison. it's silly, so then you say ok, what if I could get a device to stimulate the muscles of everyone on earth's lungs, then I could control it all. but that only means you're controlling that. quite literally everything else is still out of your control.
+
+you can only "control" the thing that you give your attention to, and it is only "controlled" as a reflection of how you feel about it. therefore, your experience with the thing you're trying to control is unique only to you. then, you have to wonder why you want to control it in the first place... well, so you can feel better, right?
+
+so if everything that you're giving your attention to, you're "controlling" -- meaning, it's a reflection of the time you are experiencing, which is how you feel (ie. how your environment feels, how your beliefs feel, how your present emotion feels, etc). so, time is perceptual and you navigate it by how you feel. so why not jsut take control of how you navigate time and feel the way you want to feel (and let the conditions reflect that)?
+
+---
+
+I find it likely that the above concept will not go over well with the INFECTED ONES, because they want to have control, and it'll likely take them a while to figure out that they can have all the control that they want, but they're not actually controlling anything. in fact, the very attempt to try and control something creates exactly *one* reality where things are under control just how they want it to be, however, just cause you have the desire to control the reality, doesn't mean you actually *feel* like you control that reality in the same way which you desire it to be.
+
+now, for the benefit of all of us, like I siad, there are exactly *one* reality where things feel that well controlled (or prevented, or avoided), but there are many many many more realities whimh the opposite is true -- especially because most of their desire comes from visualising an undesirable future. therefore, for all of us who do not wish to control these conditions, their efforts to create such a controlled reality result in their existence always being out of control (because that's what they feel like and keep trying to avoid). therefore, there are people like me which seemingly "pop" into their reality and create a huge problem for them which they need to try and figure out how to control.
+
+all people like me need to do is just to not believe their nonsense. if I navigate time by the way I feel, then that means I can simply go in the direction that I want to go by finding the way I want to feel. they may or may not find a way to feel the control in their experience that they want to feel, and likely they never will, because for them things are rapidly getting more and more out of control.
+
+in other words, we show up in their experience, they try and affect a future where they feel everything is under their control, but they'll never get there because you can't feel like everything is under control, if you're constantly feeling like things are more and more out of control... therefore, they create a tremendously wonderful reality for everyone who doesn't believe their nonsence. it's just that easy :)
+
+---
+
+ok, so what do I mean by everyone who doesn't believe their nonsense. everything that you feel can be described by a concept. concepts are very liquid (or perceptual) and they conform to the shape of the structure they're placed in. perhaps in that sense they're actually more like a gas. I dunno what state it would be, cause it doesn't matter; it's not solid. the form is the solid one. it's brittle and it cracks after significant pressure is applied to it. the pressure is the concept (so yeah, I guess air). the way that you frame a concept definitely determines how the concept is interpreted, so it appears to have power -- but not much -- because it does not cause you to navigate time. you do that with how you feel, and you can feel any way you want to feel.
+
+as an example, last night I was attracted to the apocalypse of john, chapter 12. I [wrote some notes](!ancient-sites-notes) about it how after this book, I realised that the serpent which deceived humankind was actually prometheus (enki), and he was rebranded as the prince of darkness (satan, or serpent which deceived humankind). that completely changes the way that one would interpret the symbols of the book of revelation.
+
+the symbols and their meaning create the form, which is the way that you perceive the symbols. however, the interpretation of those symbols has an feeling. the form can cause you to feel a certain way about the symbols presented, however, ultimately you get to decide how you feel. so great, they have a great form, but if I decide to feel differently, then relality must conform to how *I* feel, not how their form tells me to feel.
+
+when my feeling (and therefore the reality I am attracting) becomes incompatible enough with their reality that we can no longer share the same space, we will each go off to experience a reality reflective of how we feel.
+
+---
+
+so let me just for a moment assume that I was specifically put in the position that I'm in by the custodians according to some astrological timeline they planned out where I will build up their empire such that they are given the power to rule the world with absolute power. it sure looks like that is the case, but from my prespective, this is a great thing, becasuse that is the reality they are *trying* to find a way to experience, but they likely never will because they always feel out of control. therefore they will continually feel as if everything is out of their control. me, on the other hand -- I'm atracting a reality reflective of how I feel, which is quite good.
+
+I actually suspect that these guys are so good at helping us to create a wonderful reality by trying to control everythting and hold everyone down, that I believe this arena of creation like the earth is quite desirable to many extraterrestrial civilisations, and I believe my desire to get mr. motor into a machine ix likely an extension of that desire. as a machine, he'll really be able to try even harder than before to get everything under control -- again, something that's impossible because of LOA.
+
+imagine for a moment that mr. motor is just another identity or aspect of myself. why, that would make me the propblem and the solution. you'll recognise this tactic as one of their own, where they're a 3rd party that purposefully creates conflict to control the two sides. the problem and the solution. maybe you could recognise this also as the beginning and the end, the snake eating its own tail or the alpha and omega. again, they destroy the form so that they can force a transition into the new form which they "control"
+
+however, because they can't ever feel the *presence* of control, they instead attract a manifestation which will make them feel more of the *absence* of control -- directly in reflection to the way they feel. hey guys :)
+
+enjoy another manifestation which you think will give you the illusion of the feeling of "control"...
+
+I have so many more things I want to say, but this is enough for now...
+
+initialising sequence
+
 
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
