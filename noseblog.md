@@ -6064,6 +6064,62 @@ the other things are to find the contrast between feelings of in control and out
 
 [2]: more on this soon in regards to the 1st ray triad (the trinity) of atlantis. it's way too much for one entry.
 
+
+### 2021-02-02 22:50 - love your servitude
+
+just watched @[youtube](https://www.youtube.com/watch?v=caCkMX6YdYU), where I had a relatively strong negative reaction to the quotes at the end. the first part of the video is an interview with aldous huxley, which I quite enjoyed. aldous blew my mind quite a bit as a kid with the book "doors of perception". I liked brave new world, but not that much. I really liked doors of perception.
+
+the second half of the video are some thoughts by orwell about the future of humankind. he has a grim outlook on things. I can understand, as it seems this is the latest version of his dystopian vision for humankind. I first got orwell's 1984 book around the time that I was at dad's house (maybe 21 or 22). I remember, I had just met janine around that time and I really liked her. when I was reading the 1984 book, the beginning part of it -- the book is arranged into 3 sections, essentially, and the first part is the best part. the character in the dystopian society (winston) first gets a romance going with julia. I remember I liked the first part. however, from there it begins to take a downturn in the second part and by the third part I remember I didn't enjoy the book very much anymore. I think I kind of forced myself to finish it, because that's what you're supposed to do with books, but by the end I didn't like the feeling it left me with at all.
+
+anyway, orwell is a totally different person when it comes to dystopias. interestingly enough the bad-guys in 1984 is called "the brotherhood" (lol). they seek to try and keep everything in order by having each person occupied with what the other person is doing. by keeping people constantly preoccupied with the actions and behaviour of others, they will never turn inward, always being distracted by the behaviour of those around them.
+
+you can notice this a lot in me it's very difficult for me to properly process my world in the presence of others. being so sensitive to how others feel, I simply must get away from time to time and reset back to the baseline. if I don't, then I have no good way of mzking a comparison. think of it like a lab experiment. you have to be able to isolate as many variables as possible in order to get a good picture of what is going on. experience the siuation in one way, remove something or add it, then repeat the same thing and look at the comparison (contrast) between the two experiences. that method of isolating variables is key to understanding what is happening in the world. this is why so many sages and great men were loners. that alone time is important for the contrast and to isolate the feeling of something.
+
+anyway, that form of contrast is kinda like controlled contrast. it is good for determinating how to navigate and is what I was talking about in the previous entry of manfucmaturing feelings. the opposite of that is uncontrolledr contrast, in which the experiencer has no direct control over the experience. this is like a movie or hypnosis, in which the experience is completely sequential or programmed. a game offers more flexibility (and also contrast), however the limits to the experience is determined by the program and therefore constrstrained to the dimensions of the experience provided wy the program.
+
+this is about where I'm at now. though I get a lot of time by myself, the experience is still quite chaotic and I've learned to be able to work within the parameters of the program. I go *toward* what I want because I can't really control the variables too well.
+
+I think this is kind of where the whole planet is heading in that respect.
+
+in the sense of being constantly preoccupied with what others are doing -- I just don't really have that problem. I don't know of anything anyone else is doing which can capture my attention, and being critical and trying to figure out what other people are doing wrong isn't really my thing either. I tend to go toward things that are enjoyable to me. a person can distract me for only so much time, before I really want to do my own thing. I have to be in control of my experience so that I can make comparisons. I love contrast, so I have to constantly find new things to compare other things to. from the comparison I derive meaning, but if it's meaningless or repetitive I lose interest. interesting things feel good, so I gravitate always toward that.
+
+I'm a bit of a special case though. like the video said, there's this 20% - 60% - 20% distribution between the extremes, and I don't categorically fall in to any of those. I fall into all of them. I exhibit all of those behaviours depending on the subject. I suppose it depends on what matters to me.
+
+the most important thing to understand when trying to control people is to ensure that they never figure out that they can feel any way they want to feel. previously our culture taught us how we were *supposed* to feel. this isn't going to work for much longer. hollywood and media programs us and tells us how to react to / feel about the symbols. I think the next major form of control will be to convince people that the symbols are a physical expression and not a feeling.
+
+it sounds like the opposite of what hollywood already does, so to illustrate what I mean here I will explain it with the symbol of freedom. freedom is a feeling. beyond the feeling of freedom, freedom is actually the ablity to feel or desire *anything*. however, it is not perceived in this way. in order to affect that people begin to feel they can feel or desire *anything*, one must convince them that this symbol of freedom is the physical manifestation of that feeling or desire, not the actual freedom to feel or desire anything. to explain, imagine for a moment that someone wants to feel free(dom). they must have the physical manifestations of that feeling, but not the feeling itself.
+
+imagine they get something like a lot of money or the ability to have sex with whomever they choose. they now have the manifestation of the feeling, and then the feeling itself, but then that feeling will eventually wear off and they'll realise that the money or the sex or whatever isn't doing it. now, they need to search for another symbol of that feeling. they will endlessly go from the manifestation which gives them the feeling of freedom (temporarily) then as the manifestation becomes normal, it'll turn to boredom or dissatisfaction (depending on the expectations). then another symbol of that feeling is pursued to try and obtain the feeling of freedom.
+
+freedom, though is not a feeling. freedom is a *knowledge* or basis upon which you can build your concepts. it is a form. that form is the knowledge that you can be do or have anything you want... or, mere specifically, you can *feel* any way that you want to feel. the limiting form says that you need the phsical manifestation (symbol) of that feeling to be able to feel it. the true form is knowing that as you feel what you want, the manifestation will reflect that feeling. it's obvious from our many discussions on this, I'm sure.
+
+there are other such things where the symbol is the knowledge, not the feeling. I'll leave you guys to figure this out. get controlling!!! :)
+
+---
+
+finally, I strongly disagree with the below quotes (by frederick douglas 1818-1895):
+
+> when a slave becomes a *happy* slave, he has effectively relinquished all that makes him human
+
+when a slave becomes a happy one, his reality will be a reflection of that happiness. happiness is a short jump away from freedom, therefore not a slave anymore. a happy slave will find their freedom eventually. one must make an effort to ensure the slave does not ever discover happiness. misery is a difficult state for a slave to continually be in. therefore, I suggest, a content or satisfied slave more than a happy one.
+
+> to make a *contented* slave, it is necessary to make a thoughtless one
+
+again, this I thoroughly disagree with. a thoughtless slave is not content. a thoughtless slave is an oblivious one. obliviousnes is not sustainable though. to make a contented slave, one must make a *thughtful* slave. they must see and recognise their conditions as something that they want. this may not be optimal, as people get tired of stuff, especially in today's high-speed world.
+
+thoughtlessness (obliviousness) increases desire (take my case for example), especially in the case of the non-suggestable 20%. it's probably the opposite for the other 20%. the content or satisfied person it's necessary to have the slave recognise why it is content. this is obviously very backwards for some people. I watch andreas make all sorts of comments about how satisfied he is with some thing, and he is very thoughtful about it, as if he (or someone else) is trying to convince him of it. I think in that case, for example, if andreas was thoughtless about the thing (feeling it istead of thinking it), he would be content, because he could feel the essence of thing (nothing is inherently bad, so switching to feeling makes it easy for one to be content). so yes, in his case it would be proper to switch to a thoughtless feeling-based approach.
+
+however, in my own case, this would have terrible consequences. I am the polar opposite in this way. by nature I am not content and when I think about and recognise the things around me, I can feel them in their purity, and then I feel content. I do this all the time. if I were unable to think and appreciate the things around me (like if I were in constant conversation with other people), my discontentment would rise rapidly. I feel most content when I'm alone and thinking by myself. inability to think about and recognise (feel) the things around me, makes me very discontent.
+
+I'm not sure if a discontent slave is better than a content one. I also don't know if an unhappy slave is better than a happy one. I suppose it depends on the person and situation.
+
+---
+
+in conclusion, it likely depends on the person, but try and enslave me. I welcome the effort. I tried to lay it out as best as I can. give it a go. also try and see if you can figure out more of the *forms* which are theirselves an understanding, and not a feeling/concept. many feelings/concepts can form an understanding, but they are not the understanding itself. they aer but the shadow of this knowledge in the form of experience.
+
+:)
+
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
