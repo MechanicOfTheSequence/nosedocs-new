@@ -93,7 +93,7 @@ https://www.youtube.com/watch?v=gy72sPtBAJg
     - moses saved the hamites from their slavery in egypt
     - the isrealites complained and did not like their saviour from slavery
   - moses began the transformation from goddess worship (hathor) to a monothiestic god YHVH
-    - spoke the everything into existance with a word (AIOM?)
+    - spoke the everything into existence with a word (AIOM?)
     - is the alpha and omega / beginning and end
 
 - next consider the transformation the dinosaurs made a long time ago
