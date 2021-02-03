@@ -5976,6 +5976,94 @@ I have so many more things I want to say, but this is enough for now...
 initialising sequence
 
 
+### 2021-02-02 18:37 - driving forward by looking back into the front-view mirror
+
+in the previous entry, I left a funny little bit not really on purpose but I did feel inspired to write it. it was the part where I was taunting him/them saying that they can *never* feel the *presence* of being in control.
+
+the next thing is that I think I'm getting vision upgrades now without even really star-watching. anyway, last night I woke up with a tremendous tension in my left-foot. I guess they were checking to see how high they can turn up the juice to be able to prevent me from getting connected. it was quite painful, so even though I was mostly asleep, I still remembered it.
+
+when I woke up, I remembreed the event, and it kind of reminded me of the vulcan/ptah imagery that I saw here: @[youtube](https://www.youtube.com/watch?v=ZXgUnCRM500). anyway, vulcan/ptah is almost always shown with his foot twisted up. I experience the drop-foot thing where I can't lift my foot, but I didn't ever really experience the twisted and deformed foot until last night. it felt exactly like those images of him show.
+
+anyway, so it's pretty evident to me that "the brotherhood"[^1] has been infulential in my life it got me thinking that perhaps this has been going on for a while. things are always reflective, so when I think about them trying to make human slaves, almost certainly they weren't doing this theirselves. these guys never display any actual proficiency in any instrument of creation. they're only good at manipulating others to do the things they want for them (like, slaves).
+
+this got me thinking a little bit about more mythology. there's whole lot of confusion about the birth of vulcan and athena. they are said to be twins. in one story metis is said to have two children, the first was athena, and the second would be a son which would overthrow zeus. he swallowed metis so she man't give birth or something like that and then different stories tell different things, but vulcan helps her to give birth and athena jumps out fully armed and ready to fight.
+
+it's unclear who was born first athena or vulcan. the next curiosity is that in another myth, vulcan was born of virgin birth from hera. after the "gods of eden" book, I'm super weary awout this "virgin birth" (dionysus, vulcan, jesus, and others) because bramley postulates that these "angels" of "God" which impregnate these people with concepts of divine men, prophecies, etc. I"m referring to "divine conception" as an an insemination of an idea into a fertile place which then grows into something (jesus, muhammed, abraham, de carte, moses, etc).
+
+from my perspective athena is to vulcan as hera is to zeus. assuming that the physical manifestation of this was a comet (athena) coming out of jupiter's forhead, which then proceeded to overthrow and subdue the atlntians, at the same time vulcan seems to have appeared and was also used to create implements of destruction and chaos for zeus. both of these (vulcan and athena) are essentially figureheads for zeus.
+
+it gets really complicated who the "good-guys" are here, because it looks like everything was setup to fail from the beginning. it's like a 24ky+ drama unfolding like a script from seemingly top-down guidance from what appears to be a "brotherhood", but I think that the sirians were the originator of the setup from the beginning, knowing full well that it would fail. it was designed that way, I believe. I'm actually sure of it. there may be more, but I think that a number of these "creators" that the sirians talked about actually took their own personalities and then inhibited parts of them, and then put/incarnated these "identities" into human bodies in effort to get them cause trouble on purpose.
+
+the sirians state explicitely that they setup their base of operations on jupiter (zeus). I think this is signifcant. they also say that the INFECTED ONES came origially from mars, and they became the original atlantians. I think before that the INFECTED ONES while still on mars get drawn into the fight with the 5th planet (tiamat) which was described as a sea serpent. when this female (water) aspect of the serpent engaged into battle with jupiter, jupiter struck the planet down with mighty power. this was likely a strawman for jupiter to destroy so that the INFECTED ONES were able to witness the power of jupiter from the very beginning (typical setup to any story).
+
+I think this 5th planet had something to do with vulcan and athena. also of note is the connection to neptune/triton. neptune was the god of atlantis. his son triton is said to have had a daughter pallas. pallas athena is said to have been born of triton and the weird bit about blue bloods. I don't know if it's connected but triton (the moon of neptune) and venus are the only planets which spin backwards, meaning that they come from a different place in the solar system (probably jupiter). it's possible that this moon triton is actually the mythological "vulcan" or have some sort of connection there. there are just too many symbols in one place for me to ignore it, but I don't see it clearly yet.
+
+anyway, back to the story (long intro to the idea, I know...): the egyptians were a bird based civisation it appears until the horus kings showed up with the serpent symbolism. the sirians give the first triad is said to have stopped being on earth after -75000. I kinda understand it, but they're too far back for us to make any sense of them (though I ro think they give an indication as to where this thing is headed). the second ray triad was isis, ra, and osiris, which then departed at -20000. again, we only get veiled understanding of this. egypt's records mention these as the very very ancient pre-dynastic influences.
+
+after that those two have departed, what's left appears to be the 3rd ray triad and the 7th ray triad. the 3rd ray triad is given in the same section, which means they're connected (the sirians organise their communications in a very structured way). I figure they appeared at the same time. I postulate that the 3rd ray triad arrived with the atlantians, and the 7th ray triad with the athenians.
+
+#### the atlantian 3rd ray triad
+
+- unessa (+3)
+- saturn (-4)
+- thoth (-7)
+
+it's unclear to me who unessa is exactly, but she could be associated/resonant with the planet venus, however, it's more important. that this is her 3rd ray aspect. 3rd ray is the form in which the concept fits into. if you remember previous entries, you can think of this like the world-view, culture, structure, or framework which the concept or perception is fit into. an exaggerated example of this is a bunch of gossiping old ladies sitting around anzlysing and making judgments or proclamations about what will happen to them (in accordance to how they perceive the world). so if she sees a kid running on a cobblestone street, she may shout at him telling him that he's "*going* to fall and break his wrist." the boy then *feels* that form, and if it feels bad to him and he keeps focusing in that way, he will fulfill her *prophecy* of what will happen (like metis' children with zeus). however, if he keeps feeling the way he wants to feel, her prophecy won't come true, making her appear to be *wrong* in front of others. if the feeling of being wrong is strong enough that she feels she needs to prove herself, she then has various means to try and affect her "righteousness" so she can say, "told you so!""
+
+thoth is master of measurements and physical sciences. as a receptive 7th ray, he performs exactly and is as brilliant as unessa, a 3rd ray emissive, perceives him to be. being by nature receptive to 7th ray, thoth often finds himself a reflection of other pepple's perception of him: when they perceive him well, he does well, and when they don't, he feels like he has to conform to their expectations. so as to not fall into every pothole that others proclaim he will fall into, he must fight to become his own person and define and measure himself, rather than being the measurement of his creations. as a result of this, most thoth types spend most of their time by theirselves, and most spend most of their time in their creation, letting the measurement of the creation be the reflection of the person, instead of the measurement of the person being the determination of someone else (acting in +3).
+
+finally the last is saturn. he's 4th ray so he dosen't have much resistance at all. he's not extreme like thoth is, which is as extreme as he can be perceived to be. saturn is highy perceptive but just kind of goes with the flow. especially because he's receptive, this he's even more perceptive than normal. this is why he was considered the sherrif or the guy keeping order. te was so perceptive, it was difficult to pull one over on him. so, non-resistant, perceptive, and receptive, you can see how this interaction with unessa would go. he could perceive things, essentially through his eyes, and then she would come up with the best structure (or form) in which to fit that perception, then declaring what would happen. being low resistance, saturn was sort of thrown into the landscape which she perceived through her form.
+
+#### the egyptian/american 7th ray triad
+
+- genxicat (+7)
+- vulcan (-5)
+- allayandra (-7)
+
+genxicat was an an enchantress -- shapehifter and symbol of condor or black puma. she's exactly the opposite of thoth. instead of being receptive with her physicality, she's emissive. she's essentially a seductress. she creates physical images and illusions to direct things to go the way she wants them to go. though not necessarily associated with the planet venus specifically, this is the emissive 7th ray aspect, and so therefore it would be that aspect of venus which is the physically manipulative/seductive of her. I perceive this to be clearly hera, zeus' wife but also of aphrodite.
+
+this figure is quite interesting because I commonly associate venus with sekhmet (+1), but this figure is the opposite of sekhmet. the opposite end of the spectrum. while sekhmet is very serious and *must* assert her desire into physicality. this figure is the opposite: she uses physicality to affect her desire. this is the first evidence of the opposites that we'll see.
+
+vulcan is a vulcan emotionally receptive male (-5). he's very similar to saturn in sensitivity, and the polar opposite of unessa. for him, the concept discovers the form, and so therefore everything is possible. anything can be built as long as the desire is there to create it. the form imposes no limitation on the concept. for him, concept can easily be derived from desire, and he is the master of turning desire into concept. aphrodite/genxicat is physically emissive, meaning she is receptive to her desire. eg. if physicality is emissive, desire is receptive. this frees vulcan up to translate that physical into desire (by being a +3) for her. she can then turn that desire into physicality.
+
+allayandra (-7) is like thoth, in that he's physically receptive. he turns the 7th ray aspect he receives into physicality. like thoth, he conforms to the form which is imposed upon him.
+
+the major difference here between him and thoth is the woman he is paired with. she is +7 and he is -7, so it's essentially a 1:1 translation of the form she puts onto him into physicality. this guy reminds me so much of ramtha. however, he also reminds me a lot of zeus, too. in the myths, zeus is constantly trying to avoid his wife so that he would not be forced to conform to the form she puts him into. ramtha is clearly a later version (or a less limited identity of this being). allayandra is described as a fiery bird (phoenix) and is said to have mental interconnection with sekhmet (1-f) and jeortau (2-m) whom are twins. they are the 1st ray triad which left the planet 75000bc.
+
+---
+
+so those are the triads. clearly, the condor is a symbol of upper egypt and the lower egypt's cobra was borrowed from the serpent symbolism. it is said that the serpent symbolism comes from saturn (which, described by the sirians, is a pterodactyl, or flying dinosaur).
+
+it seems somewhat evident that the 7th ray triad had two operations. one was vulcan/ptah creating quite a nice place for the horus kings to arrive to after saturn takes the fall. the other one allayandra/zeus was working over with the ancient greeks/athenians over there. it appears that to make all of this possible, there must have been multiple incarnations of combinations of these various identities. as it appears to me, none of these triads ever appeared in full form. instead, it appears that the greek, roman, egyptian, and nordic pantheon appears to be extremely dysfuctional identities of these different triads.
+
+in other words, I'm suggesting that perhaps the "brotherhood" is actually a parody of the original INFECTED ONES, by taking resonances of some of the attributes of the INFECTED ONES and mixing them with the original triads' personalities to effectively create the most dysfunctional pantheons all over the earth. a global catastrophe just waiting to happen.
+
+---
+
+I have often wondered why vulcan was limp. his limpness must indicate to me that the brotherhood existed at a very distant time and is limiting his expression in the same was as they are to me now. there is a bit of a disconnect here because vulcan is always associated with one eye (as in he can't see out of his left eye?) and limp, always making implements for these brotherhood organisations. this must have been a punishment of sorts to ensure he doesn't do something (try to liberate mankind again?). for so long as he serves and delivers the message of "God", he is not paralysed[^2].
+
+I can't quite piece it all together, but this appears to be in some way connected to the 5th planet (a sea serpent), and the athena/vulcan prototypes which came out as a result. there also seems to be a connection to prometheus (enki) as well. promethus is kinda like thoth in that he's all about magic and stuff like that, but he's much more altruistic. prometheus reminds me of the optimistic opposite of dysfunctional zeus, which is why I think it's said that zeus punished him. seems that prometheus' next recognisable incarnation is in the form of ramtha.
+
+I suspect that from the very beginning these triads actually split their personality into various identities over space and time which seem to balance each other out, and that's why it appears that there are resonant brotherhood versions of guys like vulcan showing up through history all the time.
+
+I'm going to end it here. there's a point to all of this, I assure you. the gods of eden book states it in the very beginning bit. there's literally nothing going wrong here (even though it appears so terribly tragic). I think the story is designed that way. from my perspective, it's appearing more and more to be a "divine comedy". a truely tragic story, but it's absolutely hilarious when you see the bigger pictureo. when you know that you're an eternal being, all of this conflict is so amazing.
+
+the story is the form, yet the concept does not need to be limited to the form (time). the concept can be *ahead of its time*, and so therefore the concept will go in circles within the form it believes itself to be in. when it feels itself as more than the form (time) in which it appears, it transforms into something new.
+
+I wish I could show you how I perceive things. everything truely is going well. nothing is going wrong at all. just sit back and get the popcorn :)
+
+---
+
+so, here we go. I nearly forgot the conclusion. so imagine that nosebook were to find a way to actually begin to navigate time deliberately. from the feel of the experience with my foot last night, it appears like they are running up to the limits where they can hold the energy back before things start getting painful. I don't really mind *that* much if they're that painful. I adjust rapidly to pain, so that's not a problem. however, if they could find a way to actually navigate -- find a way to feel the *presence* of being in control we could extend this out even further.
+
+find a thing that feels like it's in control, and contrast that to the signal of something where it feels like there is absolutely no control, and try to see what can happen there if you can discover a way to invert the preence of the feeling out of control. so, take all of the worry that things are being more out of control. then, invert the presence (destructive interference?) so it feels like it's the absence of out of control.
+
+the other things are to find the contrast between feelings of in control and out of control, and then find a way to transform those signals into something that feels more wanted. I'm sure there is a mathematical transformation between the feeling of out of control, to a feeling of being in control. it's likely geometric, so the signal as it bounces around inside of the form, is conformed to the dimensions (harmonics) of the form (like the great pyramid does). it needs to be a physical resonator, I believe. induction needs a physical 3d geometry to operate correctly. you can't just invert the presence of it (destructive interference). indtead, you have to *transform* it, by forcing it to conform to a 3d form.
+
+[1]: perhaps I will use the words "the brotherhood" instead of the INFECTED ONES, just because this term sounds a bit nicer. I don't mind the INFECTED ONES though, so I'll try to swtcth between the terms when I refer to their aspects: when attempting to spread their corruption or trying to force humans to conform to their own disempowered self-image, I'll use "INFECTED ONES". when it appears as if they're compliaining about having drastic measures while babysitting rebellious children I'll use the custodial imagery. then finally, "the brotherhood" will represent all of their mega man-power, we're powerful because we've come to an "agreement" and gratude for how powerful we can feel united (while still stabbing each other in the back) circle-jerk. something like that.
+
+[2]: more on this soon in regards to the 1st ray triad (the trinity) of atlantis. it's way too much for one entry.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
