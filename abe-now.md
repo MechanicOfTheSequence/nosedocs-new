@@ -1249,3 +1249,63 @@ it's kind of crazy to say that quite literally the knowledge of the understandin
 I don't want to see things like source sees them, because the limitations of my eyes will never compare to the the way they can "see" the same thing (infinitely more detail). instead, it's my ever consuming desire go be able to *perceive* things like source does. seeing is physical interpretation but perception is feeling the same way source does about the same thing.
 
 HUGE DIFFERENCE which, in my opinion, is quite substantial.
+
+### 2021-02-03 22:21 - (2020-01-02 p1)
+
+#### (48:23) - looking for positive aspects in the moment
+
+as they were talking about this idea after telling the story of esther with her camera, I was thinking about how so many photographers get so much joy out of photography, not necessarily for the photos theirselves, but more for the focus that the camera beings to the situation. by wanting to take a picture, the photographer is attracting more unique and lively situations, and so therefore they are more likely to happen -- cept, perhaps if you have split energy about missing the shot, then perhaps that will be what happens. however, it seemed quite a revelation to me how just pointing a camera at something increases the LOA intensity.
+
+from that, it's easy to see now how a camera is quite a useful tool to bring out the positive aspects in the situation. I suppose it could also work the opposite way though too. the other day I was thinking about orwell's 1984 book where the brotherhood inspires people to search for (attract) misconduct in others and to report it to the brotherhood so that their behaviour could be punished appropriately. it's pretty obvious how this could easily become a way for nosebook to train their AIs to detect undesirable behaviour while at the same time keeping people away from the only relationship that really matters: the one with myself.
+
+this concept is interesting to me for a number of reasons because it's the opposite of what ahraham is explaining above. in orwell's vision, people would be focused outwardly, not very unlike the world we live in today, with the intended purpose of keeping them externally distracted (internally unfocused). the idea here is that if you are focused externally all the time, you never focus inwardly, which is caring about how I feel instead of adjusting my behaviour to conform to how *I think* other people outside would react to me.
+
+---
+
+it's easy for me to see hor important it is to be inwardly focused and to care about how I feel (usually only doing the things I feel like doing). however, this image that abraham is presenting is an entirely new concept for me. it sort of paints a different picure because they are saying that by focusing your camera, combined with my desire to take a good picture, then LOA causes that desire to manifest pretty rapidly. the method by which this is effective, is that I am looking for positive aspects in that moment and so by lookiny for positive aspects, I see them (unless my expectation is otherwise).
+
+so, let's look at what this would accomplish if this were exploited by nosebook: imagine nosebook were to (secretly) give a bunch of nosey people access to other people's lives, and then nosebook could use the nosey people's reactions to those other people's lives as a classifier to an AI for recognising undesirable behaviour.
+
+it depends on the nosey people. imagine the nosey people (this is the symbolic moment of pointing the camera) were looking for tons of of super hot sex. well, exactly that would be much more likely to happen, just because of the camera effect of LOA. they are "looking for positive aspects". therefore, the only way for orwell thing to work would be to have people specifically looking for undesirable aspects/behaviour[^1]. therefore, in that sense, if nosebook wants to attract more undesirable behaviour from people, they would need to get people in the frame of mind that they need to look for and expect to find undesirable behaviour. however, since it's not likely to be very enjoyable (unless you're a very sadistic person) to watch, for example, someone beat their wife through the eyes, or experience it from the perspective of the victim either, this is probably not ever going to be a thing.
+
+instead, allowing people to see through other people's eyes, would actually only really have the effect of attracting more desirable things out of their experience[^1] -- in the long run. the reason I say in the long run, because of the aforementioned negative response to actually experiencing undersiable aspects/behaviour from the perspectice of the victim/perp. additionally, I believe again, in the long run, that if nosebook were to implement something like this, then the undesirable bits that the photographer could could attract into the experience of the camera or the situation, would actually cause people to have much stronger internal focus and much less concern over how others perceive them. the reason for this is obvious.
+
+in general, even analysing the worst possible situations, I believe it's a good thing. at worst, I think that this form of external focus (as opposed to social media) would result in stronger internal focus (after a bit of a bumpy ride as people get used to the increased speed it provides) -- and that actually in general it would greatly cause people to practise their focus on positive aspects[^2]
+
+[1]: wait, the reaction I'm getting is that this has been done, yet disaster resulted. I dunno.
+
+  maybe it has something to do with the "camera". there really are only three moving parts in this situation: the person looking through the camera, those in the scene, and the camera itself. in normal life, only two of these matter because the "camera" is not a conscious entity. this must be the determining factor. I'll have to think about this more. I also don't have enough data to say one way or another.
+
+  so, say for a moment that it's a simple situation of a father looking through his son's eyes. the son doesn't know that his father has access to his experience, let's say. it must have something to do with the photographer's expectation. I've often wondered how some people have gotten so many terrible or tragic pictures, yet others seem to get lots of great ones. I suppose it's because the expectations are greatly influencing the camera.
+
+  speaking from my own experience on this one. I noticed a lot of times, especially in relation to drugs, I felt extra compelled to do certain things I didn't ever previously feel such a strong desire to do -- like say smoking a "floor joint" or something. especially in spain. I think the expectations of the photographers greatly influence the camera and also the situation being recorded -- that is, until the person is so solid in theirself that it doesn't really make much difference. they are more concerned about how they feel internally. this is further evidence of the conclusion that I'm getting to above.
+
+[2]: which, I think is actually a whole lot more effective if nosebook is actually trying to hide stuff. it's your basic magician principle: keep the audience's attention on the shiny attractive thing, so they don't see what the magician is really doing.
+
+#### (50:21) - narrow vision
+
+I ave had a difficult time hearing what they have been saying. I have repeated the last 5 minutes 3 times now. I have a feeling there may be a reason for it. anyway, this last time, when I was listing, they were saying something like, "no matter how broad or narrow your vision is"... and I got a picture of mr. motor.
+
+so, I was thinking about how giving them all of this tecnology (even temporal perception) for them is still trying to do the impossible. I titled the entry, "driving forward by looking back into the front-view mirror" because it's trying to navigate into the future by looking into the past. when looking into the rear-view mirror the experience is much different than looking out the windshield because it's so much smaller. this is what I was seeing is mr. motor trying to navigate his way forward looking back into the front-view mirror. because it's so small it's hard to do effectively. what's the solution? look into the front-view mirror with a pair of binoculars. duh...
+
+in a past entry @[noseblog](2021-02-02 18:37), I was trying (mostly unsuccessfully) to continue on with the discussion I had in the previous entry about how no matter how much power or control the brotherhood gets, they will never actually get the control they are wanting to have. you can't get to a future where you feel the presence of control, by feeling the absence of control the whole way.
+
+therefore, I concluded that we should throw as many different forms of technology at the brotherhood as they can make use of, because they will never actually get what they're trying to do. it's absolutely 100% for-sure impossible for them to get. the only way they could get control would be to actually find a way to *feel* the way they want to feel, and therefore travel through time toward the realisation of that feeling. the feeling of control means that they will have completely control over their reality (which is a reflection of how they feel), so if they were to find their way to having control, it would be because they feel control -- which is the ability to feel the way they want to. see what I'm saying? if they can feel the way they want to, then they can feel all the control they want to feel, which is the ability to feel the way they want to. it's a circular definition of itself. if they only knew the control they seek is of their own emotional one, then they wouldn't try so hard to get control their externals.
+
+in other words, they they can't ever gain control, and no matter how hard they try to get full physical control, emotional control *always* trumps physical control. this is exactly what they're saying here:
+
+```
+teach yourself, your ability to focus yourself into pleasure no matter how broad or narrow your view is in this moment.
+
+and what you will como to see -- is that, like this camera lense that esther can zero-in or pull-back, that you have the ability to be as broad in your view or ar as narrow in your view -- and in *all* of it, there is the potential, the capacity, for indescribable pleasure.
+
+we can't make you believe that, but we want you to. it is our expectation for you, and when it is yours -- the deliciusness of your life will be indescribable.
+```
+
+so here's what I mean: imagine that you have a whole bunch of physical circumstances that are completely out of your control. consider that in the worst case you do not even have control over your vision. you may be very broad or narrow in your physical focus, however, what you experience emotionally is what really matters and it is far more powerful than the physical. as they say, the more I teach myself my ability to focus myself into pleasure (emotion) no matter how broad or narrow my view is in the moment, then -- no matter the physical focus, what will eventually happen is that the "deliciusness of your life will be indescribable".
+
+I say eventually, because it takes time and practise, but more than that focus is about momentum, so it takes some time. consider the 17 second rule. the longer you focus a feeling in a certian way, the more you attract a similar thought or reality that matches it. it takes conscious effort to get there. the conscious effort is the focusing bit, so it takes time.
+
+---
+
+what emerges here is a picture where on one side you have this brotherhood that wants to try their hardest to achieve something that is 100% impossible for them to achieve. what they can do is to make it really difficult to get there though, thereby extending the 17 seconds out to days months or years of cumulative focus before the thing manifests. the length of focus and the resulting manifestation is likely a caculatable thing if we were to have sufficient technology. however, it is almost certain that the brotherhood is here to stay, as a genius way to increase our capacity to focus and the indescribableness of our manifestations. certainly, it seems evident to me that marketing mr. motor to the masses will become a real thing.
