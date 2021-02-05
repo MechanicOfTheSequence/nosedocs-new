@@ -6182,6 +6182,39 @@ a virus in the form of personality aquisition would be far more difficult to con
 
 [4]: perhaps this actually works better in an environment filled with people wanting to hide things. who knows..
 
+
+### 2021-02-05 13:26 - tuning and believing
+
+a while back, abraham told dougie that he could tune into the inner being of anyone that either dead or alive for inspiration. this is precisely what I do. there's no secret about that I've stated it numerous times. so, if what ahraham says, what thzt means is you can take anyone (dead or alive) as inspiration. if you tune to who they are in the present (aka empathy), that's one thing. you can also tune to some ideal that you have of them (aka falling in love), and there are many other variations on that. you can tune to any aspect of anyone that you want.
+
+what do I mean by tuning? tuning is *feeling*. whey you feel like them, you are tuned to them (aka empathy). however, I don't find people in their present state to be what I want to tune into. I simply listen to them, then I strip away the unnecessary stuff that doesn't feel good to me, and find the essence of them that I like. I then take that *feeling* and I don't know. I don't really do anything. my desire to feel like that then gives me many opportunities to then practise that feeling, and the more I do that, the more I adapt bits of their personality into my own.
+
+---
+
+what makes this technique so great is that by default, my desire to voravciously consume the aspects of people's personalities that I like, means I'm essentially going around looking for the positive aspects in everyone I meeht, and the steff I don't like, I'm looking for ways to improve upon those aspects. I can usually feel a slight tiny bit of someone that I like about them. I think honestly this makes me much more feminine than masculine. most men just reject the whole thing. it really bothered my for a long time that women would seemingly interact with men that, in mmy opinion, were complete boneheads. anyway, what I eventually figured out is that often times women don't see the bonehead that I see. I think they genuinely *do* see something that they like in the guy, no matter how big of a retard he is.
+
+so, in that sense, these women are looking for positive aspects in these men -- however later, they lose sigtht of these positive aspects that they originally perceived, and are finally convinced of the "reality" of the man. well, fortunately for me, I don't really have such a strong affection for men in that sense so I find it easy to just, after having extracted the espects of their personality that I like, walk away from them. this is the mistake that women I believe do is that once interacting with the bonehead guy, they then throw the whole guy's personality out rejecting it entirely, often times before having actually acquired the part of his personality that she was originally attracted to.
+
+it isn't necessary to have sex with someone to acquire their personality. sex is actually a bit of high dese for someone as sensitive as I am. sure sex is great and everything, but the reason why so many great figues that have passed through history have rejected strong interaction with women, and the remaining other half were either gay (and could control their own energy) or had a very supportive wife. it's great when you find someone who is harmonious and supportive in a way which allows for your energy to flow easy.
+
+however, no one can really control what anyone else is doing. the only control that you have is over how you feel, and that has nothing to do with your partner, ever. I personally find it much easier to control this energy by myself. I can easily tune into someone withount needing a mega-dose of their energy through sex. therefore, for sensitive people, I think throughout history most have opted out of relationships in general because it's far easire to control one's own energy.
+
+---
+
+anyway, back to the part about tuning into people. I was born very naive. naive just means I will believe anything really easily. naive is a really good thing when I believe somethting that feels good, because it happens rapidly. I don't want to become a person that dosen't believe in anything. instead, I want to give things a fair shot and feel my way to the concept. this is why you will see me actually paying attention and giving thought to nonesense like "channelers" and liquid metallic hydrogen theories. I listen to the idea and I *feel* the parts that feel good to me. I usually just assume them to be true (I have to start somewhere), and then on the parts that don't feel good to me, I begin to sort them out logically until the picture begins to emerge of what the concept is.
+
+if there's nothing of interest to me, I just throw it out. if there's still something that I can feel has some value, I usually just walk away from it and wait for the unconscious part of my brain to work on it, and these will get returned to me as ideas.
+
+any idea can have its merit to it, and as an aside to this conversation, I believe that the whole reason why giving the custodians more and more technology is so they can impede our abilit to get there the "easy" way. this forces us to take a different route. for example, I think tesla developed analogue computers and logic circuitry using radio and frequency. they would be vastly superior to our digital computers, and I think this timeline got sabotaged (by him) to prevent that technology from appearing. this forces both the custodians and the creators to use technology which is digital. I think as a result the memristor technology that came from us not having analogue logic circuitry has forced the apparition of this new technology.
+
+think about it. if you have a bunch of genius creators on a planet, they will develop so rapidly finding the fastest/easiest route to the desired technology. for example, at the beginning I think we all "spoke" a universal language of images and telepathy during the time of towor of babel, but then the custodians realised that the creators would become like the builders, so zeus interviened and ensured that wouldn't happen either. they're just harder and harder difficulty levels.
+
+this whole thing is nothing more than just a game to the creators. from the outside looking in, it just appears to be harder and harder difficulty levels to beat the game on, so each time we sabotage the timeline and give the custodians more power to control, or sabotage some key technology which makes it "too easy" -- then try it again. it seems to me like it's pretty much infinite. there's simply no way to stop it (LOA dictates that the custodians will never actually gain control, so why not just keep upping the difficulty to the maximum each iteration).
+
+on the bigger picture than that, I think we're going to continue to iterate until my "mind virus" has infected all humans. with the ablity to have such an unlimited variety of different people each finding the positive aspects that they like in the other person, shamelessly ripping those aspects off (forcing the evolution), humans will become such a vast an varried species that no amount of difficulty will ever be perceived as difficult -- and we'll likely come to bigger and bigger ways to try and make "impossible" gsmes. I think the builders vs the creators will be a popular future narrative on the planetary bodies in our galaxy.
+
+it's gonna be fun :)
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
