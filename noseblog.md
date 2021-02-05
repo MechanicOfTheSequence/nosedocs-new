@@ -6119,6 +6119,68 @@ in conclusion, it likely depends on the person, but try and enslave me. I welcom
 
 :)
 
+### 2021-02-04 23:30 - the anit-magician
+
+@[youtube](https://www.youtube.com/watch?v=VtSHlEx4Nc0)
+
+earlier today when I was talking with greg about I really began to explore the idea of "agree quickly with your adversary" -- a concept that mom turned me on to a log time ago. it's significance to us, I think actually begun with nancy cohen. as I grew up, I realised how important this concept is, for someone like me. I often times have found myself in varying circumstances where I have an opinion that differs from the mainstream narrative. usually the mainstream narrative (in the family, the school, or whatever) is the one that in some way benefits or upholds the power structure in place.
+
+when I was younger, I grew up in a cult, and there were various power structures there. churches have them, because their livelihood comes from people's tithes, so often times the pastor is incentivised to appeal to their congregation, to continue to get their tithes. the mainstream of the congregation believes a certain way, and any influence which upsets that belief could be a monetary risk for the church leadership. it's all about "user retention" in the social media sense of things. essentially, if you want to continue your established revenue stream, you have to continue to appeal to your userbase in the same sort of way[^1].
+
+when I was working at tuenti, I ran into this various times. felix, dani and I did a major thing to the website where we implemented a system where we could actually profit on the website. I don't know for sure, but I would imagine the reason why we got so much pushback on it was because the investors do not want the company to be profitable. if we were to become profitable, we're no longer under their control. therefore, in order to maintain control, all attempts to become profitable were met with extreme opposition. they wanted us to be financially dependent on them.
+
+I also ran into various power structures at churches and other places. innovation and spread of ideas are considered by these power structures as bad because they are high risk. this is why it's very rare that you see an "established" or "successful" enterprise innovating. there are exceptions, like steve jobs, however the majority of established companies do not wish to risk their established position, and instead go into defensive mode. they begin to worry about losing that success and start to try and mitigate their losses, only iterating on the established (successful) product little by little. large changes are seen as risky.
+
+---
+
+ my desire all of my life has been to actually figure out how these interactions work. however, the processs which makes something work is almost always a closely guarded secret. to most people they appear a bit like magic, in that it appears that sometimes some products are more "lucky" or more fortunate than others. it has fascinated me how this works. even myself, I am a bit of an enigma in this regard too. to my knowledge, I don't know of someone who has had such a high-speed life as myself. I've had a lot of ups and downs but in general, I've still managed to cram a massive amount of experience into a short period of time. some things have worked well and some things have not. I've finally begun to understand that the form in which the thing fits doesn't mean much, and instead it has more to do with the underlying feeling and desire.
+
+some musicians have written many good songs and others are only had one-hit wonders. again, this has fascinated me. or, take for example the biblical story of joseph (senmut) -- again, you have this guy that appears to defy the odds. some people bump up against the power structures (moses, jesus, etc), and others seem to move around in the power structured with ease (st. germain, terence mckenna, etc.).
+
+I don't know what is the right way to do things, if there is even such a thing, however, the one thing that has always stayed with me was what terence said, "don't tell me any secrets; they will get told". I'm the same way. I don't filter my information. I always give my best answer in the best way that I can. the one thing that I do a little bit of is sarcasm and backwards speaking, which is something I learned from my father. my favourite example of this is when I went face first into the coffee table, dad laughed and asked me if I hurt the coffee table. apparently tesla's father was similar as well: "pull in your coat, you're ruining my tire." I enjoy this form of humour, as it forces someone to actually think about what I'm saying and analyse the validity of my words.
+
+I have begun to adopt this more and more lately, as I have noticed that my attempts to lay things out in as straightforward of a way as possible is just not working in a lot of ways. I just don't want to try and convince anyone of anything, so instead I've really begun to take up this "agree quickly with your advarsary" methodology.
+
+going back to the conversation with greg, I was expliaining that I have taken a lot of influence from sasha baron cohen's characters. I was explaining that I often times go along with the mainstream narrative but I push it a bit to the extreme to see what the reaction is. sometimes people take me seriously and other times they don't. a good example of this will be the veritasium video just today with bill gates (@[youtube](https://www.youtube.com/watch?v=Grv1RJkdyqI)). I can't help but noticing bill seeming to hold back laughter and smiling[^2], while saying rather "insidious" remarks.
+
+he uses derek's channel as an example of how people can go online and understand science and this is a good evidence of how much more informed people are. he then says that for people who want to learn "facts", this is a golden age, but then turns right around and proposes that we *restrict* communication regarding these "conspiracy theories and other anti-factual things".
+
+I then commented on the video with a relatively sarcastic remark saying:
+
+> the real pandemic is how fast information can spread on social media.
+> clearly, communications is what needs to be slowed down, should a "pandemic" of information ever occur
+
+the recommendation that we should limit communication is classic technique pulled right out of the custodians' playbook. the more ideas out in the wild, the better. it's essential that the "survival of the fittest" be applied to permutations of an idea. sure, survival of the fittest won't create a new species, but it'll optimise the one that's out there. it would be like saying, ok so what "God" needs to do is to decide which animals are the best ones -- not based on a profit motive, but based on some other criteria the "experts" have determined to be the best, and then only let that varient of the species live in the wild.
+
+ideas live and die relatively rapidly, and the ones that don't work eventually fall away, but the ones that do work stand the test of time. in my experience it's usually the monolithic corporations or some other juggernaut religion or whatever deemed by its adherents to be "too big to fail" which must restrict and moderate information.
+
+I don't mind what bill is saying... he's good at what he does, I want to congratuate him on how well he angles his words. he's good :)
+
+anyway, back to mr. cohen. I was telling greg that it seems to me that in all of mr. cohen's characters, there are definite "tells" which are given to the ones that are perceptive that it's a joke. I didn't want to mention it in the conversation, but this form of encoding the true nature of the act is something that these brotherhood organisations have been doing for ages. they need some way of signaling to the others that are also perceptive that it's a sham -- both so they won't be alarmed and so that they may potentially get some people to join them.
+
+greg then connected the dots between me explianing that my exaggerated mainstream view as a form of sarcasm was sort of like "revealing the trick". he then reminds me that if sasha breaks character at any time, people get more pissed off -- to sort of like tell me in a way, that revealing the trick will get people pissed off at me.
+
+well, call me hermes and don't shoot the messenger here :) the major difference between his characters and me, is that I'm not breaking characcter at all. I have taken sasha's charamcters (mainly borat) and improved upon them and integrated them into my personality. they are not separate from me. there is actually no way for me to even know what part of my interaction is inspired by borat and what is me. I'm only me.
+
+---
+
+to explain how that may be, I must explain how I acquire so rapidly, in a borg-like fashion, the attraibutes of another person. I study them. I get into their head by *feeling* like they do. I consume massive amounts of their material and then I take the stuff I like and I apply it to my personality. I don't take any of their exact words or anything like that. it's a *feeling*. for example, when I listened to brothers of the serpent podcast for a few days in a row, I actually began talking similar to them, laughing at stuff they would laugh at at. I did the same with slyssa, thijs, kripp, trump (both of them), andreas, etc. the list goes on. if I consume your content, I'm studying you and I'm taking how they feel, improving upon how they feel and then integrating it into my personality.
+
+this has a side effect to it though, because I study the people closely, I notice a lot of things about them rapidly, and it has the undesirable effect of them feeling like I'm picking their personality apart. I'll take terence's statement and raise it by saying, "don't interact with me if you don't want me to analyse you. I might reveal your 'secrets'"[^3]
+
+I reveal my own secrets. it's just what I do. it's a stronger part of my personality than the new additions. to get rid of that would be to get rid of the key to my massive velocity. so long as I keep revealing secrets and discovering how things work, I force evolution in others and myself. think about it: imagine I give away the core aspect of my jokes, you may think oh, now he can't use that style of sarcasm now because it won't work... I claim otherwise because every idea that people "take" from me forces an evolution (due to LOA), and so now the newer more improved version of that idea already exists now, and all I have to do is to feel it to find it (same thing as LOA). it's opposite thinking but I benefit more by revealing my secrets[^4].
+
+sorry for being so much like a virus in that regard. as a side note, I have noticed nosebook's attempts to try and limit people taking my ideas and running too much with them. as always, all my ideas are free. all of them. anyone can take any of them free of charge and with no strings attached. I believe I benefit from that, more than you do. true borg :) hopefully my personality doesn't become a pandemic.
+
+a virus in the form of personality aquisition would be far more difficult to contain than any real-life pandemic. eugenics please!
+
+[1]: as an example, imagine if tiktok suddenly decided they were going to attempt to steer their users toward more scientific or mathematical conversation...
+
+[2]: @[youtube](https://youtu.be/Grv1RJkdyqI?t=308): derek begins to ask bill what he thinks about the "meta issue of how people connect with roality" in these more rapid communication mediums and how they're perhaps not actually bringing the utopian idea of being a place where the correct information is easier to access -- and bring us into a more fact-based world (and other beneficial ideas to spread and flourish). at the end of this question, it appears to me that bill is practically bursing into laughter at this point because he knows how controlled information flow is, and how essential that is to maintaining power structures (he calls them quailty.)
+
+[3]: on that note, I wold love to get a chance to get into bill's head and begin to deconstruct it. he's got some weird quirks that attract me :)
+
+[4]: perhaps this actually works better in an environment filled with people wanting to hide things. who knows..
 
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
