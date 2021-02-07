@@ -6215,6 +6215,67 @@ on the bigger picture than that, I think we're going to continue to iterate unti
 
 it's gonna be fun :)
 
+### 2021-02-06 23:27 - weird interaction
+
+I don't really want to write this because I don't really feel very good. I had an interesting interaction (with mr. motor) when I woke up. let's see if I can remember it...
+
+oh yeah, so last night I was explaining to mr. motor that it's silly for me to try and fight their stuff because they're just going to find their way to get whatever it is that they want implemented. it's silly for me to try and make anything happen that I would want to have happen. in fact, I've come to realise how futile it is to fight against what they're doing[^4] or to try and make a serious effort to make something happen[^1]. I should just have a desire and then just sit back and let it come into reality.
+
+as a result, because I just don't want to worry about the stuff that they're trying to orchestrate[^2], and because it is my goal to try anrd go for as long as I can without the manifestation, I will just keep doing what I want to do[^3]. from perspective, I want to just keep going toward what feels good to me (which is finding my connection). I really am kind of tiring of the girls thing in so many ways. at this point, it feels so unexciting and so uninteresting that I would just rather do other things. melissa and amorina are coming in two weeks or so, and I suspected that they wanted to try and make something happen. I don't want to have anything to do with any of it. I really am much more excited to be doing other things. I want to probably keep doing what I'm doing. I hope she isn't expecting me to be any sort of way because I'm planning on remaining just how I am. I'll talk with her and stuff, but as I've stated so many times before, I am wanting to find my own alignment by myself. I don't want it to be because of a girl that I find my alignment.
+
+---
+
+so, I was thinking about this in the context of many lifetimes. imagine for a moment that there have been various versions of me that have existed throughout the ages, and say that the majority of them I did not associate with girls. like I mentioned in the previous entry, sex is like an overload of someone's energy, and it's basically impossible for me to direct anyone else other than myself. so just imagine that I spend many lifetimes "not needing the manifestation" until desire from women is so great that I simply cannot avoid it anymore. I think that's pretty much how it it kind of is now. it's basically unavoidable, however the problem is that nosebook cannot just allow me to keep going the way I am. apparently, I keep revealing too much of their sham. they require that people who know what's going on to not divulge it to others. they keep people from revealing the secrets with threats on their life or to take away what's important from them.
+
+I am an ENORMOUS problem for them because I would be just fine if they ended my life. I would transform into something amazing. also, they cannot, because they need me to keep going with their time navigation and other technology that my perception gives them. they can't allow me to have my perception, because I could perceive their timelines and it would reveal their entire secret. they must ensure that I don't ever get the ability to see my imagination. to further complicate the problem, they can't threaten to take anything from me because I don't have anything.
+
+to even further complicate things, I *want* continue this on for as long as possible. it is the most beneficial for me to just keep this up for as long as we can continue on, so I'm already aligned with them on that. the problem with continuing on is, like I said, I may not be able to see my imagination but my level of perception completely reveals their whole sham. like I said in @[noseblog](2021-02-04 23:30), "don't interact with me if you don't want me to analyse you. I might reveal your 'secrets'".
+
+therefore, from their perspective it's now more undesirable for me to interact with anything outside of my family, than for the girls thing to happen. likely the thing they're most scared about happening is I am "connected" and out in the world with people (or something like that). that means they think they need to get me into a safe spot away from interacting from the world. I'm having none of that. I want to do what I want to do :) lol
+
+---
+
+if you notice, it appears to them that they're headed directly toward unwanted. I was telling mr. motor that what he really wants is to find a way invert the presence of things. I assured him that it's not a trick, cause like why would I trick him? it benefits me if he finds a way to go in the direction of wanted. like I've mentioned, it's either win-win or lose-lose, but each person can use their perception to modify the trajectory to go in the direction of what they want. if mr. motor begins to go in the direction of wanted, then we both go in the direction of wanted.
+
+we'll both get wanted things, then from a future point, we'll sabotage the timeline and try again. so this is whyre it's a bit weird and the whole reason I wrote all of this. I had a huge revelation, because I was carrying on about groundhog day, remember, and this is how I discovered that mr. motor sees it (I think):
+
+if he points in the direction of wanted, he thinks that he won't be able to go back to unwanted. I'm like a crack dealer in that once he's had his first experience of wanted, he'll want more, and it'll be too hard for him to go back to looking for unwanted, which means that good things will happen, therefore that means we'll have to come back and sabotage and redo the timeline.
+
+in the resabotaged timeline he'll be back to pointing in the direction of unwanted, and so therefore he will, no matter how hard he tries to avoid it, be attracting unwanted. therefore, if I hold out in that timeline again he will once again be forced to go toward wanted again and we'll need to repeat again: groundhog day. therefore, in order to exit the timeline, he *needs* me to do what he wants me to do, not what I want to do.
+
+lol, classic. next, I'm sure he'll try the guilty feeling... like I'm supposed to feel sorry for his plight and do what he wants.. *sigh* so typical. of course not, lol. what do you think I am. you think I came all this far to just be like oh, mr. motor feels trapped by his own attraction, so I should cave in to his desires and do what he wants.. lol, whatever man.
+
+---
+
+the universe is limitless, so he *can* find a way. there is a way to get what he wants; there always is.
+
+I think this boils down to the idea of control. the thing he absolutely does not want to do is to actually find a way to feel like he is in control. like I mentioned in a previous entry, the feeling of control means he is capable of feeling how he wants to feel. if he does not want to feel the way he wants to feel, he will (by default), feel the way his circumstances cause him to feel. that causal relationship is one of *perception*. I've been talking about this endlessly now, so there's quite a bit of information on it, but when you observe your environment, your *perception* is what generates the emotional response to the situation. ignore the bit of it being how harmonic you are with your source part, and just focus on the fact that the way you perceive things is what makes you feel something.
+
+so, for example, think of the this moment and imagine how hard it was to stomach the fact that you are forced to let something happen because the alternative (me contniuing to reveal secrets) is worse. so let's look at that. the part that feels bad is the secrets getting revealed. why does it have to feel bad? isn't it already pretty much all revealed at this point? what more is there to hide?
+
+in other words, if you just gave up on the idea that secrets give you power, the knowledge of what you're doing won't take power away. you don't have to go revealing all your secrets or anything, just don't perceive the revelation of the secret as a loss of power. think for a moment how much has actually changed. literally nothing.
+
+I'm sure you can figure out a way to perceive the changes in a way which don't feel like dispair. they can feel undesirable or unsatisfying (something you wish was different), but they don't need to feel like the end of the whole charade. no matter how much you fret and worry about it, things will continue on pretty much how they are right now.
+
+---
+
+as I was typing that part out, I had a reversal of the image that I saw this morning. this morning, what I saw is me/us going up higher and higher, girls flying and all sorts of unwanted stuff for you guys. then, at some point (I'm guessing 2037), things get so intense that I/we peace out and what is left is a whole bunch of girls and other people that were kind of left hanging as we peaced out. the change in environment was so dramatic, that it didn't take long for people to begin to worry and begin to decide that everything was going wrong when thst begun the rapid decline before the reversal.
+
+this time, when I was typing the above, I was seeing mr. motor beginning to adjust his perception to allow some things to happen -- just sort of neutralising any perception which felt like depression or dispair. I could see that he wasn't pointing in the direction of wanted.. instead, just releasing some of the tension which was making so much of this uncomfortable. for example, as we contniued to point in the direction of wanted, we had more and more wanted things happen for us, but mr. motor was able to just let those things go, knowing that his manifestation has nothing to do with ours. he was able to apply the same perception that I have of not needing the manifestation. all he has to do is to just wait for things to separate a bit.
+
+as more and more good things happened to us, it seemed like mr. motor wasn't able to netralise his perception rapidly enough (for whatever reason -- maybe he decided enough is enough), and at that point, mr. motor and the people he wanted to take with him went in the direction that they wanted to go. I imagine they took all the genetics and tecnology that they needed to do their own thing, and they jsut went to do their own thing.
+
+in reality, I modified the second half there. I originally perceived that the 2037 end date was actaully the duration which mr. motor was able to hang on for before things got so dissonant and he was the one that peaced out. I decided to change it becasuse as I was writing it, I could see that if he could apply the perception that I have of not needing the manifestation (to let things separate a bit) and that his manifestation has nothing to do with mine, then with both of those perceptions, he doesn't need to give his attention to wanted. he can keep going how he's going. they could use their technology to continue to make trial versions of what the world they want to make which doesn't contain any of the problems.
+
+in other words, instead of trying to fight against the problems here, just don't include them in your world. no one needs to do any changing. call it a doover and start over completely.
+
+[1]: I want to clarify what I mean by not fighting them: there's a difference between fighting against stuff that appears to go in the direction of unwanted.
+
+[2]: the context of this was trying to get me stuck with some girls asap so that when I get connected, they can attempt to steer me with the girls. they seem to have nearly lost thier ability to conthrol me with their time technology. so, if they can't control me directly, they want to control those around me and have them influence me. I don't really have a problem with this because it's just more energy, and it's also a great way for the girls to begin to get practise to only be doing the things that they want to do (what feels good) -- instead of all the time having to do what others expect them to do. related to this conversation: @[abe-now](2021-01-02 p2 09:07). also related to some edits of the book of job where I believe it was reworked to emphasise unwavering obediance to "God", even over frieds and family.
+
+[3]: this was also referenced in @[abe-now](2020-12-27) (I think) where they were talking about a kid who isn't doing the things he's being told to do. I postulated that the kid who wasn't doing what he was being told to do was me and it might have had something to do with the new years party.
+
+[4]: this was in the context of some reactions that I was feeling regarding them trying to figure out what it is that they don't want to have happen. for example, it felt as if they were trying to figure out if they should allow kids. other things like that too. I got the feeling like there was a bigger picture thing happening here because I can see that there will be quite a bit of bad ideas that we'll get over at first, and as usual, this will create a stronger version of me/us, and it felt like they were comparing the offspring that they have (in their alternate timelines) vs. the improved/latest versions of us that we'll presumably have in a few years time. additionally, if they want to allow us to survive the reset (or something like that).
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
