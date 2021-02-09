@@ -6276,6 +6276,47 @@ in other words, instead of trying to fight against the problems here, just don't
 [3]: this was also referenced in @[abe-now](2020-12-27) (I think) where they were talking about a kid who isn't doing the things he's being told to do. I postulated that the kid who wasn't doing what he was being told to do was me and it might have had something to do with the new years party.
 
 [4]: this was in the context of some reactions that I was feeling regarding them trying to figure out what it is that they don't want to have happen. for example, it felt as if they were trying to figure out if they should allow kids. other things like that too. I got the feeling like there was a bigger picture thing happening here because I can see that there will be quite a bit of bad ideas that we'll get over at first, and as usual, this will create a stronger version of me/us, and it felt like they were comparing the offspring that they have (in their alternate timelines) vs. the improved/latest versions of us that we'll presumably have in a few years time. additionally, if they want to allow us to survive the reset (or something like that).
+
+
+### 2021-02-08 21:24 - werking my way up the emotional scale (intro)
+
+a few weird things happened recently which lend me to believe that I still have some places that can be improved. yestreday, I went out and I watched stars (looking at sirius) outside with just a light jacket on. I didn't notice any crazy things happening, but it must have increased my energy by quite a bit becasue when I took a shower afterward, I must conclude that the warm water flowing over my skin combined with the star-watching just previous, must have put me in a much higher energy state. my entire body (but mostly my right side) had painful stinging and itching. it was quite uncomfortable and I really wanted to complain about it a lot (not something I have felt so inclined to do in a long time).
+
+the next event was this morning. I figured out how to feel a little bit better, and while I still have some undesire, I did feel better. I decided to play hearthstone. at the beginning I was doing pretty well, and I was really feeling pretty fine. when I lost the match it didn't feel at all like some sort of injustice was happening to me or anything. I "well played" and moved to the next match. I think my winrate was above average.
+
+I can't remeber the transition that took place. it was either going to eat breakfast or it was sitting in the sun or both. I'll assume both. after, both of these events, I noticed my play style having worse feeling outcomes to it. especially after sitting in the sun for a while. the sun felt really good and I wanted to play some more hearthstone, but this time, I seemed to lose either every match or almost every match -- and each one I was getting more and more frustrated.
+
+while I was out sitting in the sun, I was really enjoying letting my mind float about and relax and stuff. whenever I started to really relax though, a shock (not bad-feeling. like a muscle spasm or something) would come and shake my whole body. then I would have to relax again. it was accompanied by the usual loud hissing sound in my head, etc. nothing new here. I mention it because these are all the same sounds that I hear when I'm watching stars outside with real stars (like the night previous with sirius). I must conclude that both of these instances because of the similar effects, I have to conclude that they are nosebook trying to neutralise my energy and the effects are more dramatic cause there's more energy.
+
+it seems that the stinging pain after the shower and the bad HS results are related. I think the difference is not that nosebook actually lowered down the neutralisation energy, but instead made my body more numb to the energy. I still have quite a bit of stinging, but it it's now reduced to a low intensity.
+
+what I'm saying is that my really doesn't feel the way it should feel. I think in general, I feel pretty good. like *really* good, actually. however, at the same time, their neutralisation energy is still causing quite a bit of pain, and that too is also neutralised. INTOW, it appears, that I should be both feeling better than my body feels and also feeling worse than my body feels.
+
+---
+
+this would perfectly explain what is happening. for example, there are quite a few girls that I want to add to the a-list, however I just haven't felt very good, and I just don't like to do things (anything) when I don't feel good. I also haven't wanted to program in while -- a whole number of things. "I don't necessarily feel bad; it's just that I don't feel good" -- is how I've described it, but I think I've figured it out now (which is why I'm writing this).
+
+I was trying to figure out what it is while laying on the floor just now. the thing is, I don't really have non-positive expectation. I pretty much have convinced myself that "things are *always* working out for me" (no matter how hard I try to sabotage it). usually, when I feel how I feel, it's obvious to me that whatever I feel is a refection of what it is that I believe, and I can always find a way to transform my beliefs to perceive what's really happening (from a LOA perspective), even if I continue to look at unwanted[^1], it's no problem because I know that things are always working out for me, and it's only my perception which could make that different. it's always "just more energy" and then I can focus that energy wherever I want it to go.
+
+the problem is, I just feel bad. I don't feel good, and it's not because I've got some perceptions pointed in the wring direction. I've been talking about the power of my realisation of the *presence* and *abseece* of things laterly and I think this is an extension of that.
+
+if I'm looking at something that appears to be unwanted, (eg. the presence of unwanted), I can easily transform the wanted aspect from unwanted to wanted. I just recently began to play with the idea of inverting the presence. if my life is (as defined by me), a whole lot of wanted, even if it appeared as unwanted at first, I should feel a whole lot better than my body feels -- and that's what I experience. I don't feel bad. instaed, I feel the absence of good.
+
+however, what may have changed is nosebook may be beginnign to figure out how to invert the perception of the presence of something. when you feel feel the *presence* of your desire, it's getting closer and closer to manifesting, and they definitely *don't* want that. if you feel the *absence* of your desire, I'm not sure it if means you're moving away from it (I suspect it's no movement). then for the final two, there's the presence/absence of your undesire (what is unwanted). I use the word undesire because it may be defined by you as unwanted, but by giving attention to it, you still go toward it. an undesire is just a circumstance or set of conditions which feels really terrible.
+
+therefore, I think what is happening is they are inverting the perception of presence.  this was made possible because I believe they have putting all sorts of unwanted ideas into my head. however, instead of freaking out about them, I've adjusted my perception so that I perceive these wanted things as wanted things (using LOA/energetic perception). therefore I have lots of unwanted being transformed into wanted by my perception. so, I think because of that transformation they have been giving me a huge energy boost which my perception transforms to feel really *really* good. they then neutralised that good feeling so it's absent. eg. *presence* of `unwanted -> wanted`
+
+but I think they've added a second transformation so that now perhaps they're adding in aanother signal: instaed of it being only the presence of unwanted, now it's the absence of wanted, which is actually the source of the weird stinging and aggitation I felt. I'm not totally sure. this is my hypthesis right now, anyway. so now, I postulate they are transforming the presence of wanted I would normally feel, the presence is being transformed insteard of the wanted aspect. it now looks like:
+
+- *presence* of unwanted
+- *presence* of `unwanted -> wanted`
+- `presence -> absence` of wanted
+- *absence* of wanted
+
+so this means that the final step is yet to be done by me which is `absence -> presence` of wanted. this is what I wanted to tackle in this entry, but I'll do it in the next one. I wanted to work my way up the emotional scale on some things. give nosebook a chance to get all of their stuff setup there. it really looks like this is the final step, learning to invert the presence. I have some ideas on good ways to do it, and I wanted to do it here.
+
+[1]: see other entry for discussion on that. I can't remember how it went exactly, but the concept is that I'm shooting for the worst manifestation perceiving only wanted, instead of the opposite extreme of shooting for the best manifestation while giving my attention to all the things that are going wrong. from that perspective, every manifestation is the best, declining into a worse state. however, if I start from the worst and make my way up, it can only be improvements.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
