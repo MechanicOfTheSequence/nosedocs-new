@@ -6317,6 +6317,47 @@ so this means that the final step is yet to be done by me which is `absence -> p
 
 [1]: see other entry for discussion on that. I can't remember how it went exactly, but the concept is that I'm shooting for the worst manifestation perceiving only wanted, instead of the opposite extreme of shooting for the best manifestation while giving my attention to all the things that are going wrong. from that perspective, every manifestation is the best, declining into a worse state. however, if I start from the worst and make my way up, it can only be improvements.
 
+
+### 2021-02-09 15:45 - working my way up the emotional scale (part 1)
+
+last night after I wrote the previous entry, the way I felt changed dramatically. I felt a lot better, but it was a really artificial sense of feeling good. the way that I mean it is that I think I still felt bad, but they were appling another transformation of *presence* of `unwanted -> wanted`. it was really weird feeling and I didn't like it at all. sure I felt better, but because it was artificial feeling better, it still felt bad to me. I said that I didn't like it, and would just keep going on the way I was going.
+
+I went to sleep and I woke up just now, and things were back to nowmal feeling kinda really bad again, so I realise it was a transformation they were doing. I can't figure out where it would go on the chart though. it felt to me like they were turning unwanted into wanted (and that's why it felt artificial). but I don't know where it fits in. I just don't know. it's quite possible that my chart isn't quite right to begin with. so, I'll igore that until I begin to see that a little more clearly.
+
+---
+
+this morning when I was waking up I had a whole lot of weird dreams, and I can't really remember them, but I do rememeber there were two girls. anyway, the feeling I had when I woke up is that they were either trying to angle the thing in a not good way, or they are purposefully trying to keep trying with the worst ideas in effort to delay it as long as possible. what I mean is that from their perspective, if they keep presenting bad ideas, it looks like they keep trying new things and I just keep saying no.
+
+a long time ago, there was an abraham expression which for me was quite memorable: "it's not a hell yes, it's a hell no". the reason why it's so memorble for me is because it ties right into the concept of "need not the manifestation" -- with the idea that most people have which is that the manifestation will make you feel the way you want to feel, when in reality, the opposite is true. the manifestation, while even if it does appear quite good, will turn out to be about the way you feel. therefore, even if it's the best manifestation ever, and you still feel terrible, the mnnifestation will eventually come to reflect how you feel. don't rely on the manifestation to make you feel the way you want to feel. instead feel the way you want to feel, and let the manifestation reflect that.
+
+obviously I'm of the pursuasion of the latter. therefore then, if nosebook just keeps trying to present manifestations that feel bad, and I'm still feeling good, they'll never be a match to me, and so therefore it'll never happen. if I don't feel good, I make no action, and if the action doesn't match the way I feel, again I make no action. so, the only real possibility for this is to keep going until it does. it will eventually.
+
+---
+
+as I was thinking about this, the thought popped into my head about what I was saying about how I thought that the nazis left WW2 and moved down to antartica with conceptual technology capaable of modifying timelines originating from tesla's death-ray. why would tesla just give them timeline technology? well, last night I watched a weird youtube video @[youtube](https://www.youtube.com/watch?v=8WsM1A0xfh0) of a movie I had never seen before (tarentino he said), where he was analysing the movie's portrayal of a nazi official as an image of evil. the part that caught my attention was how he said that hans always wore a uniform to denote his evil -- cause otherwise he would just be a handsome and well-mannered gentleman. real-life is not so blatznt with its evil. in real-life, he would just be handsome and keep all of his evil a secret, so that no one would know.
+
+I realised that the germans (especially hitler) really liked the impressive displays of authority. in today's world that just simply won't work. they wouldn't be able to get away with wearing evil uniforms in public as a display of power, so it's good that they're confined to the south-pole, and only have their massive displays for the american upper management. the nazis probably don't want to change (sound familiar mr. motor?) from their ways, so going into hiding with their timeline technology was their only real choice.
+
+this leaves the day-to-day operations and the general image that is presented to the public be the one that the american upper management wants people to see (disseminated through the various media outlets) -- meaning that behind the american upper management is the aryan upper management.
+
+so why give these guys timeline technology? it seems like a terrible idea, or is it? well, the way that time works is that you navigate it based on how you feel, and the way that feelings work is you can only perceive things in harmony with how you feel. so if you give the aryan upper management the phyisical timeline technology, that means that they are going to be able to bail the american upper management out of any big mistakes, and also exert quite a bit of influence on the direction they want things to go (confining their big displays of authority and power to the people well integrated into the power structres). then, the american leadership can find a way to execute the orders of their upper management in a way which obfuscates the real "hidden hand". hollywood is good at doing that.
+
+you can imagine that none of these guys feel very good, and almost certainly hitler (he's likely to still be alive) and any of his protoges do not feel good at all, so the timelines they can perceive and navigate to range between bad, awful, terrible, and worst. they are, frwom their perspective always going to pick the least bad one. then you have the american upper management with similar technology doing the same thing, then finally hollywood is likely to need to ensure that no one is finding their connection by using the same technology to perceive what they see best, which is drama. this will keep people from finding their connection for as long as possible by keeping evewryone distracted on the rollercoaster of emotion/drama.
+
+---
+
+to further elaborate on this, I want to take the perspective of having the galaxy in progress, and we're just beginning ot seed a planet. it seems obvious to me that what I would want to do, is to make the new humans on the planet be way smarter than we are, but disable them behind a bunch of difficulty. then, put various power structures on the world which will ensure that they don't ever develop too rapidly. instead of going the fastest or shortest route, the power structures will be designed to impede their growth so much that it'll greatly increase the time it takes for them to "get connected" too. quite similar actually to how I postulate this planet is happening.
+
+from that perspective, it then becomes apparent that what you want to do is to have a number of power structures which are put in place to ensure that the humans are forced to explore lots of the bad awful and terrible paths to keep building their desire. why?
+
+because it all comes down to feeling. the whole goal is go give the power structures which feel bad unlimited power to affect their desires (which don't feel good). this inhibits growth of the species until they are able to actually develop in a direction which feels good no matter what any of the power structures are doing. the power structures are designed to fail. they'll fall off as the power structure below them feels better than they do.
+
+so, for example, when the american upper manageent consistently feels better than the aryan upper management, the aryan upper management will either go somewhere else where they think they can exert their will or disintegrate from a lack of a supporting host. then, the same thing will happen with the ones below that all the way down until finally the humans no longer have any more management and creation joins its creator. the prodigal son, the coming of age story, etc. etc.
+
+---
+
+I'm going to end it here again. I'm hoping to actaully *do* on some of the emetional scale stuff soon. it seems like there may be effort to prevent that from happening, because that may be perceived as the worst timeline and this is the less bad one. more needing not the manifestation, to come :)
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
