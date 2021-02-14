@@ -6381,8 +6381,85 @@ the celebration in itself isn't the problem. the problem is celebrating things (
 
 I went to sleep thinking about this and when I woke up, the first thought that popped into my head was "loyalty" -- and I think it has something to do with this. to understand, the context for this is was the conversation that I had with mom this morning. we were talking about changing (how you feel about) the past and perception. I was talking
 
+===
+
+eat my own words on this one... it also has to be just more energy
+externalise the way you feel
+believe what you perceive
+loyalty = method to get you to do something someone else wants you to do (care how you feel more than you are loyal to)
+competition and celebration
 
 [1]: this also ties into the @[youtube](https://www.youtube.com/watch?v=Rrle0mD92WU) where greg was postualting that tears (and therfore laughter as well) are the phyical expressions of an emotion that can't be translated into something meaningful to language. if the way you feel attracts your roality, then something must have happened in the garden for the most memorable words of the new testament "jesus wept". I think it was done on purpose to make that sentence that memorable, so that weeping would become a staple of the christian tradition (keep people disempowered). it doesn't say what bad feeling realisation happened before he the celebration, but what happened before his "death" was the weeping.
+
+### 2021-02-13 23:10 - dogs, cats, the zodiac and stuff
+
+so, I've been beginning to pay more attention to the distractions because they are significant. at first, I felt like I needed really badly to go poo, then all of a sudden mom came down to ask me about jaron's phone cord and stuff, which means there was significant effort to keep me from writing some of the concepts I was going to write. combined with the fact that I have the same problem when I trwy to remember some people's names. they're close, but for whatever reason they simply cannot be recalled until after a long time I finally have something that reminds me of something similar and I can get it back. anyway, this is happening with a lot of the concepts I was going to write above.
+
+however, the irony of this is that all of this was happening while I was talking about the difference between jesus and me where I postulate that he was talking extensively about how people are etenrnal beings, which the custodians turned into you have to earn something you already have (eternal life) by doing what others want you to do. keep this concept in mind.
+
+I'm constantly talking about how everythting is "just more energy" -- and that their efforts to try and hold you aray from something only adds energy, which you can utilise to your own benefit if you can see it for what it is -- "just more energy". this entry is a perfect example of that because they're only putting more energy into this by trying to distract me while writing it.
+
+---
+
+so, when I woke up and the thought that popped into my head was loyalty. whatever happened must have had something to do with loyalty. judging by the way the last 2ky have gone, it must have had something to do with mary wanting jesus to be loyal to her insted of to his own feelings. loyalty is a funny thing that some people pull out from time to time to ensure that they have a way to influence you. I don't mean to pick on zaryn because I don't know if he was doing it on purpose, but there seemed to be this idea that if I was loyal to zaryn, then I would just do what he wanted me to do. I wasn't that way. zaryn wanted someone who was loyal to him, which is why he ended up going with erik. I followed my intuition and went with how I felt, which was wanting to continue to be creative instead of a manager underneith zaryn.
+
+as a result, my life went a very different path than it would have if I were loyal to zaryn. the thing about loyalty is that if you are loyal to each other, it means that you consider what someone else wants for you (because you are loyal to them), more than what you want for yourself.
+
+to get a sense of what this means and to potentially cloud up the matter, let's consider the difference between a wild dog (wolf) and a domesticated dog. now, let's consider the difference between a wild cat (lion) and a domesticated (house) cat.
+
+both display similar aspects, but in different ways. lions have dominance heierarchies (ironically called pride), and dogs have a heierarchy as well (pecking order). the top dog is who is more fearsome is individually the most powerful, but from time to time, they need to give that up for survival reasons and hunt in a pack.
+
+to understand this, we need to look at the domesticated versions (I'm going to speak in generalities. all of these need a "usually" prefix). a dog who becomes loyal to its master will perceive other dogs as a threat and try to defend the master. a cat who has been domensticated will not perceive other cats as a threat to the master.
+
+a wild dog will tend toward a group, marking their territory (think gangs), usually avoiding interaction with other packs unless some reason for conflict emerges packs can occupy the same territory. wild/feral cats (lions) actively mark and defend their territory from invaders, not allowing intruders.
+
+upon domestication, this behaviour seems to reverse. cats seem to no longer mark and defend their territory, allowing the master to be master of the territory. however dogs, upon domestication, now feel the need to mark their territory and to defend their territory (and/or master) from invaders.
+
+you will also notice another aspect of independence which I haven't fully figurerd out. cats appear to be more independent when domesicated, cept the ones that have dominance heierarchies (like lions). so it appears that that independence for a cat appears is whether there is dominance heierarchy present. however, for dogs, they seem to need a dominancy heierarchy (like a master) to be domesticated.
+
+I don't have it fully figured out, but it seems like there are a few factors:
+- posession of females (as an ability to continue existence)
+- posession of territory (as resources to defend)
+- competition (who is most powerful)
+- loyalty (to the dominance/power structure)
+
+there may be more, but these are the ones that I've identified so far.
+
+different ones mean different things, so for example, for a dog in the wild, the most ferocious wolf is the top dog, and this was established with competition to be known who is the pack leader. the strongest and most ferocious also gets the females (and therefore the ability to continue existence)[^1]. it appears that domestication means different things, so for example for cats, they appear to stop marking their territory, so domestication for them must mean a form of security for their territory. for a dog, domestication must be security in who is the most powerful (the master) and therefore doesn't need to compete anymore.
+
+---
+
+ok, so now I would like to relabel the zodiac as ot pertains to this. previously I had explained the left side `bull -> man -> serpent` as the masculine side and the feminine side as the `eagle -> lion -> cow`. I will now update that to be the left side there is the dog brain and the right is the cat brain. they both display dominance heierarchies and territorialism, etc, but these "instincts" appear to depend more on how domesticated/socialised they are.
+
+of note, I want to say that all over the cultures, male has been associated with left and female with the right and this is why I associated it this way, and there are some themes to them which I think are more prevalant in females than in males, etc. but the lines are so blurry these days, I find the wild/domesticated cat/dog version a whole lot easier to work with. the concept extends furthe4 than these generalisations though which is what I will elaborate on here.
+
+the left-side for me reprents the most selfish, meaning that valuation and discovery comes from within. the right-side is the opposite. the right side derives value from the external. so the left would define the self by the self, anr the right would define the self based on the perception that self perceives others have of it. so, putting this into the context of cat/dog, I perveive the wild dog/cat aspects[^2], not the domesticated side.
+
+therefore, now we can now conclude that somewhere in the 12ky periodicity the extremes of each of these aspects of dog/cat are reached. next if we imagine now the vertical axis as the second dimension of wild/domesticated, again things make a whole lot more sense with serpent/eagle as the hight of wild and cow/bull as the height of domesticated.
+
+thinking back on the overall thrust of the previous 6ky periods as outlined in my previous musings now makes a whole lot more sense. they would be:
+- wild/domesticated dog -> wild dog/cat
+- wild dog/cat -> domesticated/wild cat
+- wild/domesticated dog -> wild dog/cat
+- domesticated dog/cat -> domesticated dog/cat
+- (coming soon) domesticated/wild cat -> domesticated dog/cat
+- (following that) wild dog/cat -> domesticated/wild cat
+
+notice how except for the first transition (which I have my reasons why I think it may be that way), the next phase is always in some ways a rejection of the last one. it comes closer to what I want to express in the concept but isn't the exact concept yet.
+
+---
+
+ok, so now I have to tie these together now.  I'm having a difficult time doing it though, as it seems that things have again disappeared. I'll continue again later...
+
+===
+
+this morning about belief, and what feels normal
+
+probability management group
+
+[1]: this reminds me a lot of non-modern warfare -- where there was a whole lot of rivalry, and making an enemy could get you stabbed in the back if you didn't have loyal friends who would avenge your death but battle still had to be made in a group because fighting by oneself isn't really possible. the legend of the one-man-army was an ideal that many warriors could fantasise about to avoid the inevitable in-fighting amontgst ranks. the more group-minded and loyal the warrriors are to the cause, the less likely for troops to kill theirselves with friendly fire.
+
+[2]: I don't really know how dogs/cats are in the wold. I did a bit of searching to make sure I wasn't completely off-base here, but I perceive at least the opposite of the domesicated symbols.
 
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
