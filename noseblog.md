@@ -6358,6 +6358,32 @@ so, for example, when the american upper manageent consistently feels better tha
 
 I'm going to end it here again. I'm hoping to actaully *do* on some of the emetional scale stuff soon. it seems like there may be effort to prevent that from happening, because that may be perceived as the worst timeline and this is the less bad one. more needing not the manifestation, to come :)
 
+
+### 2021-02-13 20:34 - loyalty and other excuses to get people to behave the way you want them to
+
+as I was going to sleep I was wondering what happened in the room with mary that made him so pissed off. the reason why I wondered this is because the way things are shaping up, it looks like the whole goal of this is to give nosebook/hollywood the tools they need to be able to influence others as much as they can. just like I postulated that tesla did with adolf and the nazi's, giving them the technology that they desired to try and exert as much control as they can, I think this is also the goal here.
+
+going back, the reason why I think this was done is because from a LOA perspective, it doesn't matter. sure, it is, once again, giving the custodians more power and control, but everyone is an eternal being and there is no real "death" -- just a transition from one experience to another based on similar vbration or attraction (it's not karma; it's just a similar vibration), and then when you combine that with the principal that "it's just more energy", then it's visible that even the "worst" things are (in the long term) "better" and more enegetic.
+
+one of the things that I believed that jesus talked quite extensively about was that we are all all eternal beings. because this message doesn't fit the custodial narrative very well, I'm sure this got changed to believing in something outside of yourself (which someone else controls) so that then you can have this thing that you already have (eternal life).
+
+the thing that I talk about extensively is that no matter what is happening around you, it's all "just more energy" -- and that all things are benefiting you, whether you know it or not.
+
+---
+
+back to jesus here: if he was talking about having eternal life all the time, then the sabotage version of that would be to demonstrate that there really is no death. so, what kicked the whole thing off, I believe is some interaction that he had with mary before the *celebration* of his triumphal entry.
+
+the celebration part I believe is key to understanding things, because there are various ways to keep people distracted from their innate abilities as a creator and turn them into a consumer -- and one of those is celebrations. most people believe that they need a special day to give them permission to feel better than they normally do (which is usually terrible). therefore they spend the entire time feeling terrible, and waiting for some excuse to feel better. some people have more money and can afford more celebrations, and so therefore appear to have more ability to feel happy. the point is to give the control over how you feel to something external to you.
+
+the celebration in itself isn't the problem. the problem is celebrating things (ie. good-feeling conditions) when you really feel bad. therefore, it's not the celebration that's the problem. it was what came before it. I figure this had something to do with mary right beforehand, so when when I ras going to sleep, I was wondering what happened between them that suddenly jesus changed so dramatically, cursing things and other signs of bad-feeling before the celebration[^1] which I think was the emotional trigger which eventually attracted his death.
+
+---
+
+I went to sleep thinking about this and when I woke up, the first thought that popped into my head was "loyalty" -- and I think it has something to do with this. to understand, the context for this is was the conversation that I had with mom this morning. we were talking about changing (how you feel about) the past and perception. I was talking
+
+
+[1]: this also ties into the @[youtube](https://www.youtube.com/watch?v=Rrle0mD92WU) where greg was postualting that tears (and therfore laughter as well) are the phyical expressions of an emotion that can't be translated into something meaningful to language. if the way you feel attracts your roality, then something must have happened in the garden for the most memorable words of the new testament "jesus wept". I think it was done on purpose to make that sentence that memorable, so that weeping would become a staple of the christian tradition (keep people disempowered). it doesn't say what bad feeling realisation happened before he the celebration, but what happened before his "death" was the weeping.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
