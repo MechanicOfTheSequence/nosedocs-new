@@ -6461,6 +6461,108 @@ probability management group
 
 [2]: I don't really know how dogs/cats are in the wold. I did a bit of searching to make sure I wasn't completely off-base here, but I perceive at least the opposite of the domesicated symbols.
 
+
+### 2021-02-18 03:12 - the gift of fire (exodia human part 1)
+
+I just started watching @[abe-now](2021-01-09 p1), and I felt like writing this now for some reason. I have been thinking about this for quite some time now, and I mentioned quite a bit of the subject matter to mom a few days ago in conversation. I don't really know why all of a sudden I want to do this now, so here goes.
+
+so, after combinining the contents of various mythologies along with my own understanding, I have really begun to understand the bigger picture. I call the bigger picture, the "exodia human"[^1]. the reason why I think it is this way and its relation to current events, I will attempt to outline below:
+
+#### prometheus and vulcan :: gods of fire
+
+in ancient semetic mythologies, a guy named enki created humans from the apes (with 24 pairs of chrosomes) so that that they were compatible with the (annunaki) sky "gods" (who apparently had 23 pairs). in another myth passed down in the "popul vuh"[^2] talks about how the initial creation (by enki) was too smart and had conceptual vision (saw all around them and creat distances). as a result, the had to have a "mist" blown into their eyes, or as paul says, "we see through a glass darkly". this is obvious to me as it's the difference between 3d and 4d vision. conceptual vision will be able to see all around in all directions. so the "gods" (custodians) needed to keep the humans from becoming "like they are".
+
+knowing that the original humans had conceptual vision, and are being prevented from being gods by instead perceivng through a cloudy mist, what does that tell us? well, what it measns to be a "god" is to live eternally -- but we know that *everyone* is an eternal being (all of us are an extension of source energy), so what these myths seem to be saying is that the humans were designed with the unfortunate defect of having the capability of navigating time (ie. they are eternal beings). in order to keep the humans from realising that they are eternal beings just like the custodians are, the custodians redesigned the humans so that they would see only a short distance instead of being able to behold the earth in its entirety.
+
+comgbinining these two mythologies, we learn that enki is the same guy as prometheus, in that in the design process, we learn that enki designed humans to be too godlike (that is with the gift of fire), and therefore needed to be punished. remember that as bramley explains in gods of eden, enki was the original serpent symbol.
+
+therefore we can conclude that the original serpent symbolism was a good symbol, but because enki gave humans the gift of fire, the serpent symbol was both turned into a negative thing and also userped by the custodians (dragon, draconic, etc).
+
+the gift of fire is the ability to navigate time wilfully with ones emotions. if you recognise yourself as eternal, then not only can you navigate time based on how you feel, but you can also "reincarnate" (ie. you have transcended the physical plane) into different physical bodies transitioning back and forward between the physical and conceptual planes.
+
+#### the serpent and the "fall"
+
+the OT gives another facet to this story by telling us that "God" (custodians) created eve from the rib of adam. then, the serpent (enki) tempted eve into eating from the tree of knowledge of good and evil.
+
+at that time, I don't believe that the concept of emotions had been realised quite as much as it is now, and emotions were completely accepted as a byproduct of condqitions. ie. if someething isn't exactly how a man wants it to be, it's perfectly natural for him to fly into a rage over the conditions. therefore, the conceptual (mental) plane was not navigated at that time with emotions, but with "knowledge". if you had the knowledge of it, then you could use it easily, and so therefore great effort went into keeping that knowledge a secret. what this means is that a long time ago, time was not navigated by emotions (5th), but by knowledge or structure (3rd).
+
+there is an interesting mystery to be noted here, as the sirians outline the triads during the time of atlantis (see @[noseblog](2021-02-02 18:37)) as +3, -4, -7. the female was 3rd (knowledge, structure) trasnsmitted to receptive source (enki) and physicality (thoth). this is exactly what the early custodians used is knowledge to navigate time (remain eternal), yet the fear that these humans were able to realise their eternalness, they had to be kept from this knowledge at all costs.
+
+another myth talks about how because prometheus (enki) had given humans the gift of fire (emotions), then they needed to be punished so zeus (-7) has vulcan (-5) construcct a woman (pandora) to keep men from ever attaining this fire. interestingly enough this woman would we deceptive and manipulative and essentially all of the attributes that we learn that hera had. hera was the opposite of zeus (so +7), and so this sultry vixen was constructed to keep humans away from realising their eternalness.
+
+as thse sirians describe it, this is the 7th ray triad (+7, -5, -7).
+
+---
+
+what I believe the "fall" was (besides a combination of things), it was the realisation (knowledge) that early humans had of their predicament. imagine it like this: the humans that were designed to be the slaves of the custodians were living in a dream world were everything was hunkey dorey and they wanted not (eg. had no desire), and the custodians provided for them everything that they needed. so long as they remained in their dream-like state of eevrything being hunkey dorey, they were fine and everything was good.
+
+the custodians were likely not satisfied with having to do so much to care for their slaves (they were too animal-like), so so a breeding program was installed. this is told as thse stody of the prostitute teachting enkidu (product of enki) to become civilised. they wanted citizens that tsey could rule over instead of apes they had to babysit. it is said that enkidu's traansformation happened over 7-14 days. obviously this was not a literal week of lovemaking that had a magical transformation on enkidu, but more than likely these this process of trasnforming enkidu was a 7-14ky ordeal of the ape man having sex with the female 23 chromosome prostitutes.
+
+a byproduct of this breeding seems to be that at some point the human began to acquire this knowledge of what was happening (ie. that they were slaves), and at the same time that this happened there was a "fall". the world tree in the sumerian mythology always refers to the zodiac, and so it's likely that this is the time when we "fell" from scorpion down to cow. somehow this breeding that occurred had something to do with pandora (vulcan's creation, eve) which was given to man to both tame him and keep him from recognising that he has fire.
+
+I don't quite know how it all fits together but it seems that at this point as the pandora virus begins to spread, emotion becomes more and more of a problem. it seems that there is also a change in how the rulers held power of their citizens: previously they just said, "I am a god" or "this is the law" or "this is the way it is" (don't question it), and people just went along with it. this was 3rd ray rulership (+3), likely inherited from unessa in the 3rd ray triad. at those times, emotions didn't matter. it was what is the "law" of the gods. the guy with the ruler/sceptre (saying how big it is, is the one with the power) which is 7th ray rulership (+7). unfortnately, citizens are beginning to have emotions, and this is beginning to create a problem for the custodians.
+
+#### the "modern" gods of fire
+
+I believe the message that jesus taught was one that humans are eternal beings (gods), and that you get what you give your attention to, therefore "resist not evil" (because by trying to fight against it, you just make it bigger). this is a key concept to understand here because I'm fairly certain that jesus understood the way to navigate time and was quite successful in his ministry. his ministry cinged on the "resist not evil" concept, because the stuff you fight against is what gets bigger (not smaller). therefore, knowing this, you can now imagine that if we're on the timeline to gain the *knowledge* that we are eternal beings, then it's nice to have see jesus be successful, but instead what we would see is a history were the custodians have been fighting their hardest to prevent us from learning that we're eternal beings. by doing so, they are making it much more likely that we all learn this concept.
+
+the book "gods of eden" is full of examples of the custodians fighting their hardest to try and prevent humans from realising that they are eternal beings. keeping people materially focused is part of this.
+
+so, I think it's most important to note that the problem is the solution here and that big takeaway here is that it appears that these gods of fire keep showing up and giving the custodians further capability to fight against people's realisation that they are eternal beings.
+
+if you pay attention to the different rulership patterns I mentioned above, you will see the 3rd ray (atlantian) triad, then the 7th ray (egyptian/american) triad and we have seen great examples of this type of rhulership through the ages. people have been told to turn off their desire and emotion if they want to attain spiritual perfection, placing emphasis on knowledge (3) and conditions (7). btw rulership is an emissive thing, so therefore female in nature. men are receptive, and so any male-dominated rulership is a reverse polarity operation.
+
+anyway, it is beccoming aparent to the custodians that they need to control people's emotion because that is actually how time is navigated. therefore if they can control how people feel, then they can ensure that they never feel good enough to realise their eternalness and transcend death -- and additionally giving the custodians the capability to control their own emotion and trnascend death and gain conceptual perception.
+
+therefore, once they have these capabilities, they're going to attempt to keep us from it. don't dispair though, because they are resisting the things they they don't want, so therefore attracting it in a stronger way. like me, humans will come to realise that like mr. motor, the custodians are the greatest thing to happen to us -- and the only thing is to realise it. the realisation is the key.
+
+#### +1 and +5 rulership still remains
+
+just recently I heard of the "great reset" and how they want to make it so that "own nothing and be happy". while I do believe this is propaganda designed to condition people to the reality (you get what you give your attention to), and as such it'll likely be sligstly different. it is probably going to be a trial run before the real reset coming a solar outburst, but whatever.
+
+the thing that strikes me about this is how similar it is to my own and jaron's lives. I'm not the perfect poster child that they want because I still want to do drugs. they have me living a life with no posessions and I'm forced to find a way to be happy. this is possible because they completely control my experience. I don't mind because it's just sort of a waiting gace until I get connected. it'll come eventually and I don't mind.
+
+I find it very difficult to believe that they will be able to take away people's drugs and guns before 2030 without putting people into a very deep dream-state (aka same as adam in the garden of eden). they will likely use the effects of the solar outbust as an opportunity to gain control of the whole planet to ensure that drugs are not possible, put people in the dream state, and exert their control over everything.
+
+I think the goal is to get it so that no one has any possessions anymore and that the state provides for it all. seems the custodians have realised their folley of wanting a more capable slave. it's back to the dream world we go...
+
+---
+
+because the goals of this graet reset are so similar to my own experience, I can see clearly what they are tryign to do, and also its inevitable failure as well.
+
+if you notice above, the female (emissive) in the triads was 3rd ray (knowledge, structure, law) influence on the men (-4 and -7) and also the 7th ray (physical conditions, maths, sciences, etc) and these types of rulership has been what the world has experenced since the atlantian times. the remaining ones are emotional/conceptual and desire.
+
+if you notice my life, nosebook is has been making the things they don't want me to do to no longer feel good. this is the beginning of 5th ray rulership. they are also completely neutralising any desire that I have as well. any time that I want to do something, it feels good and I csn't wait to begin. I go to sleep and wake up and it feels terrible and I no longer want to do it anymore. this is 1st ray rulership[^3].
+
+I have no way to perceive the future very easily, but I imagine that they're going to try and control all knowledge (3rd) and all posessions (7th), and then control people's access to knowledge and posessions by controlling their desire and emotion, just like they do for me now.
+
+#### conclusion
+
+I don't really see this as a bad thing because just like I explained that if the goal is to give the custodians the power to try and control everyone's desire and emotions to further keep us away as long as possible from realising that we are eternal beings (gods) just like they are, then it's a great thing.
+
+this would fall right into line with the theme of my own experience, which is "need not the (immediate) manifestation (of being connected)" and "it's just more energy".
+
+I think on a bigger picture, people have been desiring to know what I know, just like people desired to know what jesus knew (which is that we are eternal beings), and this is precisely that. I could explain the concept that you navigate time with your emotions and no matter how much physical effort is put into keeping you from feeling the way you feel, you will eventually feel the way you really feel (bad or good). therefore, if people want to know what I know, but don't believe my words, they want to expeience it for theirselves. since words will not give you the first-hand experience, I would imagine that everyone who wants to know what I know, without having to believe my words will get an opportunity to experience it.
+
+just like we all perceive a past, not where jesus was successful, but instead where the custodians fought really hard to ensure that his message that we are eternal beigns, is not received -- and thereby fighting really hard aginst the message, making it much more likely for us to get that understanding, this pattern will continue to repeat.
+
+I think every so often a fire god will appear on this planet who does not care to maintain the custodians's desire to keep their citcizens' godhood a secret, generating desire in the citizens, while at the same time giving the custodians further capability to push against the citizens' realisation that they are gods just like the custodians.
+
+it's kind of a brilliant plan. knowing this, it's easy to realise that nothing is going wrong at all, and that dispite their best efforts, they're attracting the very thing they're fighting so hard against.
+
+back to abe-now :)
+
+[1]: exodia just means that you have to get all of the pieces together to be able to activate some mega combo
+
+[2]: from "gods of eden" by william bramley (pages 177-178):
+  > They [first Homo sapiensy were endowed with intelligence; they saw and instantly they could see far, they succeeded in seeing, they succeeded in knowing all that there is in the world. When they looked, instantly they saw all around them, and they contemplated in turn the arch of heaven and the round face of the earth. But the Creator and the Maker did not hear this with pleasure. "It is not well that our creatures, our works say; they know all, the large and the small," they said.
+
+  > What shall we do with them now? Let their sight reach only to that which is near; let them see only a little of the face of the earth!
+
+  > Then the Heart of Heaven blew mist into their eyes, which clouded their sight as when a mirror is breathed upon. Their eyes were covered and they could see only what was close, only that was clear to them. In this way the wisdom and all the knowledge of the four men [first Homo sapiens/ . . . were destroyed
+
+[3]: along these lines, I think it's important to note that the first two girls that kicked this whole thing off were marta and andrea, which I would unequivocally describe as +5 and +1 respectively. weird coincidence I suppose.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
