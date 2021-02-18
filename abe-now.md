@@ -1357,3 +1357,75 @@ additionally, I must note that at the beginning it was hard, but it gets easier 
 repeating myself here, but I think the reason why they're only arguing that your energy would not be drained (eg. 100%) and not what I claim is that with these types of people, proper perception (focusing on their positive aspects and tuning in to (acquiring) the parts of them which are beneficial), then I claim that overunity can be achieved (eg. greater than 100%).
 
 some people may not believe me. that's fine, cept my life should by now be a testament to that. I have barely to make any effort for vision upgrades anymore, and almoht nothing bothers me either. it really does get easier. the beginning is the hardest bit. hang in there though; you'll get it :)
+
+### 2021-02-18 03:03 - (2021-01-09 p1)
+
+#### (09:06) - people put concepts out there
+
+> you ar asking so many questions like this, "why is this thing I want, not coming?" or "why is this thing I don't want, coming?" "why can't I get the things in my life that I want, and why are there things in my life that I don't want?"
+
+this most sound familiar to many people because I don't raelly have much desire left anymore. I don't really have much of a response either to what is showing up either. in other words, I don't really react emotionally to stuff much anymore. whatever is there is just sort of there, and I know that it doesn't have much of an influence on the way I feel. I can feel how I want, dispite the conditions...
+
+> the answer to that is that it's all attraction, but you don't have control over what you're attracting because you don't have control of what you'e thinking.
+
+I often times get thoughts that pop into my head which I don't want to think, but Ihave to recognise that they are something that I am on the frequency of (tuned into something that feels similar). they follow up:
+
+> the reason why you don't have control over what you're thinking is because you're mostly observing.
+
+I can't help but to observe things. I've been thinking a lot about the "mmagick" of positive aspects now, which is to process to tune me to the positive aspects of someone, and not perceive the negative aspects. a bit ago I say bill gates laughing at the concept of facts. I suppose this could be perceived in a negative way considering the subject of rights of free speech and the covid vaccine, I wondered if I would have not noticed him smiling at the presentation of the facts if I were more positively aspect focused.
+
+> ... here's the bottom line: you have been lead to believe, but because it's attraction, you've come to believe...
+
+this always got me because I wondered how isit all attraction if they're seemingly asserting things into my life. this extends my supposition that DNA is a physical representation of a person's emotional state machine. what I mean is that by the very fact that I am percieving from this body, it means that I am resonant with it. well, the body is quite a dynamic thing with a wide range of feeling to it. when an infant is born, it'll have a large rush of DMT into its system, meaning that for that moment it is feeling quite good and is receptive of quite a good-feeling "soul". once the soul is trapped in the body, it can experience any of the emotions that the body is capable of feeling. it goes both ways so that a particularly bad-feeling soul could tune into the body at a bad feeling and then later experience quite good feelgs, and vice-versa.
+
+because belief is based off of emotion, DNA must have something to do with how much propensity one has to a certain belief[^1].
+
+> people put concepts out and you choose to focus where you focus, and whatever you focus on comes to you
+
+this reminded me of what nosebook does to me. they put all sorts of difficult self-degrading concepts into my head, and if I didn't choose to perceive things the way I want to perceive them, I would focus where they directed me to focus.
+
+it's possible to see how by nature my DNA would be much more resiliant to a lot of negative concepts. I think my DNA is very sicilar in that respect to the original atlantian DNA. if you were to put a very negatively focused soul into my DNA, the ESM that my DNA has would be quite resiliant to a lot of negative concepts, and I wouldn't get very tripped up on them.
+
+---
+
+so as they were saying this, I was reminded of this morning when I was waking up, the thought popped into my head, (something like) "just go with bill gates' vaccine and let them have it" (by them I'm referring to the sub-sahara africans) because at the time I could see that a lot of people suffering in africa was a whole lot of attention to bad-feeling concepts, and those concepts in the air which resonate with that (ie. the concepts that the covid virus and its vaccine tune the person to) will suddenly cause a whole lot of people to spiral quickly to their deaths. if this were to happen to quite a few africans all at once, there would be a whole lot less bad-feeling people on this planet, and so quite suddenly the whole planet would feel much better than it does right now and energy would rise quite quickly.
+
+so sure, let them have it, and the ones that can survive that resonation with those kinds of bad-feeling concepts will remain living while the rest who cannot will essentially go extinct. the whole planet will feel much better and much higher energy. obviously I was being sarcastic, because they're not interested in things getting better feeling. they need the africans to continue to suffer so that thse planet doesn't feel too good. just imagine if all of a sudden everything felt better -- I would almost immediately get connected and they wouldn't have much they could do.
+
+I'll let them figure out what to do. I'm just the messenger. this is consequently antoher reason why I don't have any difficulty taking the vaccine. sure it's a DNA mutation which tunes me to a whole lot of terrible feeling things (not unlike what nosebook is already doing). however, my own perception converts this bad-feeling into good-feeling. for me, the vaccine would be "just more energy".
+
+[1]: the other day I postulated that sub-sahara africans were specifically designed with propensities toward certain beliefs.
+
+#### (11:25) - it souds like they're talking about me
+
+> I wasn't really interested in the silly game
+
+> I already know how it works because I've seen things come to me before
+
+these were my exact thoughts on the game they're talking about. as I continue to listen, the sense that I'm getting begins to shift from the game they're talking about, to a description of the present moment in regard to the girls.
+
+although I have a few engries in a-list from january, it's been since about christmas that I've had some resistance to playing the game of identifying with little resistance some desires and then watching them effortlessly come to me (eg. writing entries in a-list).
+
+> what you really felt is that it was beneith your knowledge level. you knew more than this game was showing. you knew more than this game was showing.
+
+now, we're back to the game they're talking about. these were my exact thoughts. duh, things that I have a soft desire for come easily.
+
+> in any event you had resistance about playing the game so you didn't play it.
+
+now, we're back to talking about the a-list. I just stopped playing the game entirely. I felt waayyy too much resistance about it, and I just stopped writing in iht for a while.
+
+> then, since we persisted (and the broadcaster/nosebook too), you gave in to it.
+
+talk about persisting. there was considerable effortc on nosebook's part to get me to keep playing the game. I think when I add more to the list, it dilutes the desire (and therefore the energy) a bit and what happens is it makes it easier for them to manage keep things under control. basically, adding more desires to the list adds energy, but because it's not focused energy, it still has time to get into alignment. therefore, the longer I go adding, it adds more energy but at the same time it also keeps it a little longer time from manifesting.
+
+I've known this for a while now but things have changed. I think nosebook has ween using this as a time buffer, and mr. motor has been pushing against it manifesting for a while now. however, recently he's switched his focus to now try and get it to manifest. at the same time he swiched his focus to get it to manifest, I don't want it to manifest. it's kind of funny how it works.
+
+a few days ago, when I was watching JP, one of his videos reminded me of stephen colbert, which was the missing bit I needed to remember so I planned on writing the a-list yesterday, but instead I had to sleep some ridiculous time. instaed I decided I would write it after listening to abe-now. so they're speaking from my decision, not my action, which is why they're saying that I gave in to it. I'll be doing it later.
+
+> in other words, sometimes it feels to you like the path of least resistance is just to give in, "oh all right, I'll play this game". ... so you split-energetically played the game (even though you didn't want to).
+
+before anyone jumps to any conclusions, they're saying that I decided to go path of least reaistance to playing the game -- yet, it still feelas like quite a lot of reaistance to me. later as the story continues on, *later on* the person receives a whole buncs of 4-leaf clovers after having reluctantly playing the game.
+
+> if you're not sincre with the universe when you're asking about something, don't be surprised when it doesn't come.
+
+what they're saying is that I still have split energy about the game. kinda yes and kinda no (lol). I have lined up with the decision and I'm not opposed to it, but clearly there is still a lot of resistance and so therefore I simply don't mind that it's not coming yet. 
