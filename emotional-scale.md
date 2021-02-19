@@ -39,6 +39,7 @@ additional notes derived from recent abraham-now broadcasts
 - confusion
 - exhausted
 - stressed
+- lost (at a loss of what to do)
 
 #### 12. disappointment
 - failed expectations
@@ -68,6 +69,7 @@ additional notes derived from recent abraham-now broadcasts
 #### 19. hatred / rage
 
 #### 20. jealousy / resentment
+- injustice
 
 #### 21. insecurity / guilt / unworthiness
 - I don't deserve it
@@ -77,3 +79,6 @@ additional notes derived from recent abraham-now broadcasts
 - vulnerable
 - lonely
 - regret
+
+
+#### unknown (yet to be discovered)

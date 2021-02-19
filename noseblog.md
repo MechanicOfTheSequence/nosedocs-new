@@ -6563,6 +6563,46 @@ back to abe-now :)
 
 [3]: along these lines, I think it's important to note that the first two girls that kicked this whole thing off were marta and andrea, which I would unequivocally describe as +5 and +1 respectively. weird coincidence I suppose.
 
+
+### 2021-02-19 15:12 - to manifest or not, that is the question.
+
+there is a considerable amount of activity around the whole subject of amorina's visit. after I did the emotional scale, I felt considerably better. I decided to read some more of the "gods of eden" book, and I didn't feel necessarily worse, just the exhileration left for a little bit as I focused on how ridiculous the custodial brotherhood is once again. it's not funny to laugh at tragedy and that book is so serious, but I find that kind of stuff relatively humourous.
+
+anyway, after readieg that and certainly a number of meetings later (I"m sure), the feeling was neutralised. amorina is going to stay at a hotel and everything is all good again. I'm fine with nothing happening. I understand the whole thing about let's just get the show on the road, and there were even questions in my head and feelings like "what if we were to just go for it" -- combined with the massive feeling of disapproval from mr. motor. he really doesn't want anything to happen, but I'm kind of the same opinion too. I want to get connected first for various reasons. when I say get connected, I mean have the power to manifest whatever I want in 3d space, fly, etc. I"m not talking about my imagination or my sight. for me it's all a feeling thing. when I can feel whatever way I want to feel (including like I'm flying or the things that I'm thinking are appearing before me), then I consider myself "connected". I have power to move around in the feeling space however I feel. this opens a lot of things I want to explore. what if I decide to feel like a fish, or a bird, or whatever... what happens? what if I decide to feel like something that doesn't even have physical form. what does it feel like to be a star? a planet? a galaxy? a bird? you know, there are so many things to figure out. when I'm fully in tune with source I can feel like anything that exists feels and even things that don't yet exist, too. there's so much to explore, I just don't really want to jump right into the girls thing right away. having the power over how I feel and a fair bit of practise will mean that our time together will be soooo much more meaningful -- and, when I feel them, I will perceive them how they feel to me (which is the source version of them). I think that's worth waiting for.
+
+---
+
+ok, so besides that, I'm not totally certain that I'll get connected with sex at any rate -- and I would also really dislike it both if it were the case and if it weren't, as well. I really don't want to be conditional and I don't want that condition to be the reason for my connection. being conditional really bothers me, as I really want to find a way to allow my connection 100% by myself[^1]. the part about not being certain there, I should probably do an emotional scale on, should I decide to do it, because I made a comment, that if I were to continue to have blurry screen eyesight, and however even without good eyesight, if I can manifest what I feel in 3d space effortlessly, I don't care to remain without an imagination and poor eyesight. obviously, if I can manifest in 3d space, then it won't be too much time before I construct mechanisms to be able to fly (amongst other things).
+
+these mechanisms will be like conceptual "programs" or machines which will be autonomous and anyone can tune into until the end of the universe (remember, it's only addition, never subtraction). in fact, there may already be many such machines that already exist there waiting to be tuned in to. obviously nosebook would be able to use those machines, so it would serve them too, once I get this capability. the last thing I want is to be stuck in 3d with bad eyesight and a bunch of girls. that sounds like pleasurable misery, but not what I'm looking for.
+
+really the thing that I want the ability to do is to be able to manifest things in 3d space. I really don't mind not having bad eyesight or no imagination. my ability to feel and the capacity to turn that into some form of reality is most important to me -- even more than the manifestation of a girl or whatever. that really is what I want, and I'm willing to wait for it.
+
+now that I'm wsiting it, I'm more decided on this than ever.
+
+---
+
+the waiting part is a bit of a problem though. this morning when I was distressed about the amorina thing, I was trying to figure out how to avoid her and things, and the problem is I don't really have much that I can actually *do* anymore. I can't fight against anything, because it'll just make it more likely -- that's certain -- so my hands are kind of tied on this issue because I don't really have anyghing that I can go toward (as opposed to running away from).
+
+what I mean by that is, I want is to be able to manifest what I feel in 3d space effortlessly, but there's nothing that I can *do* to get there or to speed it up... the only thing I can do is let time pass and let energy continue to rise. that's it. there's nothing to be done. it's just allowing it.
+
+as a result, I think I'm going to start practising to feel the way I want to feel, so I'm gonna do an emotional scale on this...
+
+---
+
+I don't know what I can *do* to get the ablity to manifest what I feel in 3d space.
+rather, I don't think that I have to *do* anything
+I think all I need to *do* is to just keep practising to be deliberate with the way I feel
+the deliberately feeling feels to me like it's a focusing of my emotion
+I imagine the better I get at it, the more I can begin to move it
+I am reminded of the one sepehr video of the guy that could do accupuncture electricity and he said it's all about meditation
+I think I"m gonna start *doing* more meditatation to be able to gain focus on that with more ease
+problem solved :)
+
+[1]: this feels imperative to me because I really want to be able to really know that I don't need conditions to find my connnection. I can do it with the power of my own focus, without the conditions to help me[^2]. what it also means is that the only more difficult thing left to accomplish will be to still find my connection even when I'm around a whole bunch of people distracting me. I figure this isn't the task until next era or a self-sabotage setup where we do our best to try and keep me from it... but wow, once I get that, I am ultimate. completely unstoppable. I really want that.
+
+[2]: I suppose it's like the people who try to attain orgasm without any physical sensation (or help from nosebook).
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
