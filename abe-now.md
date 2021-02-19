@@ -1483,3 +1483,186 @@ I really am not that worried, as it'll just keep getting easier and easier to pi
 what I mean is, my physical is a reflection of how I feel. I still feel quite low energy a lot of times but that will improve with my perception. after some time, I'll no longer feel such low energyness, for example when I wake up, and I'll be feeling as good as I feel emotionally (good) all the time. it's just a bit of an adjustmeent process, but all things physical will start to reflect how I feel more and more, so there's nothing to worry about. I just find a way to feel good under all circumstances, and eventually it'll become no longer a problem.
 
 probably nosebook will eventually stop trying to keep me from feeling good, as I think that may be what is so taxing on my body. if they can just keep my imagination from showing up, then it shouldn't matter how good I feel.
+
+### 2021-02-18 20:44 - (2021-01-09 p1)
+
+when I was going to sleep this afternoon, the thought popped into my head that the reason why they want me to continue on playing the game -- cause remember abraham's words were, "since we persisted (and the broadcaster too), you gave in to it" boadcaster = nosebook. I postulated yesterday that the motive was begcause everytime that I add a few more, it unfocuses the energy a bit, pushing it back in time. this is likely the case, but before I went to sleep I was thinking about how it likely is that they are making timelines with the girls where other guys are pretending to be me. not only have I postulated this in the past, but I have felt what appears to be evidence of it too.
+
+I don't really care. I never really cared about that. their manifestation doesn't have anything to do with my own, so I'm just not worried about it. additionally, I even have postulated that the children that they're making in these timelines are kind of like the atlantian "gods" (the original serpent bloodline) that genetically created the eagles (adam and eve) which was slightly superior because of the extra contrast. I find it possible that the children that we create will be superior to the ones from their timelines, and I'm certain there will be a sort of rivalry or competition between the two. that competition is the basic ingredient for the man creates an empire and his sons run it into the ground as fast as possible storyline -- and is exactly what I postulate was the source for so much of the conflict between the bearded white guys in the past -- whether it's cain and abel or isaac and ishmael this is your basic ingredient to whip up some unnecessary conflict.
+
+so after some deliberation, what it all comes down to is this: if they want to pretend to be me, I just don't care. it doesn't make me feel more competition to try and show them up though; in fact, quite the opposite: I would rather not even play the game. from my point of view, they can just keep doing whatever it is they want to do and I'm not going to worry about that. I am much more interested in gaining the power of near-instant manifestation with my emotions.
+
+to be quite honest, the visual aspect is very distracting to me. I get really confused visually, and prefer to operate in a feeling-oriented approach. I know they can't allow it and whatever, but as I approach having command over the manifestation of the things that I feel (perceive) in 3d space will be something that is really what I want. I know that in the imagination it's possible to see things and get visual feedback on what is felt, but if I'm already practised in my capability to feel the pure form of the concept, then what I want to do is to simply manifest it and then discover its aspects. that's so much more fun sounding to me than trying to imagine everythting. I mean literally anything I want to manifest I can simply find the feeling essence of it and then bring it into reality. if I don't like it, just feel the absence of it -- etc. it makes the creation process so much more fun than it would be trying to use my imagination.
+
+some things might be kind of difficult like doing maths or complex equations. I know that tesla just constructs the concept of the equation and then just let's the answer come into his mind. I suppose something could be created to do something similar, but more importantly I remember I used to be able to write entire programs in my head and then run them. I may not be able to do that, but if I can do physical manifestation, that should include visuals and stuff like that. I should be able to make it work. I don't think there is anything that I can't make a physical/conceptual interface to the mental component.
+
+so what appears to be the plan is that I just keep playing the game steadily as I go along, I'm going to be avoiding any interactions essentially until I have conceptual power over my physical reality. I don't mind whatever they're doing. it's of no importance to me.
+
+the one lingering factor is that I find it difficult to do things tsat I feel resistance to do. more than 5 times in the last week I've felt like I wanted to write down the girls, however everytime that I do, I feel some pretty major resistance to it about the time I get to the computer. I don't want to doing things that feel bad/resistant anymore. there are a lot of things that I want to do, but because they feel bad, I just skip them. I don't really mind this way of living because it means I don't have to do anything I don't feel like doing. the sword is two-sided though. the same thing that holds me back from writing on the list is the same thing that will keep me from interacting with any girls too. the whole thing feels super resistant, and it's unlikely that mr. motor is going to modify his ways, so if I keep saynig I'll play the game, but then never do, it's because I feel strong resistance toward it.
+
+I know abraham recommends to keep playing the game, but I find it very difficult to do anything of that sort when it feels bad. I don't really knwo what to do in this regard, so I'll just keep going the way I'm going: toward near-instant physical manifestation, and in the day-to-day, if it's not a hell yes, it's a hell no.
+
+### 2021-02-19 02:44 - (2021-01-09 p2)
+
+#### (07:11) - calibrating to something
+
+a while back I was watching a sadhguru video about the number 11. there was a woman that asked him a question and I could feel an overwhelming sense of attraction from her. this was during the time that I felt tremendous resestance to adding any more girls to the list. I decided I would add her, and then laid down. the reactions started to roll in cause maybe she's not up to some quality standards or something. I don't really know what the issue is there. when I feel her I feel a person that is very light and full of enthusiasm. I like the way she feels. then, when I feel how other people perceive her, it feels not so good. I don't know how to describe it well, but the feeling feels very archaic and old and brown and stuck.
+
+so this subject literally pops into my head right as abraham is talking about calibrating and buyer's remorse:
+
+> from what position on the emotional scale was I on when I decided to do this.
+
+I think I was feeling ok at the time. I can't really remember now though.
+
+> am I trying to fill a void or fix something that's broken? am I chastising myself because I don't follow through? do I think that this may be a way of getting myself to follow through? because, if that's the case, you're really getting off on the wrong foot vibrationally.
+
+no, no, no. I'm fairly certain that I felt inspired to click on the video (I hesitated at first, and I nearly closed the video a few times too cause I was not so much feeling what he was saying), but then I decided go skip through it, then when I heard her question, I suddenly became very interested in what she wqs saying and watched the video again to try and figure out what she was talking about (the change in temple custodians).
+
+I mean from my perspective, when I seemingly go out of my way to do something I normally wouldn't do, it's because there's strong desire somewhere. I interpret the feeling I felt as if there was strong desire. I dunno.
+
+> on the other hand, if it felt like a really good idea... a way to interact with peeple; a way to get ideas about what they're doing; a way to broaden your experience; a way to have more interaction with more people. if it came from a place that feels like exhileration, positive expectation. if it felt like a good idea
+
+it did feel like a good idea, I remember that. I don't know that I identified the other things about getting ideas of what others are doing or broadening my experience, however as I was writing them, I did feel good about those ideas too.
+
+> the nice thing is, you can try something and if it doesn't feel good to you, you don't have to continue.
+
+here's the thing: it never felt bad to me. only the reaction from other people felt bad to me. I don't really mind so much what other people think though, so that's not really an important thing for me. I'll probably go through with it because it still (even after all of this talking about it) feels good to me and I'm pretty certain it felt inspired from the beginning.
+
+> once you calibrate to the frequency of who you really are, it's easy to stay tuned in.
+
+this is in reference to "buyer's remorse" -- where you purchase something when you're tuned in and feeling better than you are at a later time when feeling the remorse. sales people do this all the time: they get someone to feel better than they normally do, and so then they associate the good-feeling with the product and purchase it. later, they're not feeling as good as they were when they bought it, and feel remorse.
+
+what abraham is saying is that once I'm calibrated to the frequency of who I really am, it's easy to stay tuned in -- which is exactly what I experience. I find it unlikely that I'll have buyer's remorse in this situation, and instead I find it likely that I'll actually feel better than I felt when I originally had the idea.
+
+> on most subjects, that may be a little difficult to calibrate at first. but it gets easier and easier -- until sometime you'll wonder why you ever wonder why you had an issue with something like that, because it's no longer an issue.
+
+I notice this as well. it's so easy (and getting easier by the day) for me to caibrate to the essence of the person (who they really are), instead of the person they have on the outside.
+
+I actually wonder about this because considering what I've been talking about with conceptual perception, it means that I can perceive anything the way I feel it to be. assuming for a moment that I remain with boring blurry vision like I have now, as I get better and better at perceivng things the way I feel them to be, then I wonder if that would have an effect on the *physical* attributes of that (as opposed to just perceiving them as the way they feel to me).
+
+well, case closed for me. I can't wait to meet her :)
+
+#### (11:22) - co-creative partners
+
+> just let your intention be, to be true to yourself; to be tuned to who you really are
+
+> there are people who are determined to convince you other than how you have decided
+
+> it's an interesting human dynamic where they want to be right, and leave no room for any other opinion in the rightness category
+
+> we want you know that sometimes, the people who challenge you; cause you to think -- are well chosen friends -- because they cause you to contemplate. they bring a lot of data. they help you to become decisive about what you want.
+
+the subtext for the above quotes in obvious, but when they said this, once again I was reminded of the woman I was talking about in the previous section. although she does come with a lot of data and will certainly cause me to contemplate (I remember when she was talking, I was intrigued by how it felt like what she was saying was hidden below extra layers which I didn't yet comprehend -- probably a language difference).
+
+I always discover so much when I have these sorts of discussions. I'm reminded of my mom a little bit in that mom seems to ask the right questions (or wrong depending on who is listening).
+
+> but ohhh, wouldn't it be nice to have some co-creative partners who are step 3 partners, who are in agreement with you that feeling good feels best; who are deliberately uplifting themselves and you.
+
+although perhaps I shouldn't have put the interpretation of the feeling I felt as a reaction from others into words, at the same time the whole time while I was writing this I kept getting this feeling of she has a lot of faith or strong ability to believe or something like that. it's hard to put that concept into words, but I do like that a lot, so when abraham was saying "step 3 partners", I felt this strongly that I should mention it here because it doesn't take much more than someone who can simply allow something to manifest. I do wonder what potentialities are possible with a "step 3" partner like they say.
+
+after writing that I feel some resistance, but I don't think it matters. all that matters to any of this is finding what feels good. people have claimed that I have a lot of faith, that I am naive, and gullible, but what I do is I usually follow what feels good to me (now, basically always), and that's really all there is to "faith" -- just following what feels good, and not caring what others think or what they may expect of me. if it feels bad, it just means my perspective of it has resistance and it can be improved. bad feeling = room for imporvement, so everything is good :)
+
+### 2021-02-19 09:20 - (2021-01-09 p2)
+
+man, talk about buyer's remorse. right after I wrote the above, I laid down on the ground. I didn't think much about it because I've slept I think more than 18h in the last 24h. I'm not sure exactly but it's been a lot. anyway, I wake up and I feel terrible. nothing of what I wrote above resonates with my anymore. I just don't want to do any of it.
+
+I feel like I'm being pressured to do something. the enormous pressure is what is bothoring me because now amorina and melissa are coming, and I very much don't want to see them. especially since I feel this bad, I'm basically going to be just sort of checked out. I don't want to do anything with this stuff. like I said earlier, I make decisions based on how I feel, and since nothing feels good, I'm not going to be making any action. even above the operative words were, "wouldn't it be nice to have some co-creative partners who are step 3 partners, who are in agreement with you that *feeling good* feels best". I know how girls work though because they like to make illusions that give a good feeling, but then after that it's all demands and orders, so I'm going to be especially careful. I want to be so good at feeling good and actually connected before doing anything, so I'll likely be doing some sort of extended buffer between feeling good and making action. I want to be in control over how I feel.
+
+so, ahaed of time, sorry for all the fails. I"m not rejecting anyone specifically, just this is all an extension of manipulation. if it were the path toward what I wanted, it would feel normal. it wouldn't feel necessarily good, nor bad. right now, this feels like pressure. normal means controllable and effortless.
+
+it could very possibly be mr. motor simply applying pressure so I feel bad, to ensure that nothing happens. that's quite possible. either way, again sorry ahead iu time for all the fails.
+
+---
+
+so let's do some work up the emotional scale... I don't really know where to begin so I'll just look at each one and see what feels most like what I feel. I'm somewhere down in 22 (powerlessness/dispair/regret) or maybe in 19 (hatred/rage), or 18 (revenge/rebellious/indignation) because I don't like feeling pressured to meet others' expectations of me. I guess I'll start at the lower one and work my way up.
+
+22:
+- I feel like running away.
+- I feel powerless to find something that feels good right now.
+
+21:
+- I feel insecurity awout the situation.
+- I feel insucure about my body.
+- I don't like the way anything feels.
+- I don't think I can meet people's performance expectations
+
+20:
+- I resent having to constantly manoeuvre around nosebook's efforts to corner me in
+
+19:
+- I hate having to constantly battle for a better situation.
+- I'm constantly putting fourth my best effort and the reaponse I get ia to just push harder
+
+18:
+- I'm doing things my way
+- I'm not doing anything until I feel like it
+- people are going to have to just wait until everything is feeling better
+
+17:
+- this whole process pisses me off. there's no effort to make it easy or seamless. instead, it's designed to be as distancing as possible.
+- I'm just going to speak my mind and people can just go with it or go away
+
+16:
+- I don't think this will ever work out.
+- it's probably all just a waste of time
+- I think there are systemic problems that make this whole operation impossible
+
+15:
+- this is all the fault of complete secrecy
+- lack of communication is also to blame
+
+14:
+- I worry that things will never improve and that we'll be constantly spinning our wheels on the same problems forever
+- I worry that things will constantly be in a state of secrecy and that no one can ever actually express anything because of all of the useless rules
+
+13:
+- I doubt that anything will ever improve.
+
+12:
+- I guess I hoped it would be awesome, but I didn't actually want to do anything to make it awesome.
+- all efforts that I put toward trying to go toward desired were met with opposition, so I eventually decided that disaster would be fine, and that I'll just work out the best part of whateve comes. still, it would be nice if it were different.
+
+11:
+- I am definitely ovrwhelmed. I know that I will feel fine when I'm connected, but that feels like something that's still quite a ways away from that
+
+10:
+- as a result, I feel like now I'm forced to stall for some indefinite time again, and I just hate stalling.
+- I wish there was a way to speed up getting connected, so I all of that positive expectation that I want to feel.
+
+9:
+- ??? I don't know, because I can't find a pessimistic thought. I know it'll be fine, so it's hard for me to find pessimism. I can find doubt, but that's lower... anyway, skipping it.
+
+8:
+- I"m just not worried about their efforts anymore. I don't want to fight them.
+- I want to do something more exciting than going in circles all the time
+
+7:
+- I really like whsere I'm at.
+- I really enjoy mom's house. I'm gwowing so much here, I'd like to keep doing that until I get bored with it.
+- I really feel like I've expanded so much here
+
+6:
+- I'm hoping that this experience will be meaningful and fulfilling
+- I hope that it's going to keep me expanding
+
+5:
+- I really like expansion
+- I really like learnning new things
+- I really can tell that this is going to be a lot of fun, whenever it happens
+- there is so much that I can take from this experience, and even now I'm getting better and better at figuring things out
+
+4:
+- I'm certain this experience is going to have a lot of really good feeling moments to it
+- I feel good about it in general
+
+---
+
+I think I'm going to stop here because I don't really feel much passion. I'll work my way up the scale again later. I just don't really want to try and get myself to feel something I don't really feel. it's not that I *can't* feel passion, it's just that I don't want to right now.
+
+I usually feel quite a lot of positive expectation, so it's not a problem. as I was doing it, the thing that I noticed is that I actually *felt* that I was tuning to a different thing. I feel confident that I'm headed in the direction of positive expectation and enthusiasm right now, and that's good enough for me right now.
+
+previously I was headed to something in the direction of dispair, powerlessness, anger or rage, something in there, so the next reality that would manifest would have been one that matches dispair, powerlessness, anger or rage -- right, but now I can actually *feel* that I am headed toward a reality that will yield more positive expectation.
+
+like I said, that's good enough for me right now. I'll check back again soon. I really like this emotional scale. it totally does work.. like really well. like, better than I thought it would. I want to get really good at it, so bring it on. I'm gonna get good at this one. my version was very simplified with much larger jumps, but this smaller jump version is really a lot more effective I feel.
+
+huh... nice :)
