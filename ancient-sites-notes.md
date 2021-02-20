@@ -202,7 +202,7 @@ after reading the gods of eden book a little bit, the idea that brotherhood of t
 
 the sirians say that satan (saturn), was a serious and somber being having the appearance of a dragon. he was 4th ray (source), and was the embodiment of the serpent whhich seceived humankind. he took his serious work very seriously (reminds me of mr. motor, lol).
 
-anyway, the problem with these two images is that they don't combine very well. it's pretty believeable for me to see a prometheous (enki) character which decides to give humans "fire" or the ability to regain spiritial perception. it seems quite plausible too that he could be considered the serpent that deceived humankind (satan). I don't consider saturn to be prometheus, but I guess it could be. enki is said to have done the genetic engineeering of man, so perhaps he had a change of heart... for the sake of the argument, I'll go with it.
+anyway, the problem with these two images is that they don't combine very well. it's pretty believeable for me to see a prometheus (enki) character which decides to give humans "fire" or the ability to regain spiritial perception. it seems quite plausible too that he could be considered the serpent that deceived humankind (satan). I don't consider saturn to be prometheus, but I guess it could be. enki is said to have done the genetic engineeering of man, so perhaps he had a change of heart... for the sake of the argument, I'll go with it.
 
 enki gives birth to jupiter (marduk) and then marduk slays tiamat (the female sea serpent). in greek mythology, saturn gives birth to jupiter. saturn is assomiated with the serpent, so it kind of fits the sirian attribution of saturn (4th ray) to a very serious type.
 
@@ -238,7 +238,7 @@ more weird symbolism here is that the dragon, after being hurled to earth, pursu
 
 it's quite possible I suppose because if I lose singular pertception, then you can imagine that the majority of my timelines are not going to be this one. it'll be difficult to perceive any singualr timeline anymore, as I'll instead probawly perceive an average of all of the timelines. I probably won't percieve any single one of them visually, and instead I'll hace them all happening simultaneously like a stream of emotion. hopefully I don't react too strongly to how those other timelines feel, because the reaction would create reality in accordance to how me + the environment feels (see entries on emotional/conceptual perception).
 
-I guess we'll have to see. 
+I guess we'll have to see.
 
 ### the sirian triads
 
