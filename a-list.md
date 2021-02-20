@@ -369,3 +369,37 @@ also, interestingly enough, I've felt attraction to watch [alliestrasza](https:/
 finally, yesterday when entering into the restaurant and they also passed by later on as they were leaving was a couple with a baby wearing pink. I'd like to invite her to join in too if she wants.
 
 ok, that's good for now. there are quite a few more because I didn't do this for some time. remember this is just that game of soft desire on things that I don't have much resistance on.
+
+### 2021-02-20 14:44
+
+today, I took a nice walk out to the field. when I got there, I discovered my sofa setup had been chasnged around a bit recently. I looked in the dresser drawers and there was a bible in it. intrigued I started to flip through it, and there are three pieces of paper:
+
+> to infinity and beyond - emmannuel
+
+with some infinity designs on it that look pretty cool. I don't know my infinity symbolis, so I don't know what the two lines in the middle mean. they may be decoration though as that's what it appears the thorns(?) wrapping around the other one is. not sure. it's cool though :)
+
+> dakarya ♡
+
+with an 8-sided flower 6 coloured stems below the name.
+
+> lulu ♡
+
+with a pink rose and green stems below it
+
+inside the bible there is a different name: edie rodriguez, and the messages:
+
+> I love this bible but I would like to get the message version!
+
+> I give him some thing that cost me
+
+that's very nice :) it seems to me that this was a girl that decided to leave her bible out there so I would find it. thank you :)
+
+---
+
+I'd like to invite edie and her two friends(?) dakarya and lulu to join if they would like to. thank you for rearranging the sofa setup there too (if it was you), and hopefully see you soon :)
+
+next, as I was walking I felt a reaction about the girl I invited in the museum (@[youtube](https://youtu.be/hn13K69J4Yc?t=873)), and would like to invite her friend to join in as well (if she wants to)
+
+finally, walking home at the corner of massari and nottingham, there was a couple that was unloading to get out to go to the park. a girl in pink was getting out there and I could feel attraction, so I would like to make sure and invite her to join in too if she wants to :)
+
+ok, that's all for now. more again soon
