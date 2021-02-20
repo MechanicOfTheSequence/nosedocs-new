@@ -6623,6 +6623,41 @@ on a plain way of looking at it, the longer without a manifestation, the more en
 
 honestly, I think I drew some inspiration from the st. germain character in the gods of eden book. sure, he is the custodial version, but there isn't anyone that I'm unable to get a whole lot of inspiration from. I mentioned that I would find meeting mr. gates to be a pleasurable encounter, and I've already noted a lot of extra thoughts on DNA that I would love to explain to him. something about him allows me to explain how DNA is an emotional state machine in an easier way. I can get inspiration from *anyone* at this point. it's sooo cool! man, I love me and how good at this I've gotten!
 
+
+### 2021-02-20 04:51 - the biggest disaster yet
+
+I woke up just now with the sense that nosebook's plan was to keep me from getting the ability to manifest things in 3d space (now, whether or not they can actually do that I don't know) and then they would essentially send various guys at amorina to try and seduce her to "give her what ste wants" (sex), while I remain continuing to do what I'm doing. that was the premise.
+
+oh, so going back, what I was thinking about last night after I ended, was that I would want to hang around with amorina and we would get used to each other. as we got more and more comfortable, I would eventually find a way to get the manifestation that I'm looking for, and by that time with amorina, sex would just feel normal. the reasoning behind this is that you can only do what you believe is normal and it'll have an expected (normal) result. doing anything other things that feel normal are big jumps[^1]. therefore, it's always my goal is for anything I'm doing to feel normal or next logical step/state. I don't want big jumps. when going as fast as I am, big jumps are disastrous, so there's a bit of irony here :)
+
+---
+
+ok, so what the waking thought was telling me is that nosebook plans to keep girls around me and I can get them excited about having sex, when the perfnct guy, who knows all about her (because he is affiliated with the network) can slither into her experience and wow her and give her all of the things that she wants (I'm sure he'll have sexual super powers like the landscape architect, too).
+
+what this is suggesting to me is that nosebook wants to figure out how to control the women's emotion, by getting her to feel bad about her present situation, and then to feel good about a relacement guy that will show up perfectly in her experience. nice. I think it's a great idea.
+
+remember how I was talking about how previously the custodial rulership was a 3rd and 7th ray manifestation, likely taken from the original atlantian triads, unessa (3rd), and genxicat (7th)[^2]? well, this would mean the custodians will now attecpt to rule over people's emotions and desires now, something that precviously was left for the manipulative women that pandora was intended to be the prototype of.
+
+remember, pandora was designed by vulcan to keep humans from gaining access to their "fire" and she does that by keeping men going in emotional circles (5) while at the same time constantly pulling them forward with desire (1). therefore now, what looks to be shaping up here is that nosebook will now userp this 5th and 1st ray rulership from the woman as a method of keeping humans away from their "fire".
+
+I think this is a great thing, because it sounds good in idea, but they're playing with fire (hehe). any time that you obsolete a form that is still in use, a new one is created. so, girls are you ready for an upgrade? it's a kind of forced evolution here. I don't even know what it is. really, only source knows what it is because it hasn't yet manifest.
+
+the other advantage that it has, is the girls don't really have any do anything that nosebook is trying to get them to do. I don't have the capablity to to run the simulation on the idea of how fast women will evolve so thst nosebook isn't controlling their desire and emotion. it could be pretty rapidly.
+
+---
+
+so let's just play with this idea a moment. the most likely thing that will happen is that I'll continue to steadily get better and better at directing my emotion, and one day, I'll have so much power over how I feel, it'll just feel normal for me to begin manifesting in 3d space without a problem. amorina and I will have a natural joining as well, because it too will just feel like the next obvious thing which matches how good both of us already feel. I like this future the best and see it as the most likely. however, now let us explore some of the "disaster" scenarios.
+
+imagine somehow nosebook holds on right up until the last moment before I gain that capability (and then peaces out)... that means they will have centrol over 100% of the children. the only other offspring that would have happened, would only have happened on alternate timelines -- which means nosebook doesn't have any competition to worry about. they'll have their highest level of control over their human serfs with quite a bit of technology and all of the super duper genetics as well. not bad. full control sounds pretty good.
+
+another scenario is that that I get my manifestational capabilities relatively rapidly (for whatever reason that may be doesn't matter). we then have a good old-fashioned competition going now where there are the childre that we create can then compete with the children they created on other timelines. disaster jsut as previously imagined, but with the added disaster of anything my manifestational capabilities left behind. I'm fairly certain they wouuld hide/destroy any of it anyway, so as to keep up their billions of years timeline intact.
+
+they could theoretically do both and see which timeline they wish to transfer their consciousnesses into.
+
+[1]: interestingly enough, this is funny because last night I was arguing with mom saying that I think drugs are important because they allow you to feel some way that isn't expected -- and the main reason for that is thst the drug is a big jump (which often times you can actually overshoot the target -- something I explained previously about what feels good). I do not like sex without having full control over how I feel *because* it's a big jump. mom is saying that I should not take a big jump internally (drugs), and instead take a big jump externally (sex). we see exactly opposite on this mattter. girls are much more potent than any drug and I treat them exactly as such. if amorina were a drug, I would be taking it extremely slow in how I do the drug, making small steps, and then only when she feels normal and I feel comfortable with her while in public would I actually venture out into public spaces under her influence. same thing here really.
+
+[2]: interestingly there are some parallels in the mythology, vulcan (5) is born out of hera, venus/athena (1) is born of zeus.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
