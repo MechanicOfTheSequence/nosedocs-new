@@ -6656,7 +6656,7 @@ they could theoretically do both and see which timeline they wish to transfer th
 
 [1]: interestingly enough, this is funny because last night I was arguing with mom saying that I think drugs are important because they allow you to feel some way that isn't expected -- and the main reason for that is thst the drug is a big jump (which often times you can actually overshoot the target -- something I explained previously about what feels good). I do not like sex without having full control over how I feel *because* it's a big jump. mom is saying that I should not take a big jump internally (drugs), and instead take a big jump externally (sex). we see exactly opposite on this mattter. girls are much more potent than any drug and I treat them exactly as such. if amorina were a drug, I would be taking it extremely slow in how I do the drug, making small steps, and then only when she feels normal and I feel comfortable with her while in public would I actually venture out into public spaces under her influence. same thing here really.
 
-[2]: interestingly there are some parallels in the mythology, vulcan (5) is born out of hera, venus/athena (1) is born of zeus.
+[2]: interestingly there are some parallels in the mythology, vulcan (-5) is born out of hera (+7), venus/athena (-1) is born of zeus (-7). either way vulcan and venus are paired, and I like the symmetry.
 
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
@@ -6678,10 +6678,6 @@ slavery
 superior race -> but under what conditions?
 
 @[youtube](https://www.youtube.com/watch?v=8Bls_MPrtcs)
-
-war of the titans.
-zeus & cronos battle (eg. serpent & eagle battle)
-one thing I don't really get is why the 18th dynasty (hyksos/semites), made the sphinx such a big deal. sphinx may have also been a falcon or eagle previously. additionally, I don't understand where the lion symbolism comes into play (lion of judah)
 
 ---
 
