@@ -1,6 +1,6 @@
 ### 2020-09-18 18:?? - (2020-09-05 p1)
 
-I noticed a few different resonances in their emotional scale. I used to go all the way down to depression and dispair when I had something come up, however I noticed that instead of going all the way down, the last few months or so I noticed I may only go down to discouragement or dissappointment.
+I noticed a few different resonances in their emotional scale. I used to go all the way down to depression and despair when I had something come up, however I noticed that instead of going all the way down, the last few months or so I noticed I may only go down to discouragement or dissappointment.
 
 lately though, I noticed that I only go down to pessimism though, then right back up. I like pessimism because it's a lot like doubt. typically I noticed that I when I do go down, I typically only go down to the range:
 
@@ -1129,7 +1129,7 @@ I'll likely write positive aspects of the four of them. it seems like a good ide
 
 #### (19:03) - why? because they feel better
 
-this is something that doesn't work for me -- well kinda doesn't. a while back I had various difficulties with mom and nosebook (and other things too). I was sorta in one of those bad-feeling places, and there wasn't much anyone could do to help me. I felt at the time, terrible -- and there appeared like no one was able to help. it was all hopeless. I felt tremendous dispair and stuff. at that time, I remebered that used to be able to just find nicer things to focus on and I would feel better, however, it was kinda like a very short drug high because it didn't last very long at all. the slightest thing would remind me of the enormous problem (which at that time was nosebook and what they were doing to me), and then that small reminder would send me right back into depression and rage. I eventually gave up trying to feel better and just decided I would be miserable for a while.
+this is something that doesn't work for me -- well kinda doesn't. a while back I had various difficulties with mom and nosebook (and other things too). I was sorta in one of those bad-feeling places, and there wasn't much anyone could do to help me. I felt at the time, terrible -- and there appeared like no one was able to help. it was all hopeless. I felt tremendous despair and stuff. at that time, I remebered that used to be able to just find nicer things to focus on and I would feel better, however, it was kinda like a very short drug high because it didn't last very long at all. the slightest thing would remind me of the enormous problem (which at that time was nosebook and what they were doing to me), and then that small reminder would send me right back into depression and rage. I eventually gave up trying to feel better and just decided I would be miserable for a while.
 
 I can't raelly remember how long I stayed like that, but what changed it for me was realising that not anyone (nosebook, mom, etc.) was responsible for how I felt. the most empowering thing was realising that it's all attraction and that I was doing it all to myself.
 
@@ -1574,7 +1574,7 @@ it could very possibly be mr. motor simply applying pressure so I feel bad, to e
 
 ---
 
-so let's do some work up the emotional scale... I don't really know where to begin so I'll just look at each one and see what feels most like what I feel. I'm somewhere down in 22 (powerlessness/dispair/regret) or maybe in 19 (hatred/rage), or 18 (revenge/rebellious/indignation) because I don't like feeling pressured to meet others' expectations of me. I guess I'll start at the lower one and work my way up.
+so let's do some work up the emotional scale... I don't really know where to begin so I'll just look at each one and see what feels most like what I feel. I'm somewhere down in 22 (powerlessness/despair/regret) or maybe in 19 (hatred/rage), or 18 (revenge/rebellious/indignation) because I don't like feeling pressured to meet others' expectations of me. I guess I'll start at the lower one and work my way up.
 
 22:
 - I feel like running away.
@@ -1661,7 +1661,7 @@ I think I'm going to stop here because I don't really feel much passion. I'll wo
 
 I usually feel quite a lot of positive expectation, so it's not a problem. as I was doing it, the thing that I noticed is that I actually *felt* that I was tuning to a different thing. I feel confident that I'm headed in the direction of positive expectation and enthusiasm right now, and that's good enough for me right now.
 
-previously I was headed to something in the direction of dispair, powerlessness, anger or rage, something in there, so the next reality that would manifest would have been one that matches dispair, powerlessness, anger or rage -- right, but now I can actually *feel* that I am headed toward a reality that will yield more positive expectation.
+previously I was headed to something in the direction of despair, powerlessness, anger or rage, something in there, so the next reality that would manifest would have been one that matches despair, powerlessness, anger or rage -- right, but now I can actually *feel* that I am headed toward a reality that will yield more positive expectation.
 
 like I said, that's good enough for me right now. I'll check back again soon. I really like this emotional scale. it totally does work.. like really well. like, better than I thought it would. I want to get really good at it, so bring it on. I'm gonna get good at this one. my version was very simplified with much larger jumps, but this smaller jump version is really a lot more effective I feel.
 
