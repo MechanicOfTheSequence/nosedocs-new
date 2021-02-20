@@ -40,6 +40,8 @@ additional notes derived from recent abraham-now broadcasts
 - exhausted
 - stressed
 - lost (at a loss of what to do)
+- fatigued
+- stuckness
 
 #### 12. disappointment
 - failed expectations
@@ -59,6 +61,8 @@ additional notes derived from recent abraham-now broadcasts
 #### 16. discouragement
 
 #### 17. anger
+- pissed off at the world
+- mad at everyone or life in general
 
 #### 18. revenge
 - judgement
@@ -75,7 +79,8 @@ additional notes derived from recent abraham-now broadcasts
 - I don't deserve it
 - anxious?
 
-#### 22. powerlessness & dispair
+#### 22. powerlessness & despair
+- depression
 - vulnerable
 - lonely
 - regret
