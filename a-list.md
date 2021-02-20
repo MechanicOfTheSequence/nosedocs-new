@@ -346,8 +346,26 @@ the other one that happened happened last night with a movie that mom was watchi
 
 however, just now when sitting in the sun, I remembered these two girls and also [Geek37](https://www.youtube.com/user/MrThemathgeek37)'s daughter that I had heard in the background of a video a while back. I wrote her down in the book, but since I keep getting reminded, I figure I would put put it here without problems[^1].
 
-finally, I kept feeling another set of feelings in relation to doug voght from diehold foundation, too. I don't believe it would be his daughter, so perhaps his granddaughter or something. I'm not terribly certain. however, I do feel good about it, whatever it is.
+finally, I kept feeling another set of feelings in relation to doug vogt from diehold foundation, too. I don't believe it would be his daughter, so perhaps his granddaughter or something. I'm not terribly certain. however, I do feel good about it, whatever it is.
 
 anyway, so if any of these girls would like to join in, they're welcome to join :)
 
 [1]: see: @[noseblog](2021-01-30 12:04)
+
+### 2021-02-20 06:30
+
+I've been reluctant to play this game for a bit, so quite a few have accumulated. I'll likely have to do a few here, but let's get started.
+
+a long time ago, I was browsing the observatory project web page, and I stumbled into some pictures from the last "observing the frontier" gathering. in the pictures there was a girl that was wearing white and another that was wearing purple that I could feel attraction from.
+
+next, right before I stopped writing in this, I kept being reminded of stephen colbert, and likely his daughter. I remember I set out to add her to the list here and when I was thinking about it, I could feel her strongly. I went to sleep and when I woke up all of this had vanished from memory. I kept feeling something but I couldn't figure out what it was for a long time. I wasn't reminded of it until just recently, so it sounds like there is a fair amount of resistance around it. no worries. I'm just leaving this note here as a reminder. there's still a ways to go, and things could change between now and then. we'll figure it out when we get there :)
+
+I also want to invite [johannah](https://www.youtube.com/c/JahannahJamesOfficial) to join if she would like to.
+
+also, and this seems quite random, I was watching another SGD video (@[youtube](https://youtu.be/hn13K69J4Yc?t=873)), and I could hear some girls talking in the background, and strangely enough I could feel some attraction at the same time. she can only be seen for a very brief moment in the video, and I thought it was quite a strange thing to feel something around such an unlikely situation, so I doubted it at first, however, she's popped into my head a few times since then, so she's welcome to join in if she wants to.
+
+also, interestingly enough, I've felt attraction to watch [alliestrasza](https://www.youtube.com/c/Alliestrasza) a few times but I just sort of skipped it. finally one day a few weeks ago I clicked on her video and I felt attraction from her, but I don't know what it means. she could just be paying attention to my broadcasts. I can't really figure it out, so I decided to let it sit for a while, but I keep getting pulled back to her videos, so I'll just leave this here as "we'll see I guess". she is invited if she wants to join though. I don't know what I feel sometimes these days because there's more and more noise, so I'll just stay cautious on this one and leave it at that. if it develops, great. if not that's cool too. as a side note, the feeling is kind of how I notice she plays the game too. she often starts out a bit conservative and unsure of what she she wants to do at the beginning of the turn. the feeling feels similar to her play style. pretty cool. ok, let's just see what happens.
+
+finally, yesterday when entering into the restaurant and they also passed by later on as they were leaving was a couple with a baby wearing pink. I'd like to invite her to join in too if she wants.
+
+ok, that's good for now. there are quite a few more because I didn't do this for some time. remember this is just that game of soft desire on things that I don't have much resistance on.
