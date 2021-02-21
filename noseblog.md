@@ -6766,6 +6766,9 @@ the second set of artificial drugs that could be created would be like a virus b
 
 the third set of artificial drugs ... wait, I lost it. brb.
 
+---
+
+ok, so you guys don't really need me to cooperate to make any of these drugs. they can all be done in "secret". I'm going to go write a new interpretation of the book of revelation now. peace love and harmony :)
 
 [1]: this makes me think about things, because I was thinking this morning about drugs and how nosebook has become my drug because they physically tamper with the signal to modify what I perceive. I think nosebook is doing this more and more with people, so what's happening is that the life experience is kinda like a very lengthy "coming up" part of the drug experience when the drug is beginning to physically tamper with (tranform) the signals before the reach the translators (and afterward as well), but what this would result in is that the person would supposedly have a pretty hefty drug experience upon death, when nosebook can no longer physically tamper with the signal.
 
