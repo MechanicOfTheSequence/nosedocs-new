@@ -6774,6 +6774,50 @@ ok, so you guys don't really need me to cooperate to make any of these drugs. th
 
 [2]: the next thing this makes me wonder about is the eseteric idea that was presented by sadhguru in one of sepehr's videos where he says that when you die in an unnatural way, then it takes you longer to work out your karma before being able to come back into a body. I realised this idea connects with what I just wrote, because if the body dies in an unnatural way, the body won't have enough time to release enough DMT to rise the vibration of the "soul" before the body stops being able to receive its signal. the way I understand it is that the entity (vibrational concept) of the person continues to exist for a little while after death. you however, leave all of that behind immediately and reemerge into non-physical. that vibrational concept of yourself continues to live on forever, and as long as people continue to give their attention to it (channeling it or whatever), then it'll continue to exist. it's like one of those conceptual programs that I talked about in a previous entry.
 
+
+### 2021-02-22 02:47 - what do I mean by + / -
+
+when I define a type, lately I have been giving it the designation of +n or -n. in general, the original sirian document uses the word male and the minus sign to denote receptive and female and plus sign to denote emissive (see lesson 10). they also denote the "base" male (or stabilising male for the female) as having both signs. these are vulcan, saturn, osiris, and sanatau. I don't fully understand the base, but it's kind of like a reference point for her. he will remain fairly constant, allowing the others to have their energy go to quite extremes (something like that).
+
+anyway, when I say receptive and emissive, I'm referring to what sort of energetic transfer is taking place. the penis/clitoris is receptive, and the uterus/prostate is emissive. I'm using +/- instead of gender because different arrangements can happen other than the traditional heterosexual ones. in reality both males and females are both receptive and emissive, so I'd rather not complicate the argument, however as a general rule, men are energetically receptive (physically emissive) and females are energetically emissive (physically receptive). to illustrate, I will uae a traditional male/female arrangement.
+
+the male is summoning the energy, and the female is going to translate the non-physical energy that he summons. it will then pass through her perception and get transformed into a physical vibration. the advantage for the female here is that she gets to experience energy summoned through her to the male. the better she perceives this energy that he's summoning, the better the experience is for her. as an example, let's just play with some numbers...
+
+let's say the male is summoning 1 unit of energy and she is using her perception to amplify that energy 10x. she will have 10 units of energy pass through her at the quality of her perception. so, depending on her perception of that amount of energy flowing through her, the better she will feel as a reasult. really, her manifestation has little to do with him and more to do with her own pewception. the male will also receive 10 units of energy, but if his own perception will apply a second transformation on that energy. it may happen that he is only capable utilising 1/10th of that energy because of his perception -- or maybe even because of his form of perception, the energy is too high of a vibration and does nothing more than cause him to resist a higher state of consciousness.
+
+it's clear to see that it's in the female's best interest to do her best to do the work and find a way to perceive that energy in a way which feels good, not for his benefit, but for hers. the opposite is also true. let's consider a male who is summoning 100 units of energy and the female has quite a low form of perception, such that her perception (resistance, etc) can only allow 1/10th of the energy he's summoning to flow through her. so, he will only receive 10 units of the 100 that he summoned, and in addition to that, the experience could become quite a painful orgasm if he summons far more than she can allow. again, the quality of the energy (how it feels) has to do with both his and her perception.
+
+so let's define the experience this way (as an easy numbers example):
+
+- quality = 90% perception and 10% allowance
+- quantity = 90% allowance and 10% perception
+
+allowance = lack of resistance (or contradictory vibration), which is another form of perception, but I defined them as differently because one is a transformation on the signal (how you perceive the same detail), which can either feel good or bad. one is signal transformation perception and allowance is perceived resistance to the signal.
+
+---
+
+the next subject to look at is the ray. a good way to see this is to use myself as an example. I very clearly have two sides. one side I describe as a +1 (1st ray female) and the other side I describe as a -5 (5th ray male). you will notice that the way I perceive is in these two dominant ways, as well. for me is all about desire and emotion. I eminate desire and people feel it. I also am very receptive to emotion and am quite good at transforming both to be what I want them to be.
+
+keep in mind that everyone has perception on all of the planes (1-7), however some of the planes are preceived in a stronger way than others. also, everyone has both emissive and receptive capabilities on all of the planes as well, but again this capacity is more developed for some planes more than others. the "exodia human" is capable of transmitting and receiving on all of these planes with ease. so, while some humans have strengths and weaknesses, the final goal is to have a well-balanced capability in all of them. for now, it's ok to perceive someone as being stronger in one than another[^1].
+
+so, when I say for example -7, what I am saying is a person (usually male) who is highly receptive to physical conditions. they're pretty sensitive to them and have quite a keen eye for noticing these conditions. the opposite +7 will be emissive and emit physical conditions. a person who is around a +7 will physically feel what they are translating. if they are feeling desire, that physical sensation will be very tangible.
+
+now, in the context of sex, or rather in the exchange of energy, because everyone has every plane but some more activated than others, the summoner will summon usually the energy which is most interesing to them, and receive the energy as conceptually translated through the emitter. the non-physical energy the summoner has summoned will get translated (some parts amplified, attenuated, and transformed) through their form of perception into a physical vibration. the emitter's body will continue to vibrate in that way until they translate energy again from the next summoner.
+
+in this way, woman can transfer energy from one man to another through her form of perception, which he then himself transforms and utilises for his own purposes.
+
+I hope that illuminates the concept a bit.
+
+---
+
+finally, I would like to add that there is room for conditional experiences quite easily. a woman capable of only receiving a fraction of the energy summoned could go around searching for low-resistance men to keep her energy up, and therefore rely on these men for her well-being. however, as usual, this is an amplifier so her resistance will continue to increase, not decrease and she will need to find lower and lower resistance men to maintain her well-being. obviously, in this situation high-resistance men are useless to her and would be done away with (this is the basis for the opposite earth thought experiment). this happens because the energy he is summoning has to go somewhere. if he's summoning 100 and she's only capable of receiving 10, 90 is resisted and the more is resisted, the more resistance she will feel, and so she will decline rapidly. the extreme case is worth noting, that if she were to find too low of a resistance man, the amount of energy that he would summon would essentially destroy her because he body would be resisting so much. thewefore, for her benefit, it's best to find mostly high resistance men and do the transformation herself and work her way up to a low resistance man when she can handle a large amount of energy passing through her without resisting much of it.
+
+to look at this in the bigger scheme of things, if we lived in a matriarchical society where women depended on men for their well-being, they would need low-resistnance men, but not too low. if we lived in a matriarchical society where women didn't depend on men for their well-being, they would prefer high-resistance men and do the transformation theirselves. this is probably a self-regulating thing, because there's no way that a woman could get so good at transforming high resistance men's energy (meaning she's low resistance) that she delibrately holds men in high resistance to maintain superiority (cause that itself is resistance). the only way she could do that is if she had technology to artificially hold her in low resistance while maintaing her superiority over the high resistnce men.
+
+that would be a real disaster.
+
+[1]: everyone's path to perception in each of the planes is different. I started out as -5, gained +1, then starting at marcos' house, I began working on what I called the rebirth of saturn which is -3, and I'm sensing that what I'm working on now is -7. as you can see, I don't confine myself to the traditional genders or roles in any way.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
