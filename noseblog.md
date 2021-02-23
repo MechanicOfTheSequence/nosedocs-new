@@ -6818,6 +6818,21 @@ that would be a real disaster.
 
 [1]: everyone's path to perception in each of the planes is different. I started out as -5, gained +1, then starting at marcos' house, I began working on what I called the rebirth of saturn which is -3, and I'm sensing that what I'm working on now is -7. as you can see, I don't confine myself to the traditional genders or roles in any way.
 
+
+### 2021-02-22 17:41 - situational hypocrasy
+
+this morning I had an argument with mom about things. she kept adhering to the idea that I need to change my behaviour for different people. I explained (in a very agrivated tone) that it shouldn't matter what I'm doing, because she can't do anything about me. instead, she can only worry about what she's doing and how she's feeling -- while I'm clearly caring what mom thinks about what I'm saying.
+
+it was no less than 5h or less before that, when I was thinking about raquel and was saying, "do I want to be right or do I want to feel good" -- and in that moment I was wanting more to be right than to feel good (as evidenced by my aggrivated tone). hypocrasy, I know... I want to recognise all of these and get the resistance lowered as rapidly as possible. I'm learning things at such a rapid rate that it's often that I have some old habits sttill hanging around, and while I know the better way to go, I just have a bit more practise still doing it the resistant way. so I just need to practise new ways is all. no big deal.
+
+---
+
+anyway, as this morning clearly demonstrates, I still have quite a bit of residual resistance, and with nosebook applying more and more resistant signals, all of the resistant stuff I'm resonant with will show up, so it'll get ironed out soon enough.
+
+I also noticed that I have to set my resistance alarm to be a bit more sensitive. I have an alarm (interrupt) set for about when I reach frustration levels, but I think now I need to set it to at pessimism because I noticed that stress and overwhelment in the conversation wasn't triggering it. I don't really know why that is. adjustment needs to be made, and I think my goal is to get it so that I recognise negative emotion when I get to boredom or lower.
+
+still lot's to be done to release more resistance. I'm getting fast at it though.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
