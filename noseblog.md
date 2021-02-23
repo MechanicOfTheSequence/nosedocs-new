@@ -6874,6 +6874,26 @@ figure out how you want to feel, and find a way to feel that way. I do sound lik
 
 [1]: even though they're "forced" they serve to further amplify the emotion present.
 
+### 2021-02-23 10:25 - positive or negative?
+
+I just now realised that I had my +/- symbols exactly backwards from the sirians. I'm going to leave things as they are right now, but I really now wonder if I have it entirely backwards. do they mean thst + = receptive, or do they mean that males are emissive instead of receptive. I just don't know. I should either read all the stuff they wrote and adjust to what they say, or just keep going with the way I see it.
+
+I just did a quick search for any references to these sort of things and they said that humankind has ignored it's feminine or receptive half. I agree that we've ignored our receptive side. this is the same thing that abraham says too ("get in the receiving mode"), so there's no conflict there, but in lesson 10, they have all females labeled as -, not +.
+
+I label men as energetically receptive (physically emissive), because that's how I see them. this may just be a difference in perception. I just don't know what to do here because I see things the way I see them. for me a tesla coil is a receptive component. I don't know. for now I'm not going to worry about it. I'm just going to keep going the way I have been going. maybe, I need to come up with a new symbol and leave the +/- thing behind, but I do think it's ok for me to perceive men as receptive.
+
+---
+
+the other major difference I had between what I've written and the sirians (there may be more) is on the subject of saturn. I always labeled him as -3 (receptive structure), when they have him as -4. turns out I wasn't really all that off-base because they have sanatau (-3), dwul quin (-4), and vulcan (-5), osiris (-6) as the bases for the various triads. they however only label dwul quin as saturn, but we know from egyptian mythology that osiris is associated with saturn, and vulcan and sanatau don't have planets associated with them.
+
+what you can see though is a progression though. he starts as -4, then after the collapose of atlantis, he became osiris (-6) -- so he in a sence "fell" at that time. if you consider that he game humans the gift of fire, so he went from the centre point (-4) down to imagination (-6). the imagination is like the lowest form of "fire". what you see in your imagination can cause you to feel something, and so then I think that's why the egyptians have so much visual stuff. they were being trained to be visual/imaginative (-6). then, there's vulcan (-5), and now emotions begin to become a real thing much more than previously. osiris gets destroyed and isis rebuillds him as horus who is like a reassimilation and reshaping of the god. a return to a former glory.
+
+interestingly, jeortau is a -2, and the "christ" or motivator is the second plane. the 2nd, 4th, and 6th planes are the transition. saturn starts out as -4 with a +3 (unessa), then becomes -6 with +2 (isis). then jesus (-2) appears, which in my opinion is another incarnation(?) of these fire guys (prometheus, vulcan, jesus). so what I think the point is for the rebirth/return of saturn to will be in final form a -3, like sanatau.
+
+to me, it looks like a progression. saturn (-4) took the hit (like jesus (-2) did), and then isis (+2) rebuilds him to be reborn again. I think the desination is to become a -3, which is, in receptive form is the source version of time, or the base in the 1st ray triad (the father figure). something like that. this is like really hard to explain. I wish I had of paid attention to the symbols they put for their characters.
+
+bleh. I think I need to re-read their documents again and see what else I'm missing. though, it just popped into my head that this may be a case similar to the great pyramid where the billiance is found in the "mistakes". dunno.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
