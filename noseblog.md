@@ -6833,6 +6833,47 @@ I also noticed that I have to set my resistance alarm to be a bit more sensitive
 
 still lot's to be done to release more resistance. I'm getting fast at it though.
 
+
+### 2021-02-23 08:10 - reflector of emotion
+
+yesterday I was thinking about the conversation that I had with amorina where we were talking about looking in people's eyes. I began to realise that the picture I have of myself is very outdated. I still, to a large extent, believe that looking most women in the eyes is very intimidating. I used to be like that and that's still how I probably am by default, but I was trying to think about the last women that I looked in the eyes, and I couldn't really remember the experience very well. my memory is very poor on that. I think though that I have felt attraction, looked women in the eyes and it felt good, so I simply didn't remember the experionce because it wasn't bad.
+
+a number of other incongruencies with how I think of myself and how others see me was aparent yesterday as well. I realised while thinking about it that I behsave much different than I pervceive myself to be. first, this is because I don't really (and try not to) notice how others perceive me. second, I have very little resistance now so I behave, like a child does, in the way that you expect me to.
+
+for example, I noticed that a few days ago in the emotional scale, a few of the entries in the emotional scale I mentioned were having to do with emotion regarding communication and how nosebook has to keep everything a secret. so with that emotion conjured and people at nosebook expecting me to resspond in those emotions, a reality where thoae emotions showed up quickly became manifest. I'm pretty certain that nosebook was likely working to try and neutralise those emotions, so making them more likely, and that's the reality they received. I had done the emotional scale though so what I perceived was a reality that was right in line with what I was attracting, which was positive expectation.
+
+in contrast, last night I didn't do an emotional scale because I didn't really expect to go or really even want to be there. I wanted to watch stars, but went anyway because I felt like people expected me to go. I had no desire to try and make anything happen with amorina and certainly didn't have any positive expectation. I was closest to boredom on the emotional scale (EMS).
+
+when I got to to the restaurant, I could tell that something was off with the way amorina felt and I began to try and figure out what it was. just then, patrick says when she has freedom, she wants to be told what to do, and when she's told what to do, she wants to rebel against beign told what to do. "oh, duh! she's in a state of dissatisfaction". I then explained to them what that means: she does not feel like she's moving toward what she wants, so everything feels dissatisfying to her.
+
+this was further exemplified later when mom was trying to get her to talk about coding. I love it when conversations are "forced"[^1] because I was having nothing of coding. all I can feel is dissatisfaction myself around that subject, and so when I feel dissatisfaction from amorina, that is all I can feel on it too. amorina gives the example of someone who is teaching it to her who is very motivated, and because he is motivated, she too can feel motivation on the subject (exactly the opposite of what is happening in the situation). I then launch off in to telling her about hor unmotivated and dissatisfied I am myself with coding. I explain how I have a program which doesn't even require coding to make a mobile app to put colours on my emotional scale and I still can't figure out how to get any motivation to do it.
+
+while I was telling her about it, I think once or twice the idea popped into my head to ask her if she wants to do it and I'll just tell her what to do, but I was having nothing of that idea. I'm so dissatisfied over how difficult it is to get anything done anymore, I just don't care. I'm not going to try and drag her into yet another failing thing that's going nowhere.
+
+in order to get anything done on that steff, I have to feel good about it and want to do it. neither of them are even remotely possible in my present state.
+
+---
+
+later on I was also thinking about the subject of looking in people's eyes again, and while it's true that when I look in people's eyes, I feel them. when I'm talking I have to feel what I'm talking to be able to communicate it. if I'm looking at them, I'm feeling them, not what I'm saying, so I simply cannot communicate effectively if I look at people in the eyes. I have to queue up a few words and let them come out of my mouth while I glance at their eyes, process what emotion they have in their eyes and then switch back to what I'm talking about. same for listening. if I"m looking you in the eyes, I'm probably not listening to you.
+
+for me the sensation I feel from emotion is a very overpowering experience, and it's much stronger than any physical stimulus. when I feel, I *am* the thing I feel. this is why I know it will be so easy for me to manifest in 3d what I feel, because it's such a powerful thing for me.
+
+so, I was reminded of when I was in spain, I would go to babel cafe -- and other places too, but babel had a nice open and well-lit place where I could see people's eyes clarly and still be quite a distance from them so there was less physical proximity sensation transferred. I would look into people's eyes and just feel them. I found out quickly I had power over what I felt, so some guys were only pissed off and jealous, and they either didn't look me in the eyes or looked away rapidly. with girls, I noticed that I had power over the feeling that I attracted from her and I could quickly explore her and find something that felt good and summon that emotion from her.
+
+I think that is -5's capability and it comes natural to me. however, for example yesterday instaed of consciously attracting (receiving) from amorina the emotions I was tuned to, instead I just felt whatever she had going on. I could have pulled it around and worked some emotional magic, but I don't care to. not at this time anyway. I'm still working out the bugs in my own interaction (how I respond/react to things), and also I really want to redefine my own image as well, because it's clearly quite an outdated version of me that I still think is me. I need to update it to the new non-resistant me that I've become and work a few more bugs out of my own emotional programs.
+
+I really am getting good at this..
+
+---
+
+so I guess what I wanted to say is that I'm highly receptive to emotion, so I feel what you're putting out. if I don't do any work to attract subjects from people which feel in resonance with how I've prepaved, then I'll feel and respond in accordance with what you guys have going on. I guess I want to do a little bit of debugging for a while. I'll have limits so that nothing gets out of control, but I think that it's good for me to get some practise in responding in negative situations (as opposed to just attracting only the ones that I want).
+
+this may change, and rather suddenly when I finally decide to put my focus toward what I want. for now, I guess I'll just continue "creating by default" or being a reflector of (reacting to) how the siutaiton feels.
+
+figure out how you want to feel, and find a way to feel that way. I do sound like a douchebag just saying this, so I'll eat my own words here and find a way to feel the way I want to feel about coding and make the mobile application -- as a kind of bridge from where we are now to the future I can see :)
+
+[1]: even though they're "forced" they serve to further amplify the emotion present.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
