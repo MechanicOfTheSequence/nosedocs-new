@@ -1666,3 +1666,33 @@ previously I was headed to something in the direction of despair, powerlessness,
 like I said, that's good enough for me right now. I'll check back again soon. I really like this emotional scale. it totally does work.. like really well. like, better than I thought it would. I want to get really good at it, so bring it on. I'm gonna get good at this one. my version was very simplified with much larger jumps, but this smaller jump version is really a lot more effective I feel.
 
 huh... nice :)
+
+### 2021-02-23 14:23 - (2021-01-16 p1)
+
+#### (51:04) - as long as there are things that you are not wanting to do...
+
+as I was listening to the previous question about the guy who decided to give up focusing, there were resonances in the question pertaining to me, so I did a little bit of looking back at previous entries to see what the context was on that. back at that time I was having a lot of attempts by nosebook to try and figure out a setup for me which they could keep everything under control: different combinations of people in differing places, to try and figure out where they could put me to have me already installed in a location that they could keep me from having too much freedom. I think they don't want me to have too much freedom.
+
+for example, I've expressed interest in wanting to make a pyramid -- and there is definitely more than one way to build a pyramid, so the way that I make one will not necessarily be the same way that someone else in the past has done it. I woke up this morning after having a dream about building a pyramid. they want to get the dimensions and stuff out of me in dream-state so they can take the design for theirselves and do something with it. they definitely don't want me to make a pyramid.
+
+I think they completely fail to understand the creation process and want other people to just create something desirable for them so they can just have a good-feeling response to the creation. that's like saying, "kenny, I want you to build a website in your dream-state and then we'll take your design and then use it for our own purposes." -- which is fine, but that's not the reason why I want to be a part of the creation process. I like the process of creating. that's the fun part. they wish to remove all of the enjoyment of the creation process from the creation process. they must believe that I derive zero enjoyment from creating things. the magnificent feeling of watching it take shape is completely unmatched by any other experience. even coming up with the idea in the imagination is not nearly as pleasurable as the real thing. think of the difference between having some pleasurable experience in your imagination and then having the same experince in real-life, with real actual sensation. the imagination or dream state is fun, but the real pleasure is experienced experincing the thing become a reality in physical space. there is no substitute.
+
+so that's the setup here for the question. what I'm saying is that though I'm writing this more than a month after the question was asked, we're still having the same problem. see @[abe-now](2020-12-19 p2) which was written a day or so before this question was asked. they are literally covering all of the same concepts. I want to be (consciously) in on the creation process (not making somthing unconscoiusly in a dream). the whole point is the good-feeling that happens during the creation process.
+
+VERY IMPORTANT: my opinion is that the creation process is *more fun* than the final manifestation. you may just want a manifestation, but I like the feeling the creation process makes.
+
+---
+
+ok, so on to the question now: this morning in @[noseblog](2021-02-23 08:10), I expressed my desire to not do any propaving at all and just let myself be a reflector of other peoples' emotions for a while. this has resonance with the @[abe-now](2020-12-19 p2) becasuse in that episode they too were talking about a creation box, and I listing positive aspects, as a way to prepave and essentially attract the thing I want fwom others. like I said this morning, I don't want to do emotional magic to try and attract from anyone anything right now. I want to just be a reflector of emotion for a while.
+
+why? because I want to keep passing time until I have what I'm really looking forward to doing, which is manifeshting what I feel in 3d space rapidly. I figure that I will get better and better at controlling (giving my attention to the feelings that I want to manifest) and letting the other stuff go. if I don't have some level of control, I'll be manifesting anything and everything that nosebook is putting in my experience (which I am also resonant with). so, while the power is rising, I figure I want to actually be good at directing it, too :) makes sense to me anyway, but they don't want me to have any control, so they're fighting against it, and I keep nudging them to keep pusdhing harder and harder against me having any control. the harder they push against me having control, the more rapidly I'll gain that control as they keep giving their attention to what they don't want. I know what I'm doing... :)
+
+> as long as there are things that you are not wanting to do, and not going to do, you have a battle going in within you that is keeping the vortex contents from coming into your experience.
+
+this sounds exactly like what is happening. I do not want to start the girls thing, and I am not going to start the girls thing until I get what I set out to have. I get that I'm blocking the girls thing with my not wanting, but I wonder if I'm also blocking my own desire as well. I don't think so, but I thought I would just put it out there to give nosebook something else to try and manipulate.
+
+#### (59:24) - so what is it that you do want?
+
+they continue on talking about waging the inner war, and while I am opposing the idea of beginning the girls thing right away, it is true that I like the idea of manifesting what I feel in 3d space, the real reason is mainly that I'm delaying is because I want to be in on the creation process. I like to feel the things come into being, and if they decide that they must keep me from feeling the thing come into being, then I'll just wait until I can manifest it faster than they can fight against it.
+
+it's no problem. I'm doing just fine getting better and better at this. nothing is going wrong. everything is working out.
