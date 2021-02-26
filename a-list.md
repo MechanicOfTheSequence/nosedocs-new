@@ -421,3 +421,19 @@ finally, jaron told me that my good friend augusto wanted me to contact him on f
 [1]: I feel resistance around inviting the whole street... I don't really know what to do becsuse I have indivudually achnowledged each of them, just I feel like I've had some repeats (maybe nosebook is interfering) so I'm just leaving it here like this.
 
 [2]: this is a perfect example of a thought of adding someone that felt good to me literally 90s ago but by now it has faded into a badish feeling. I don't believe the feeling is coming from her. I believe it's feeling from nosebook. I'm writing it down anyway.
+
+### 2021-02-26 12:40
+
+just watching facebook with jaron and sunny's profile came up. it feels like I have a vague recollection of her, but I can't quite place it. I'm not sure I met her, but I feel like I may have. ayyway, janon showed me a picture of what I think were sunny's daughters(?), and also on an infant. I could feel attraction coming from them, so I'd like to invite them to join in if they want to.
+
+yeterday, I was also reminded of eugénie featured in @[youtube](https://www.youtube.com/watch?v=TvlpIojusBE) and @[youtube](https://www.youtube.com/watch?v=Z4oy6mnkyW4) while I wtas in the shower. I don't know what it means, but I'd like to remeber her here if it is a thing :)
+
+on that note, and also very very strangely because I've tried to ignore it[^1], but casey muratori keeps popping into my head. I find him a clever guy and stuff, but I felt it a while back when reading his email newsletter too. I don't really know what to make of it. I don't know if he has a wife or daughter or anything there. just, because I keep feeling attraction coming from him or someone asociated with him, I'd like to remember him too, if that's a thing as well.
+
+man... ok I'll do it. as I was writing the last one about casey, I kept getting reminded of jon's repetionist. I keep feeling strong attraction from her. I don't know much about her other than that, but I've definitely felt attraction from her on many ocassions. so, if that's a thing I'd like to remember that one as well. I'm pretty sure it is. she's welcome to join in if she wants to :)
+
+finally, two nights ago mom was watching a film called "mother robot" or something like that. it was a sci-fi film about what it would be like for children to be raised by robots (like metal ones, not even very human-looking ones at that). I was walking by and there was a girl on the screen. I only saw her for a very brief moment, but I could feel a strong feeling coming from her. I'd like to invite her to join too if she would like to.
+
+there are more thst I hazve itention on adding, but I still feel resistance around them.
+
+[1]: it's popped up like over 10 times now. each time I have dismissed it as just some anomaly or something, but it's repeated enough times that I can't ignore it. for example, I rant to watch jon's latest design discussions video with casey in it, but that it's not that because when I want to watch the video I feel resistance and so I never end up watching the video, but then other times like when I'm sitting in outside or not thinking at all about the youtube (like with the email newsletter), I feel strong attraction (having something to do with girls) which has nothing to do with the media he creates. I can't explain it away with excuses so I'm just writing it here.
