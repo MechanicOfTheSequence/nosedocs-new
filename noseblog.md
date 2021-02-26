@@ -6894,6 +6894,15 @@ to me, it looks like a progression. saturn (-4) took the hit (like jesus (-2) di
 
 bleh. I think I need to re-read their documents again and see what else I'm missing. though, it just popped into my head that this may be a case similar to the great pyramid where the billiance is found in the "mistakes". dunno.
 
+
+### 2022-02-26 12:32 - hopelessneess can only be attained in the form of perpection
+
+I sxaw a picture of jaron's facebook that was something about mistakes and it got me thinking aboet mistakes. I seem to perceive mistakes differently than most people do, because I think mistakes are quite a good thing. I think that in order to make any improvement on something there has to be a flaw, mistake, or something that is perceived as bad in order to make any improvement.
+
+I then started to think that I don't think there is anything that cannot be improved upon -- cept maybe metals or something. like, if you wanted pure copper and you had 100% pure copeer, then there there is no way to improve on that. however, if you wanted something like conductivity, there may be other composite materials that are an improvement in conductivity.
+
+so, really, only the things which are perfect are "hopeless" and incapable of improvement
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
