@@ -57,6 +57,7 @@ additional notes derived from recent abraham-now broadcasts
 #### 15. blame
 - disrespct
 - ornery
+- justification
 
 #### 16. discouragement
 

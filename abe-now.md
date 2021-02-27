@@ -1696,3 +1696,88 @@ this sounds exactly like what is happening. I do not want to start the girls thi
 they continue on talking about waging the inner war, and while I am opposing the idea of beginning the girls thing right away, it is true that I like the idea of manifesting what I feel in 3d space, the real reason is mainly that I'm delaying is because I want to be in on the creation process. I like to feel the things come into being, and if they decide that they must keep me from feeling the thing come into being, then I'll just wait until I can manifest it faster than they can fight against it.
 
 it's no problem. I'm doing just fine getting better and better at this. nothing is going wrong. everything is working out.
+
+### 2021-02-26 16:22 - (2021-01-16 p2)
+
+#### (48:28) - programmed fear and trauma
+
+> how do you move forward from fear and truama that have been programmed into the body and mind?
+
+as they're talking about softening the words, I really want to try this a little bit myself first because I see/do it slightly differently.
+
+for me, the first step i s to figure out where I am; doesn't matter even if it's "true" -- it just needs to be the feeling spot of where I am. so, if it were me, this is what I would do: I'd start by changing the sentence to "I feel like I have fear and trauma programmer into my body and mind."
+
+the reason why I would start there is that it makes it about me and makes the process I'm about to take personal, unstead of some prescribed solution that a doctor or "expert" has decided will work for my specific place. it makes me feel unique and that the direction that I go will work for me. the other reason why is because there's tremendous power in identifying where I am so that I can become "OK" with it, which is what I would do next.
+
+there's never any benefit in beating oneself up over some present condition. the only problem is that I still perceive it as a problem. as long as I continue to believe it is a problem, it will remain a problem. this recognition is first step and it should produce a kind of "stinging" feeling or some relief depending on how much I feel I need to be right. if really I feel I need to be right on the issue, then it's sometimes hard for me to perceive that there is no problem with where I believe I am, because usually my "rightness" depends on others agreeing with me that it is a problem. sometimes, it's hard to come to have the humility to realise that the problem is my perception (which is why it doesn't feel good in the first place).
+
+the next thing I would do is to take ownership of it, so I'd say things like, "they could only be programmed if I'm still (resonant with/believe) the idea". this gives me the power because I know that a radio receiver can only pick up the frequency that it's tuned to, so I'm doing all the tuning (or attracting here).
+
+finally, I would rearrange in my mind the reason why I think it's bad. this is almost always because that thing is perceived to be limiting. so, like for example, I'd notice that the fear and trauma is keeping from X, and that's why I think it's a bad thing to have this kind of programming. it's good to recognise desire for what the opposite conrdition is.
+
+on that same subject, I think it's important to have knowledge of certain things that are true with LOA, and that is that things only add and never subtract, so it's always more. I would also know that everything has the perceived qualities (both good and bad) and the absence of it as well. therefore, there is always at least as many desireable aspects (usually more) to any thing, than undesirable aspects which I am perceiving right now. it's all about what part of it I'm tuned to -- or, how I perceive it.
+
+so, for example on this. I really like the idea that my body and mind are programmable. a lot. why? because I can program them. programming is also quite desirable too in that there is difficult thing that people dislike about LOA which is that it's temporary. when you find your alignmeng, you stay there only for as long as you stay tuned there, so if you change your focus, then you'll lose that alignment. "programming" however is designed to function under a wide array of conditions. let's talk about "programming" because it's a very powerful concept.
+
+I talk about emotional/conceptual programs all the time, so let's talk about them. for this example, I will use myself. those that are programming my body and mind with fear and trauma is nosebook, and the "programs" are vibrational entities (concepts) which live in etheric space[^1]. so let's say that nosebook is programming my mind with a bunch of things that feel a certain way. the program is the feeling, so that program resonates at a certain frequency. nosebook can only affect programs within their frequency range, so they can only influence you or program things which you are resonant with. they could fill my head with all sorts of terrible ideas of self-hatred, for example, but if I don't resonante with self hatred, it has no effect on me.
+
+the air is filled with zillions of signals which you don't perceive because they are out of our range of perception. we only hear a narraw range of sound frequencies, and have a pretty narrow range of vision as well. if you perceived more, you would have brain overload all of the time (like an infant), so our brain naturally begins filtering out (tuning to) the vibrstional range stuff which is important. so, it doesn't really matter what any of these programs are -- it only matters which ones I'm receptive to (eg. the stuff I think is important).
+
+before, when I was still receptive to self-hatred, let's say their program caused all kinds of problems because I would continue to attract experiences intomy lifn which would make me feel more self-hatred. so, here's where the idea of it being a "program" is especially powerful. if it's a program, then I can improve upon the program myself.
+
+their original program still exists, but my improved version is more likely to be the version that I am tuned to. the more a practise (use) the program that I created, the more I will experiennce that reality. eventually that program will become so practised that it becomes a belief that I now have. just like I previously believed that I had fear and trauma programmed into my body, now my own program is beginning to occupy more of my thought time, and so therefore that is now what I believe.
+
+so, for example, if the program is to put a bunch of thoughts that feel like self-hatred into my head, an easy improvement will be to make the same program a reality alarm (interrupt) instead of reality itself. now, whenever I hear a thought or idea thst feels like self-hatred, an alarm will go off inside of me and interrupt my consciousness to notify me of it.
+
+this often happens when I hear other people offer thoughts of self-hatred, and so what happens is my reality interrupts when anyone offers a thought of self-hatred (for example), yet it takes prasctise to get my own program to make a strong enough feeling interrupt (feels stronger than my own self-hatred) for me to begin noticing it in myself. usually it's easier for me to notice it in others first.
+
+in fact, we do this sort of conceptual programming all of the time (we're just not conscious of it). ever noctice things about others which you dislike? I found I only notice them in others because when I'm experiencing the feeling inside of myself, I feel the emotion stronger than the notice. therfore, the thing I dislike in others is just me alarming me of things that I still don't know that I still dislike in myself. when I update the program (belief) to something that feels better, I will no longer notice it in others.
+
+so, let's aay nosbook were to try and reprogram me so that I no longer notice these concepts in others anymore. no worries, this is also what I want, too. if I'm not noticing it in others (or myself), I'm not attracting those things anymore, and so therefore they won't be a part of my experience[^2]. what I'm saying is that the more this program is practised, the more it becomes reality, and it'll stay with you for the rest of your life until you tune yourself somewhere differently. the only way that program wouldn't become your reality is if there were an artificial effort to neutralise that reality, forcing you to improve it and come up with a better one[^3].
+
+that got a little meta. let's recap:
+
+1. recognise where I'm at.
+  "I have programmed fear and trauma in my body and mind."
+
+2. find a way to become OK with where I'm at
+  "it's just more energy"
+  "this is just adding up to a more desireable outcome"
+  "what I'm experiencing has both undesirable and desirable aspects. I'm just seeing the undesirable part"
+  "there's much more desirable stuff about this thing than I can see"
+
+3. recognise that all of what I believe is a program, and so therefore I can program it however I want it to be
+
+4. asure myself that the program continues to operate as my reality
+
+5. the program itself cannot be deleted -- only added to, and only by people on that frequency, so there's no problem. all added things have all four aspects: presence/absence of unwanted/wanted, so it can always be improved further.
+
+6. the program is my reality. I program my reality with my thoughts. I can only percveive/receive thoughts that I perceive/believe.
+
+---
+
+it's hard to conceptually transmit this information easily, but when you realise that reality *is* a program, and you are on control of what version of the program you're running. write this down:
+
+> I only perceive the thoughts I've been programmed to perceive.
+
+I like this expression because it can look like complete powerlessness, or it can also look like complete control -- depending on who you perceive is doing most of the programming. I'd like to follow it up with antoher one:
+
+> tho thoughts I'm programming are the things I perceive.
+
+and hen finally:
+
+> the bad program is exactly the opposite of the good program. the program itself isn't bad or good. it just creates or destroys *itself*.
+
+---
+
+something like that. I really love this subject. I also like that it has spawned new thought to talk about in noseblog, instaed of complaining about current events. it's all programming and when you figure out how program your perception, you completely dominate. they can't prevent you from inventing a new form of perception. they can't prevent you from something that hasn't been realised yet. it's so cool!
+
+[1]: abrahahm says, "you think a thought and that thought thinks." why? because you think a thought which is a vibration, and therefore attracts things which feel like it. the thought continues to "think" because it remains a vibration that continues to attract to itself more thoughts that feel like it, and it just keeps getting bigger unless everyone stops thinking anything resonant with that concept.
+
+[2]: I think this is partly the reason why someone can become an "alpha and an omega" and is likely a part of how we as humans will experience life. it's kind of messed up, but imagine if I made a version of myself (say mr. motor) which has a big machine somewhere that is neutralising any good-feeling thoughts. that is his "program" -- and for as long as he follows the program, he'll stay tuned there. it's not permanent though, because mr. motor could find a way to improve upon the program and no longer be resonant with those ideas. in order to do so, he would need to find improved versions of all of the beliefs that I have, thereby improving the program. once he figured out the way to improve the program, he could neutralise out all of his improved beliefs from me, and in order to surpass his neutralisation, I would have to make an even highrer frequency one. it's kind of like a leapfrog, where each iteration improves greatly on the previous one.
+
+[^3]: these (realised) alphas and (neutralised) omegas don't need to be a 1-1 realationship. one alpha can have infinite omegas (and I think this is the plan). let's just say for a moment that I am tesla's omega (there are likely more layers than that), and so therefore he has artificially prevented me from finding resonance with his program (anything that he has ever found and feels good about). therefore, in order to feel good, I cannot adopt tesla's version of reality. instead, *must* come up with an improved version of tesla's program to feel good. in LOA-speak: if I could find only the absence of that good feeling, then I have to improve upon the idea to feel satisfaction by moving toward my desire.
+
+  so, think about this for a moment: what I'm saying is how I "program" my reality. nosebook will almost certainly need to ensure that no one else is able to find a way to program their reality like I do, thereby *forcing* everyone to find a way to improve upon the program that I have created. they're going to do this all at the same time as they ensure that no one is capable of getting connected. eventually, they'll have to do this to each person (me included), each in their own timeline with everyone (agent smith) and everything controlled by them, so as to ensure that no one gets connected and discovers their other selves on other timelines... we're all going to be way stronger than me by the next era -- and beause they'll have almost infinite capability to separate us out into different timelines and stuff, we'll all be roughly "equal" in power level, and very diverse. they'll have to maximise diversity to ensure no one has anyone with too much afinity nearby (because like-minded means increased attraction power).
+
+  inotherwords, we're all (me included) are going to become alphmas and omegas. the ones who do not desire to become alphas (improve upon the program) will be put in as the mr. motor types to hold other alphas away longer from improving their program. in the bigger picture, imagine this is happening now already, and a bunch of us are here on this planet as alphas. I want to explore this concept more. it has to do with the four polarities: absence/presence of unwanted/wanted. we're all going to become these naturally.
