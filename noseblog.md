@@ -6903,6 +6903,54 @@ I then started to think that I don't think there is anything that cannot be impr
 
 so, really, only the things which are perfect are "hopeless" and incapable of improvement
 
+
+### 2021-02-27 12:14 - commitment and programmming
+
+the couple of the last entries in a-list has had some reactions to them, so I just wanted to clarify a few things here. the reason why I often include the pre/postfix of "if she wants to" is because sometimes I'm not necessarily sure (and maybe she isn't either). this is to be sure and make it as clear as possible that there is no commitment or expectation at all.
+
+I know from my experience that a team of 10 people working on something they love and doing something that they want to do is often times way more effective than a team of hundreds who are just doing what is expected of them, or they have some sort of commitmet or obligation to fulfill. I shy away from agreements like that (commitments) because I know they aren't effective.
+
+the main reason for this is that I cannot expect a person to feel or desire something in the moment. people are not consistent -- and, even if they did really want to do something, that still doesn't mean that they will actually feel like doing it.
+
+the reactions that I have gotten have been around the subject of commitment and from a LOA tool it may be quite effective way of increasing energy as well: imagine that I did feel attraction, and so therefore it creates a tug-of-war, "I want to but I can't" sort of situation. in fact, that seems to be a common theme right now. I keep getting repeat reactions, so there must be some influence which are trying to convince them that they cannot, when there really is no evidence for it. therefore, it creates a "I want to but I can't" situation. if indeed this feeling is being felt and experienced by a quite a few, then that will begin to attract more situations which will further exacerbate (amplify) the feeling of "I want to but I cnn't" -- when it's just not that way at all.
+
+I gave up on the idea of "gnomitos" in its original conception. I'm pretty certain that it's ahead of its time, and so therefore have gone the complete opposite. there's no way for me to control or expect a certain thing from people. that's nosebook's job and I doubt they're going to be on-board with the idea this time around. they're desiring the ability to manipulate with variables that they can control (and are out of our own control). so, clearly it's just not going to work (need not the manifestation, right). I"m not worried about it, as it's just not a problem. so, becsuse I cannot expect things to go a certain way that I want it to go, I have to wait until the desire exists in people (and nosebook) for it to go that way too. I think by next era, they'll find the gnomitos quite an enticing alternative to whatever the new plan is which is excascerbating their perceiver loss of control and power (they never had any anyway).
+
+---
+
+so, back to the subject of commitment and expectation. the reason why I put the "if she wants to" part in there is because even if she wants to commit to wanting to do something, like my own experience with programming -- even if I want to, that doesn't mean I actually feel like wanting to do it. there's a difference between just wanting to do something (like I experienced in so many cases with people who told me they wanted to do something, and they probably really did want to). however, actually feeling like you want to do something is momentary and not lasting (kinda).
+
+the concept that I discovered yesterday in @[abe-now](2021-01-16 p2 48:28) is sooo powerful, I cannot adequitely convey how powerful it is. at its base, it's the most simple thing to both create and maintain. tesla had all the tools, and so I'm pretty sure it is what is actually happening[^1]. if you can detect a feeling response in someone, you can detect wanted (ie. anything that feels good) and unwanted. the other component you need is "destructive interference" -- and nature provides that, so it's the most simple and effective "programming" you can create. no neural nets are needed -- nothing. all of his "code" would be made at the speed of thought and exist forever in etherial space. all programs are ephemeral and can only be accessed at the frequency of their interaction. consciousness is the program. you create consciousness with thought and those thoughts think creating your reality.
+
+when realised, it must have taken only a short period of time (a span of a few days/weeks/months) to get all of it working. it's really no effort at all. all of the "leverage" is done by source and there's no effort involved at all. all of the effort was in the creation of the infrastructure necessary to get it working, and nosebook did all of that work, so it's basically effortless to get this to happen.
+
+oops, I got lost in how brillant it is. I'll continue on talking about it very soon, but what I was talking about is consistency (in feeling what you want to feel) and commitment to things. I don't like big jumps and I want to be able to consistently feel the way I want to feel, so this whole programming thing that I've been carrying on abuot is absolutely brilliant. what it means is that as I'm getting better at programming my reality, what you will notice is that I'm getting more and more stable, with fewer big jumps and very few emotional swings. the more stable I get the faster I can go and become more source-like.
+
+I can't figure out how to connect the concept that I want to connect and feel tremendous resistance from those inside my head. I'll return to the subject soon. oh, I see, they wanted me to explain how it works. I already have in previous entries.
+
+---
+
+if you can isolate what feels good (wanted) and what doesn't feel good (unwanted), then you have the two signals that you need. let's define 4 characters as base aspects of the same. it can be divided into further portions but for now let's fucus on these.
+
+- presence of wanted (1)
+- absence of unwanted (+0)
+- absence of wanted (-0)
+- presence of unwanted (-1)
+
+these rank in order, so let's say that I am a prometheus type, so that means that the base signal is prometheus. it doesn't need to be any one person. you can combine signals just fine too, which is why I get the composite personality type. the next thing that needs to be done is to take prometheus' signals of wanted and wanted (these are the things which feel good or bad) and then transmit them into the target.
+
+so, for example, if I'm the new prometheus (new saturn), then you would take the signal of what feels best to prometheus and create the absence of it in me. you'd transmit the pure signal of the wanted aspect[^2] into me. then, nosebook's job is to find a way to make the exact opposite of this freqency. this will create the "absence of wanted" effect. it means that I cannot ever find my alignment the same way that prometheus did. I have to find a new way.
+
+the reason why that's relevant is because I imagine that nosebook is, at the same time as they're neutralising that signal from me, they're also using the same signal for others as a sort of booster for others. they'll feel the "presence of wanted" as a result of that signal.
+
+to intensify the effect, you also need the opposite side. so imagine that in the same way that you can isolate the signal which feels good, you can isolate the signal which doesn't feel good, too. so let's say that you take that signal and pump it into someone (like mr. motor for example), and all they will feel is the constantly intensifying "presence of unwanted" -- and here too, nosebook is given the task (cause certainly mr. motor won't do it) to find a way to neutralise that signal and turn it into "absence of unwanted".
+
+obviously there's much more that can be done than just that. every signal can be felt and so therefore they can be combined isolated and transformed further to create composite personalities. that's the base concept. it's very simple.
+
+[1]: he even mentioned something in his last interview that he thought that the punishment for prometheus was too harsh, meaning he knows of prometheus, and also must have some knowledge of it.
+
+[2]: it's quite possible that this was the signal that I tuned into in vallecas.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
