@@ -6951,6 +6951,15 @@ obviously there's much more that can be done than just that. every signal can be
 
 [2]: it's quite possible that this was the signal that I tuned into in vallecas.
 
+
+### 2021-02-27 13:54 - take the maanifestation out of it
+
+I figured out what is the problem around the commitment feeling. think of it like this: I feel attraction, so what that means is the person I feel attraction from has a desire to feel a certain way which resonates with me. so, what they are essentially saying is, "I want to feel like that" -- and what I'm saying is, even if you want to feel like that, it doesn't mean you'll actually feel like that in the moment. so therefore, there's no worries, no commmitment, and no expectation. you either feel like you want that reality in the moment (and are therefore attracting it) or you're not.
+
+so the problem is in the details of the manifestation. for a lot of people, what they they think, is that the manifestation is some actual event defnined in their imaginagion with physical details. the "manifestation" however is not an event. the manifestation is a feeling, and your reality will reflect that feeling in the form of an event.
+
+if you take the physical manifestation details out of it and just realise that the manifestation is a feeling, which will then turn into physicality -- then, everything becomes a lot easier.
+
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
