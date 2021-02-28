@@ -6960,6 +6960,7 @@ so the problem is in the details of the manifestation. for a lot of people, what
 
 if you take the physical manifestation details out of it and just realise that the manifestation is a feeling, which will then turn into physicality -- then, everything becomes a lot easier.
 
+### 2021-02-28 ??:?? - your own personal mr. motor-machine
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
 ### 2020-12-20 ??:?? - the next major breakthrough
