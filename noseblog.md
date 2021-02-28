@@ -6960,6 +6960,27 @@ so the problem is in the details of the manifestation. for a lot of people, what
 
 if you take the physical manifestation details out of it and just realise that the manifestation is a feeling, which will then turn into physicality -- then, everything becomes a lot easier.
 
+
+### 2021-02-28 10:34 - self-deception
+
+I had some interesting reactions to my thoughts on @[abe-now](2021-01-23 p1 27:36) because I specifically called out a condition that I claimed women do a lot of. gay men do it as well, but I haven't noticed this pattern as often with straight men, cept when regarding really overt "addiction" like porn or drug "addiction". I put quotes around addiction because I don't think that addiction in itseelf actually exists -- but rather a lack of ability to control how one feels. by control, I mean find a way mentally instead of using a condition, whether that's drugs, sex, food, facebook, etc. to feel better (or distract from a bad feeling). so, what I'm saying is we all of this tendency, but for different people it manifests differently. I've felt women talking about realtionships like I've felt men around the area of drugs. in fact, the ralationship wihthdrawl "symptoms" are relatively close to what a person says it's like coming off of morphine or heroin, so I think there's *a lot* of similarity. at it's base, the pattern is, "I need this condition to make me feel better (because I do not believe I am capable of feeling good without it)"
+
+so, specifically what I was referring to is, take this example: imagine there is a guy that you like and he is mean for some reason or another -- but you like him (or you're related to him) so you make an excuse saying, "oh, he's just having a bad day" -- but what you're really thinking is, he's a bad person and if he would only change that behaviour, then he would be a braet person... or, maybe another example is that he is complaining about how bad he did on an exam -- and you tell him, "it's ok, the planets weren't aligned in your favour today. mercury was retregrade and the crytal therapy ..." -- but what you're really thinking is, "he's stupid; that's why he failed the exam."
+
+---
+
+so here's what I'm saying, if you feel he's stupid or that he's a bad person, why make excuses and try to deceeive yourself and others that he is a different way than you believe. that art of trying to smoothe things over is only attracting more situations to prove to you that he is stupid or a bad person[^1]. it's a vicious cycle that will keep making itself worse until you decide you want to feel differently -- because eventually, he's going to peace out saying, "no way I'm hanging around her again, I always feel like I'm stupid or a bad person".
+
+so, why make an excuse to try and smoothe something over that you think is a problem?
+
+---
+
+here's the thing, which is the next thing I realised: going the opposite direction and talking directly about the problem (instead of making excuses) does make me feel better (in the sense that it's not hidden anymore), but it also greatly exacerbates the problem. so lying awout the problem is counter-productive and you're saying that talking directly about the problem is counter-productive, too? yes, that's exactly what I mean. both will continue to get worse. I've found the only way to get around this is to find a way to feel differently about the problem (while recognising it for what it is) so I can attract differently.
+
+for example, if I notice that mr. motor is annoying, then I attract more of him being annoying, yet if I change my perception and know that his annoyingness is just a manifestation of him losing control, now I'm attracting more evidence of him feeling like he's losing control. the difference between this form of *perception* and the excuses I was talking about above, is that the perceptual way sees the cause of the behavoiur as an emotion, not another condition.
+
+[1]: or, if it's in the case of an addiction, you'll attract more sitations to prove to yourself that you are "addicted" to the thing and have no control.
+
 ### 2021-02-28 ??:?? - your own personal mr. motor-machine
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
