@@ -7001,6 +7001,32 @@ so, what I mean by 4 is earth/cube (it's happening to all humans). the 5th time 
 
 [3]: I've also given this quite some thought as well. it forms part of the turning mr. motor into a machine and give him a simplifed interface to reality (you can program your desires or program your reactions, but not both).
 
+
+### 2021-03-01 14:19 - some thinking on the alpha/omega thing
+
+in a previous entry I was talking about how the same person can be used to create the top and the bottom of the spectrum. there are actually 4 extremes to the spectrum (presence/absence of wanted/unwanted) and any combinations on any of the subjects between. the subtext was that eventually mr. motor would find a way to feel the way he wants to feel, and when that happens, he would quickly rise up (it's like pulling back a rubberband). this concept fell a bit flat, as I don't think that's what they want.
+
+as an interesting part in the attraction process, I found a very old video of bramley (author of gods of eden book) @[youtube](https://www.youtube.com/watch?v=xi-s2g0VfCE), and I watched that. in the video he said something very interesting about the "second coming", where the "rapture" was not actually something that was talked about, but instead that actully mentions that a bunch of bad people would disappear before the "kingdom of heaven" comes. this makes tons of sense to me too and has been what I have been saying myself. abraham also talks about this concept too when they would say things like, "you want to become so good at finding your own satisfaction that nobody is the boss of you" (eg. they no loger have any more power over you) and "when you change your vibration, you will either attract something different from the annoying people in your life, or they will vibrate right out of your experience" (paraphrase).
+
+I have been saying repeatedly that the only way to get any real change is to not expect the conditions to change (rapture), but to change how I feel, and then my reality will have to match that, meaning that the peolpe/things in my expeirence will feel reflective of how I feel. so what that means is I'm getting better and better at feeling the way I want to feel. then, eventually things will become so undesirable for me to remain in their experience, they will be forced to peace out. I find it unlikely that they'll do this anytime sonn, as the benefit of having me around still far outweighs the badness.
+
+they will eventually have to peace out though because the environment will start to become more and more unsuitable for them to continue to exist. so, while the subtext is that eventually mr. motor will find a way to completely rebuild his conceptual framework and find a way to feel the way he wants to feel (whether that's given to him technologically or not, doesn't matter), eventually he will figure it out. it's likely not going be this era though -- which is good for all of us. (interesting reactions to the technologically part mentioned)
+
+so, I doubt that mr. motor will be finding a way to feel the way he wants to feel anytime soon, effectively swapping places with me. threfore, what I do expect to happen is that mr. motor will continue to attract more and more reality that proves to him that he's losing control. what he needs to do is to find a way to feel (technologically or otherwise) to feel like he *is* in control -- therefore meaning he has control over how he feels on various subjects. as I said previously, I find it unlikely that these guys will ever gain control of their timelines, because even though they have the technology to navigate time, they're still doing it with their emotions, and they can only perceive the aspects in reflection to how they feel.
+
+therefore, I believe if mr. motor could find a way to feel the way he wants to feel (everything but good), then he can work his way there at his own pace. so, for example, maybe instead of feeling good about his situation, he can instead feel powerful or influential. as he gets better and better at it, he can eventually figure out how to plug all of the holes with replacement emotions. what if we made like a simplified emotional scale.. something like:
+
+1. pure domination (complete power/control)
+2. powerful/broad authoority
+3. in-control
+4. things are coming together/falling apart (depending on the direction going up or down the scale)
+5. powerlessness / no control
+
+something like that maybe. a restricted scale like that would force him to only see things are a feeling of powerlessness, and to get out of it, he has to find a way to see things as coming together again. there's only progress or regression and when they feel like the're regressing into a feeling of no control again, it has to again feel like things are coming together.
+
+ok, that isn't really what I wanted to talk about, but sure I'm going to work in the [book or revelation](!the-revelation-al-reves) now...
+
+### 2021-03-01 ??:?? - some more thoughts on +7 tendency
 ### 2021-02-28 ??:?? - your own personal mr. motor-machine
 ### 2020-12-22 ??:?? - the four coners: when things lose their importance
 ### 2020-12-20 ??:?? - the new demiurge?
