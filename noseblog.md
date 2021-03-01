@@ -7019,10 +7019,13 @@ therefore, I believe if mr. motor could find a way to feel the way he wants to f
 1. pure domination (complete power/control)
 2. powerful/broad authoority
 3. in-control
-4. things are coming together/falling apart (depending on the direction going up or down the scale)
-5. powerlessness / no control
+4. things are coming together (progress)
+5. things are falling apart (regression)
+6. powerlessness / no control
 
-something like that maybe. a restricted scale like that would force him to only see things are a feeling of powerlessness, and to get out of it, he has to find a way to see things as coming together again. there's only progress or regression and when they feel like the're regressing into a feeling of no control again, it has to again feel like things are coming together.
+something like that maybe. a restricted scale like that would force him to only see things are a feeling of powerlessness, and to get out of it, he has to find a way to see things as coming together again. there's also the interesting aspect which I really like where recognising that things are falling apart is *better* than feeling powerless. in this scale, there's only a sense of progress and power or regression and powerlessness. this, thereby forces a feeling of progress (or like things are coming together) as a prerequisite to feeling power and control. I'll keep thinking on this, but from the looks of it so far, I think this may be one of the best ideas I've come up with so far.
+
+I like that things falling apart is an improvement on powerlessness. it does feel better, and the distinction is helpful to separate things falling awart as an opservation of regression instead of a feeling of powerlessness.
 
 ok, that isn't really what I wanted to talk about, but sure I'm going to work in the [book or revelation](!the-revelation-al-reves) now...
 
