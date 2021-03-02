@@ -357,3 +357,34 @@ however, they revolve in the southern hemishphere, it would repeat, "THAT I AM (
 interestingly enough in the sumerian myth, the zodiac is represented as a tree. combine that with the garden of eden story and while the eagle soars high above, the serpent is confined to the ground (and eat the dust of the earth) -- that is to continually be a part of the alchemical process of purifying the alchemical gold (of becoming unconditional).
 
 don't think only soaring like an eagle is great either. I like both. call me a winged serpet if you want
+
+---
+
+revolve = spin backwards?
+be opposite = flip? south = north, north = south?
+
+- 1: living page
+- (be opposite)
+- 2: yo stigmata (weeping virgin?)
+- (revolve)
+- 3: I have hewn (written in stone - great pyramid?)
+- (be opposite)
+- 4: disiderata (things desired)
+
+---
+
+the heir in diane also reminds me a lot of the woman that is going to give birth to the man who will rule the earth with an iron rod. I don't really know why, but in the bigger picture, this could possibly be a sort of time "resonance" (novelty theory) of the henrys of the tudor dynasty?
+
+interestingly enough, this diane thing is also quite similar to the persephone thing -- dunno.
+
+### n(degrees) 13 - the ark of the covenant
+
+@[youtube](https://www.youtube.com/watch?v=tmVlhBgSRPk)
+
+looking for temple has two numbers: 516 and 615. very weird because I believe I exited the hispital on 5/16/2000, and I'm certain that raquel was born on 6/15. weird coincidence.
+
+doug found rams horns in the bushes, then explains that solomon made a lie that abraham's alter is not in jerusalem, which is where he thinks the real alter is located: @[youtube](https://youtu.be/vm-yBMMl5f0?t=3736)
+
+here doug talks about the clues to where the ark is, in a legend written by baroch (grandson of jeremiah) about mout moriah in sinai: @[youtube](https://youtu.be/yghxYTKTAdw?t=870).
+
+http://resonancescience.org/Shakespeare-Equatons
