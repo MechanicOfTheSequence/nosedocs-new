@@ -443,3 +443,9 @@ there are more thst I hazve itention on adding, but I still feel resistance arou
 I just went for a walk and decided to come back the normal way (instead of going the way I came in the first place). as I was walking back, I noticed a few girls. first, I was reminded of the twins (and the girl opposite) on the corner of briargate and bonforte, following thst the ones that I saw in the driveway at ~#46 briargate. I dunno why I'm thinking about this, but it was nice to be reminded of them.
 
 as I continued along, I noticed on the corner of massari and briargate a garage open and a girl wearing yellow. following that there was a girl in the parking lot of the park weawing pink (with a dog, I think). finally, at the end of carefree ct, I could see another girl wearing pink. as I passed each one of them, I felt attraction, but there was a bit of uncertainty -- and perhaps it was on my part, because I'm not really certain. however, when I got home, I'm certain that I felt desire. I'd like to invite all of them to join in if they want to. man, I wasn't expecting that... ok cool :)
+
+### 2021-03-02 17:34
+
+additionally, I'm reminded of jaron's aid yolanda. I like her spirit. she'd fiesty and smart. anyway, I feltl like I sensed desire coming from her too, so I'd like to invite her daughter to join in (if she wants to), as well.
+
+ok so, this has popped up a few times now: I was reminded of a log time ago elementary school girl that I don't rehmember very well if we picked on eachother or not but it's weird that I remember anything at all, but her name was carrie durston. I keep getting reminded of her which is weird. I can feel some attraction/desire in there somewhere, which is writing this. I don't know anything about her for years now. I'm going to assume she has a daughter and that's what I feel. I'd like to invite her to join too if she wants.
