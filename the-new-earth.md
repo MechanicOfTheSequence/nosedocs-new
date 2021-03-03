@@ -36,7 +36,7 @@ interestingly enough, this is reminding me a lot of the chestaheron, which has a
 
 therefore the picture that ish emerging for me is a cube (1500 miles wide), then 13 harmonic structures inside of the cube resulting in a final cube which is 144 cubits wide (which is the harmonic of man).
 
-so, if you imagine the new earth (sphere around chestaheron) surrounding this cubical core (new jerusalem), inside of the cube there are 4 root3 diagonals of 2598 miles. I imagine one of the diagonals being the north pole, the south, and then a plane cutting the cube along the equator, where the "wall" will be aligned to the root3 diagonals in the cube, in line with the equator (axis of rotation)[^1].
+so, if you imagine the new earth (sphere around chestaheron) surrounding this cubical core (new jerusalem), inside of the cube there are 4 root3 diagonals of 2598 miles. I imagine one of the diagonals being the north pole, the south, and then a plane cutting the cube along the equator, where the "wall" will be aligned to the root3 diagonals in the cube, in line with the equator (axis of rotation)[^1]. this cube is found in the chestahedron when the tetrahedral angles open to where they are equidistant from each other, making a hexagon. this happens at precisely the equator.
 
 I would assume that the first (and last) "foundation" is a cube, meaning that 12 more concentric harmonic "foundations" are found within it, arriving finally to the "wall" of 144 cubits. I believe this will be centred around the "ideal" (angelic) man, having 6.8714 feet in height[^2]. I'll have a closer look into robert edward grant's work for other measurements that place the "chakras" up to the positions they would be with the centre of the circle centred around the naval.
 
@@ -55,13 +55,33 @@ it then lists the "foundations" as being rays of precious stones.
 - jacinth
 - amethyst
 
-I suppose a study may need to go into the colour and/or the shape of their crystaline structure. I just don't know or care anything about this[^3]. however, what I do perceive is concentric geometric shapes (probably energetic) coming together to form these shapes, likely similar to a 3d version of "metatron's cube". it should either create an energetic or physical structure which resonates with the central "spinal column" (antenna).
+I suppose a study may need to go into the colour and/or the shape of their crystaline structure. I just don't know or care anything about this[^3]. however, what I do perceive is concentric geometric shapes (probably energetic structures) coming together to form these shapes, likely similar to a 3d version of "metatron's cube". it should either create an energetic or physical structure which resonates with the central "spinal column" (antenna).
+
+also worth mentioning because then the whole thing makes sense is that it is described as having 12 gates (chakras), one for each of the tribes of israel. however, as doug points out, there were 11, not 12, one of them gotting two portions while the others only 1. this makes perfect sense because the outer cube (1500 miles) and the inner cube (the one containing the "12 gates" are both cubes/squares), so you can imagine that whhat you have is precisely what I want to create. I want to move from a 7-ray system to a 9-ray system, then to an 11-ray system, so it's essentially a transformer taking 11-rays of energy and condensing them into 7-rays which is what the humans will experience.
+
+this makes perfect sense because I envision these 4 new rays as having the ability to essentially condense 6 rays into 2 (3:1) affecting the emotional (5) and the structure (3) rays.
+
+- desire
+- relational
+- structure
+- (new) thrust
+- (new) YHVH
+- source
+- (new) identity
+- (new) temporal
+- emotional
+- imagination
+- physical
+
+those names are temporary :)
 
 ### reasoning
 
 I figure that this is going to be a pretty difficult thing for you guys to keep humans humans and not gods. in order to do so, the humans will have to be at a severe disadvantage and will have to really be able to easily be spread thin and mixed easily. I'm pretty certain that the attempt to try and hold the humans away from becoming gods is certainly a futile one, but if you were able to begin to be able to stay head, this could eventually begin to have the capability of becoming a self-replicating expanding structure which can grow liearly or log(n) with growth, which could eventually enable my super-far-in-the-future goal of finding a way to "go infinite".
 
 though this structure seems cool to me, the thing that really interests me is the automaton of contrast idea where they are have their desire programmed. I think this is the most essential aspect to any reasonable success at preventing humans from becoming gods for at least the next thousand years or so. I simply cannot imagine being successful without this.
+
+---
 
 [1]: https://www.sciencedaily.com/releases/2008/02/080208091314.htm
 
