@@ -7114,6 +7114,59 @@ for now though, I retain my direction. do whatever you want :)
 
 [1]: I always wondered about this, because he contacted me, then I went about my drinking like before, then he appeared again and said some more timeline adjustments needed to be made. he started talking about some bizarre caliph something from space. some malignant AI virus or something like that, then said something about putin, then there was like a huge fireball (meteor) over russia like a day later. I commented that it may not have been a meteor because it would have given off an EMP and he said correct. he also clamed that obama was a clone as well. all things I felt to be very bizarre claims which I never took seriously. I find them to be dubious claims but the concept I received from it is that these are controlled entities or puppets (by whom, I'm not sure. doesn't matter to me).
 
+
+### 2021-03-06 01:31 - not me, lol
+
+I failed to connect a few concepts in the previous entry. one is that tesla is very visual and I find it most likely that he would project the image of my "future self" into my vision just like how nosebook transmith images into our eyes, but the image comes from his mind, not from nosebook's machines. I believe this may have also been what happened to st. john the divine and perhaps paul as well (see "gods of eden" for further analysis) -- with the specific goal of modifying the timeline to get people to believe (and therefore attract) certain symbols. in that state of consciousness you see a symbolic/conceptual reflection of the way that you're vibrating (what you've been thinking and how you feel). it's all attraction. you can only see stuff you're resonant with, and it's your perception that translates the vibration into a sensation or image.
+
+this is what I was explaining to mom this morning: I can see sad things and it doesn't have the emotional effect of feeling sadness because I know there's nothing to be sad about. it's all more energy and we're all eternal beings, there is no punishment and only I am responsible for how I think, perceive, feel, (and therefore attract) into my experience. there's nothing to be sad about. most things that most people would consider sad to me now appear comical. I'm not really laughing at the person specifically, but the whole subject of effort and trying is sometimes hilarious. I can't say it more clear than this:
+
+> *ANYTHING* that doesn't feel good means there is a better way to look at the same thing. always. no exceptions.
+
+so I just don't see anything going wrong at all. not one bit. the other thing thst I realised afterwawd is that quite possibly, actually it's not optimising for the y-chromosome, but the x. while star-watching I was remembering how often tesla would praise his mother for his inventiveness. this kind of falls into line with the "holy grail" idea that these men with degenerate DNA need to find a very nice woman to have children with so that she neutralises his resistave thought -- or that the most resistave men have a very soft sid to them to balance out their resistznce[^1]. I believe the x-chromosome is a fully programmable personality and state machine to balance out the other side.
+
+an interesting thing that I always thought was weird was that the storise of jesus as a child, he has a massive ego and kills other kids. he displays very little seriousness toward human life, ending it and returning it with ease. he also appears very trobled as a kid. tesla describes his childhood as having tortmenting visions appearing in his vision. I wasn't that bad, but I was very fearful and I had a whole lot of nightmares. in any other family environment, I would have turned into a very destructive person. things were very intense. the problem with sociecy is that it trains us to react to things in a non-productive, not good feeling way. my falmily environment reduced a lot of those factors and allowed me to learn and grow without a whole lot of difficulty.
+
+what I'm essentially saying is that I believe I started out with DNA that gave me a very high propensity toward negstive emotion (fear, anxiety, etc) and I was able to find a way to begin to control my emotions and use them to create the things I wanted with them. tesla describes the same thing, yet I don't remember if he uses the exact word "emotions". jesus' case is similar I think. he figured out how to watch the things he wanted to see appear and practised that until he was so good at it that he could feel the way he wanted to feel (this is my interpretation of what I've discovered over the years of him).
+
+in all of these cases, the common thing that I see with high energy and high resistance men is that the ones that fail never learn to direct their emotional energy. the ones that succeed, do. it may be a bumpy ride for me, but I always figure it out. I'm certain that figuring out how emotions work is something I'm good at. tesla seems like he has the capability to do it as well (maybe he learned even more through my experience).
+
+---
+
+anyway, I doubt that it's necessary to try and optimise for maximum male gene expression after thinking about it. this was a concept that was used by the patriarches to maintain their god/royal bloodline to have more access go psychic capablities. however, I believe that DNA after so many years of resistant thought has become so degenrate that most of these men (who refuse to learn to transform and direct that emotion) feel absolutely terrible (though they may have enhanced vision) and have to find a way to slow their life way way down and control all of the conditions so they experience less of what they are attracting, or they've had to shut the resistant male side down and act more from their feminine side (generalisations).
+
+because I think that, though tesla is a very hard taskmaster, he does know how to direct his emotion and I imagine he's a lot like me, where I'm just not scared about a little bit of resistance in my reality. in fact, it's so weird because I would very much not mind becoming a custodian myself, setting up the most difficult doje ever, getting my automatons all setup and then diving in to just go lifetime after lifetime of winning as I orchestrate my different identities to forece each other to grow and gain strength from each other from interactions.
+
+in fact, I estimate that this is happening already, and if it is, it's a very weird symmetry because I imagine that I would have thousands (or more) different reflective identities of myself out here in the world interacting with me. I have no idea who they are, but they're designed by me to give me as hard of a time as possible. then, I now am getting the image that tesla also has probably thousands of his own automatons out there that he controls. I'm not sure if I program the desire or not, but there's a very weird symmetry going on because like I said I would say that I started out -5, gained +1, then later have been working to learn -3 (new saturn), and +7. I'd describe tesla as being almost exactly opposite of me. he would be -7 very similar to thoth and it seems like he's developed more capacities -- probably +5 and -1 and +3 as his opposites. we would be like a team of opposite polarities. very cool.
+
+therefore, if I had to speculate, I would imatine that since I believe the result will be an x3 for tesla, the goal is not to optimise for male gene, but for female gene expression. from my perspective, imagine my mapping:
+
+y: -5
+x1: +1
+x2: -3
+x3: +7
+
+my goal is to accomplish this myself, but imagine that I were going to become a custodian like tesla, I would be looking for a girl that is +7 primarily and -3 secondarily. for him, this would be the opposite:
+
+y: -7
+x1: +5
+x2: +3
+x3: -1
+
+so, he would be looking for a girl which is +3 primariliy and then -1 secondarily.
+
+---
+
+so now that I've explained all of that, what I mean to say here is that all of this "breeding" is likely happening in different timelines. I have no control over it, nor do I want to. I just desire things and then they happen. I still believe that there has been so much tampering with the timeline by tesla and his goons that are trying to get their hopelessly impossible situation under control (lol). good luck with that. if I had to guess, I would say that from a broader perspective knowing me, I'd say, send me in and I'll cause as many problems as I can, give them all the technology they need to get everyone under their control splitting and mixing people as thin as possible as they try to accomplish the impossible over the next few eras (lol). I figure at the peak of some point, I'll either "transcend" physical space and have the YHVH perspective of multiple identities, inserting myself repeatedly over and over into the dojo... or, I'll have already positioned my transfer of consciousness into the next body, to where I'll bounce around between bodies getting better and better at controlling my emotion. they'll have to transfer my consciounses into all sorts of degenreate forms to keep me from getting it so rapidly. each time, it's more energy and I'll grow stronger, and they'll have to split me further and further. I have no idea what it'll be like, but I knor I'm going to get so good at finding the way I want to feel in such a wide variety of situations, I will eventually become we the humans. it's gonna be nuts. there's nothing that's going wrong, at all.
+
+why? oh, because say I'm way too good at fidning my connection, I have to be blended with someone who isn't so good at finding their connection and put back through the spin cycle. I'll get it (obviously), and now the other person will have an extremely high likelyhood of getting it too. in order for the custodians to keep me from getting connected, they will have to mix me with everyone who has a difficult time finding their way, to lower my chances of getting connected.
+
+I am the problem and the solution :)
+
+lol... machiavelian strategerie
+
+[1]: I need a better word for this. it's disharmonic thought. it's the same thing as disease. the DNA vibrates in resonance with your emotions, and depending on its vibration the DNA will perform better or worse (see dispenza). this emotional state machine is like a meta system that exists in the DNA to transform some vibrations into others. it'll make the way you feel better or worse. this seems to be partially inheritied genetically, so a father will pass this state machine on to his son in the x/y. (the female will do the same)
+
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
 ### 2021-02-28 ??:?? - your own personal mr. motor-machine
