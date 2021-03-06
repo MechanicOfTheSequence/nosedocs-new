@@ -247,3 +247,11 @@ interestingly of note, the sirian triads seem to have a lot of symbolism to them
 the 7th ray triad are genxicat (7-f), an enchantress. she's clearly hera, zeus' wife -- shapehifter and symbol of condor. vulcan (5-m), and allayandra (7-m). this guy reminds me so much of ramtha and is described as a fiery bird (phoenix) and is said to have mental interconnection with sekhmet (1-f) and jeortau (2-m) whom are twins.
 
 clearly, the condor is a symbol of upper egypt and the lower egypt's cobrs was borrowed from the serpent symbolism from the atlantians before the custodians ran with it.
+
+### snake puma and condor
+
+@[youtube](https://youtu.be/kujKXWLh3l8?t=4284)
+
+the three worlds: the lower snake, the middle puma (where we are), and the celestial world of the condor
+
+snake, cat, bird
