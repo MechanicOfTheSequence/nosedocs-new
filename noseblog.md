@@ -7149,9 +7149,9 @@ x3: +7
 my goal is to accomplish this myself, but imagine that I were going to become a custodian like tesla, I would be looking for a girl that is +7 primarily and -3 secondarily. for him, this would be the opposite:
 
 y: -7
-x1: +5
-x2: +3
-x3: -1
+x1: +3
+x2: -1
+x3: +5
 
 so, he would be looking for a girl which is +3 primariliy and then -1 secondarily.
 
