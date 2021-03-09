@@ -7297,6 +7297,8 @@ there is never an exception where something that feels bad is going toward what 
 
 you don't have to feel good (meaning going toward). you can continue to feel content, bleh, OK, satisfied and not be going away or towards what you want, and in these cases, because of LOA, the manifestation is automatically becoming bigger. the more time that passes, the bigger or more meaningful the manifestation will be because more energy has accumulated. they may be able to keep you from gaining too much physical energy, but the non-physical energy contniues to increase.
 
+one more thing: each time you get a part of your source signal modified, it's like being a mini alpha/omega of yourself where you're forced to come up with a novel way to accomplish the same thing repeatedly. it's not a bad thing at all. it gets easier and easier and you get more powerful every time.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
