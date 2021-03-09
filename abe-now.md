@@ -1835,3 +1835,73 @@ the point is to gain power over the way you feel and when you show yourself you 
 [5]: this was really weird because I was thinking of this reinvention thing and it popped into my mind the hermes trismegistus thing (thrice great), and it occurred to me that he may have had to completely reinvent his conceptual persona 3 times now. I was then reminded of a long-sanding thing that has been going through my head, "it's not 3 but 4" -- and I always associated 3's with tesla and 4 with the earth, so for me it was not the triangle but the square. 3 is about cycles, but four is about completeness[^6] -- but thst would be cool if it has to do with reinventing the conceptual persona from nothing with the alpha/omega thing I've been talking about...
 
 [6]: had some reactions on this. see @[noseblog](2021-02-28 11:16)
+
+### 2021-03-08 00:00 - (2021-01-23 p2)
+
+#### (36:39) - it sounds like taking drugs
+
+I didn't want to comment more here on this, but I can't help myself. as I'm continuing through this episode this time it's bothering me her description of "going to the present", and then back to whatever. it sounds like a drug experience. the difference is, it sounds like it's very sped up so that it appears that the craving for the drug to feel better, which describes as going to the present, happens rapidly. during the drug experience (the feeling of the present moment) makes her feel good and she seems to feel a lot better about her situation, but then when she returns, things go quickly worse. this was the description that made me think of a drug experience because whenever I used a drug to find a way to excape my present moment, I would feel better on the drug, but when I came back, the problem was only worse. this was especially noticeable on alcohol, as alcohol just made me completely forget about the problem, laugh at a bunch of stupid things and when I came back the feeling of my problem only was worse, so I drank again to quell the terrible feeling.
+
+dispite its similarity in description of experience to alcohol, I suspect what is happening is the "preaent moment" she is describing is nosebook drugs. I think what they do is the take your mind and release it from the present moment and put it in a dream-state like frequency where everything feela very abstract. they probably pump up the DMT production in the pineal as well so that the experience feels extremely presennt and real. the reason why I say this is because DMT can take the most abstract and nonsensical stuff and make it feel very very important and real. I believe this is what she's describing as the "present moment" -- and, if it is, then I can imagine that it will make things way way worse.
+
+I find it kind of funny that they're selling this to people, because it's literally drugs your brain produces -- they're just stimulating the production of it. normally, this production is stimulated naturally as a result of feeling good, so the fact that you can use this when not feeling good is a bit (in my mind) dangerous. reason why is because DMT is a tremendous amplifier of the quality of an experience. if it feels good, with DMT, it'll feel REALLY GOOD. if it feels bad, it'll feel REALLY BAD. I doubt that they allow people to run their head with hightened DMT quantities during normal states of mind (probably only when the mind has reached a relaxed dream-state), or else quite literally anything you are thinking will begin to appear in 3d space and you can consciously interact with it as if it were a conscious entity[^1].
+
+it's kind of funny also to me too and I find no real problem with it, because it basically allows normal people to do drugs without all of the drug experience. also, it's 100% not physically addictive at all. it's only psychocologically addictive because the experience feels so good. ever wanted to return back to a dream because it felt so good? there's nothing wrong with it. what it's doing basically is accelerating everyone's experience.
+
+my advice would be to use it when you feel good, and only then -- that way it'll make you feel REALLY GOOD.
+
+the other thing I will note here is that it'll enhance your perception and allow you to find new ways to perceive things. so you can also use it like a tool. often times in the past I would get stuck on something that feels bad and I can't find a way to perceive it which feels good. however, after sleeping, I often know when I wake up how to change that perception so that the problem no longer makes me feel bad. with this tool, that process becomes almost immediate, as you can skip the whole sleep part. just set an intention like, "I would like to see a way which I can look at this same problem a new way which doesn't cause me to feel bad" -- then, go off and when you come back, you'll probably have a sense of how to do it.
+
+it's like a super fast shortcut to meditating to find the answer. you'll come back with more or less the same feeling you had before (like abraham is saying), but the difference is you have a thought action on how to perceive the same thing differently. this method has a lot of advantages to it, and is basically what I do. I rarely meditate because the big difference between where I am now and in a state of non-thought can cause dramatic bounce-back into reality. for me, it's kind of like a drug experience for me because when I start to feel really good from quiting my mind, I start to hear and see random things. so I prefer to gradually adjust my direction as I go without taking any big jumps. the biggest jumps I take are when I watch stars, and I'm pretty OK with those now.
+
+therefore, if it were me and I had this capability, I would use it all the time. you can use it to rapidly release yourself from the present moment with it (like a drug or meditation experience) but much faster and without the long-lasting effects. then, come back knowing that you're right where you last were vibrationally (as if you just woke up), but with a clear mind and a reduced strength to your vibration.
+
+it sounds to me like it's a mix between sleeping and doing drugs. sounds cool! take advantage of the capability while yuo have it. don't waste it
+
+[1]: it will also enable all sorts of super-powers such as flight, levitation of objects, and shared interactive objects in 3d space. it's pretty cool, and was what I wanted to get, but I'm not that concerned about it anymore.
+
+#### (55:40) - cause effect and fulfillment
+
+in the previous section I was getting really bewildered with the whole cause and effect thing. ever since I was a kid, I never really undersood the cause and effect thing because each cause is the effect of the last cause and effect. therefore, if the cause is the (previous) effect, then likewise the (previous) effect is also the cause. therefore, this effect is the (next) cause too. I think that's what they're saying, and where you draw the line is entirely arbitrary and determined by you. everything is always in motion so there is always a chain reaction going on. everything is connected.
+
+I realise this makes science difficult because it wants to determine discrete cause and effect relationships, and that's not what I'm talking about. what I'm talking about is starting the sentence with "because of this, that happened" is "this" the cause or the effect? it's the cause in this sentence, but it was the effect prior to being the cause. certainly in science you try to isolate and preform these cause and effect relationships in a vacuum, but sometimes that's not possible, so instead statistics are gathered and it's said that with these limited parameters, then we can define a likelihood for some effect. with more knowledge of the parameters, a more accurate prediction can occur.
+
+in my mind all of this stuff makes my head spin as it's endless and impossible to try and isolate and figure out the variables. for me all of this goes away rapidly, and is the reason why I like LOA so much is because I don't have to try and quantify these things at all. I just need to worry about how I feel. if I can control that, what is happening is always a match to that feeling and it's always a surprise. I like the surprise.
+
+this question just exemplified for me this, because the questioner asked how they can feel "fulfillment" with the journey. the word "fulfilled" means complete or that finshed. it means finite or limited duration of something and whatever it is, the end is reached when it's fulfilled. therefore, it's literally impossible (in my mind) to feel fulfillment on the journey, unless you perhaps make the journey a number of short trips instead of an endless trek through unknown territory.
+
+however, this can come back to the cause and effect problem because you can only define cause and effect if you put arbitgrary limits on the time-span to determine if the effect (which is also a cause) is what you like. therefore, to answer the question, I would say that you have to take notice often if the present effect matches what you want it to be, because it'll become the next cause.
+
+however, this may not be 100% desirable because there are often many intermediate steps before the desired effect is reached. I mean every person needs to figure out where they draw that line and say, this is the fulfillment of those events which produced this thing.
+
+in my opinion, there's no way to feel fulfillment during the journey, cept to try and find a way to make every cause/effect be perceived as something desirable. this may extend into the realm of self-deception though, so I dunno.
+
+### 2021-03-08 03:32 - (2021-01-23 p2)
+
+#### (27:27) - cause and effect
+
+I don't know why this is bothering me so much because every time they say cause or effect, I sort of get confused. I thought about it just now and I think for me, ecery time they say cause or effect, I will just replace the word with "now". here are a few examples:
+
+> do you believe you can effect your *now*?
+
+> do you believe you can adjust what is *happening now*?
+
+> do you believe you can separate yourself from *now* results, or from the *now* opinions or from the *now* past experionces?
+
+> can you separate yourself enough from what is right now manifested? -- and find a *feeling now* that will allow a different manifestation?
+
+even trying to change the words, it was still difficult for me to find an easier way to say it. I just really don't like this cause and results stuff. I guess this really illustrates to me how far I've come because I no longer see anything as final or results or anything like that. I'm seeing now that I perceive everything as a gradual next logical step thing. it's weird because I'm realising that everything now just feels like one big long reaction. it feels like I have no power over what is happening in my physical experience anymore and all I can do is to just feel differently.
+
+as I was writing that I was trying to explain that it feels like one big long reaction -- as if it were like one of those slow-motion reflex experiences. the difference though is that I'm not out-of-control reacting to everything. instead, I'm (almost) completely able to direct how how I feel no matter what. I'm excited to begin exploring more contrasting situations where I have to focus more.
+
+I wrote all of that because there's this one thing that has always affected my perception:
+
+@[youtube](https://www.youtube.com/watch?v=r2HjSLRP-Nc)
+
+on one side of a circle you have sanity (pure reactions), and then you go all the way around to the other side of the circle is unsanity (the slow motion relfex state I was describing above), and the thing is they appear as opposites, but they are the same thing. I have become pure reaction once again, but instead of reacting to the things around me, I'm the creator of the things around me to which I am having a raection to.
+
+interestingly enough, if you look at this circle haed-on, it looks like a circle, but if you tilt your head to the side a bit and gain a dimension, you realise quickly that it's a helix. while unsanity and sanity appear to be in the same place on the circle, there is quite some distance between the two points. passing between sanity and unsanity and directly opposite sanity is "insanity" -- but don't stay there long :)
+
+to remap this idea into my form of reactions, I'd make the points: in-control, then opposity of that is out-of-control, then continuing around the circle toward in-control again is un-control. you're not in-control, but neither out-of-control. evewthing is a reflex matching how I feel. I don't control the conditions. I have zero control over the conditions. I have control over how I feel, and everything is a reflection of that.
+
+to put the analogy in today-terms: the government may move from having things in-control to out-of-control -- but, if they control the people's perception of them, they have un-control. they don't directly control things anymore. instead they control people's perception of them and let the rest fall into place. coming soon to mainstream media near you :)
