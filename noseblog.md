@@ -7299,6 +7299,24 @@ you don't have to feel good (meaning going toward). you can continue to feel con
 
 one more thing: each time you get a part of your source signal modified, it's like being a mini alpha/omega of yourself where you're forced to come up with a novel way to accomplish the same thing repeatedly. it's not a bad thing at all. it gets easier and easier and you get more powerful every time.
 
+### 2021-03-09 23:12 - another take on last entry
+
+I was thinking about the last entry, and I wanted to try and simplify it a bit. I think it's pretty plain to see that all versions of yourself *are* you. they are different aspects of you, whether you are conscious of them or not. the version of you which you percive, I think depends on the person, but I think the most common destination is always the "worst" version of yourself.
+
+here's a thought experiement which may be wrong (not sure), but from what I know it seems like a good way to look at it. imagine one of the ilttle girls that desires and wants a manifestation. she doesn't have any resistance so she perceives that. that will be the reality that she lives. I think you can fluctuate around between two different extremes: one being your "worst" timeline, and the other being the one where you gain 6d perception. in this thought experiment say the girl is going along and everything is going really great and stuff and she gains more and more ability to perceive. when she passes into 6d, she'll gain the ablity to perceive other versions of herself on other timelines. naturally, she'll notice the version of herself here on this timeline which may be having a rough time (or not) -- but let's say she is having a rough time on this timeline and has emotional distress. she'll become so enthralled with with how that reality feels, she will navigate right over to this timeline (because that's how she now feels).
+
+the only way to maintain 6d perception is when all other timelines of yourself do not cause you to feel negative emotion, tuning you down into that timeline. in fact, I believe this is the mechanism by which the original "fallen angels" fell into their body, and continue on with the "reincarnation cycle". my belief is thst 6d or 7d perception isn't always desirable, and that it's common for beings with 6d or 7d perception to "fall" into a body to have a physical experience, knowing full well that LOA basically assures them that they *will* make it back up to 6d/7d again. nothing is ever lost, which is why I have such high expectation for this whole ordeal. this is also why I see no problem jumping into the custodians' controlled world -- because I know that not only will I find my way back, I'm assured of it. furthermore, to try and prevent the whole thing from becoming something really unwanted for them: humans gaining their connection and losing their superiority and control, they *must* make us more diverse and distribute the energy in such a way that no one is finding their connection too easily. this is a momentous time for us, because it means that contrast is making a transition from conflict to diversity. there are other secondary results from this transition which I believe will also happen as a result, like women and men will begin to reimagine redefine the masculine form in a context of diversity rather than conflict.
+
+for me, the graetest thing ever is the realisation that we are all going to begin to navigate reality based on our emotions.
+
+---
+
+going back to the thought experiement, what I see is that there is an upper limit on how high you can go before you will automatically get trapped back into the "worst" feeling reality again. this may be some of the origin for "waiting for the next shoe to drop" or "pride comes before a fall" -- but, I think form a higher dimesional perspective you will always find yourself "falling" into the worst feeling place after some time. I think it also happens naturally as well as a part of the life and death cycle as well.
+
+so, what I'm saying here is that if you're reading this, that probably means you're interested to practise finding a way to feel good about whatever. I really think that is the ultimeate goal, because then when you "fall", you do so consciously for the pleasure of the physical experience -- knowing that you're guaranteed to make it back, no matter how difficult or ridiculous it gets.
+
+I think we hake things too seriously :)
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
