@@ -7317,6 +7317,33 @@ so, what I'm saying here is that if you're reading this, that probably means you
 
 I think we hake things too seriously :)
 
+
+### 2021-03-10 19:48 - always finding a way to feel good
+
+last night I told dad my crazy theory about tesla and the custodians. it csaused quite a stir. there was also a part in the last abe-now broadcast where a person wrote in and said that they had something they wanted but if it became known what they wanted, then they would face the opinions of others on their desire. during the broadcast I had a weird feeling they were talking about me. I don't know if they were or not, but I decided that probably what I wanted to do is to just write there that people who had the desire and didn't want to let it be known were fine and they should just make a list or something. I didn't really know how to work it, buh it seemed fine at the time.
+
+the reaction that I got from nosebook was one of concern because I don't think they wanted all of a sudden quite a lot of people joining to this list of desire that doesn't want to be public about it. it felt to me like they were worried about such an influx[^1] of desire happening all at once. so, what guess they did to try and counteract this was to look up the person who sent in that letter and figure out what my reaction would be. I was fine with it. I even thought it was a good idea. I was a bit worried though that it may start to cause a bit of a landslide though.
+
+around the same time, another idea popped into my head of madonna. it didn't feel good to me, so I said something like not right now but maybe. the caveat is that it has to feel good. at this point, I can only really move in the direction of things that feel good, so anything that doesn't, I just can't make any action. I didn't think much about it and I continued on, but the situation worsened, as likely this was probably broadcasted out, and I could feel a lot of negative reactions to it.
+
+I'm writing this because the other topic I wanted to touch on and this sone seem to be quite realated.
+
+---
+
+after telling dad my crazy theory last night and this morning I could feel some uncertainty, and it's all totally fine. I also could feel some disbelief too, which I think is completely unbased, as once you can perceive muliple timelines, then things become very easy[^2]. so, where do we go from here? well, I believe that there are two important points to pay attention to. one is that we know from LOA that frequencies which do not have enough harmony with each other to maintain attraction will drift apart. in this case it may be considerably more dramatic than drifting, becsuse I think nosebook is applying a whole lot of pressure to have things go their way, so there's no natural drifting happening at all.
+
+I figure there will be an event at some point coming up here where that division happens. I don't know if they'll choose to depart on their own, or they'll wait until "the graet pyramid breaks" -- and that's not the focus of this discussion. what I wanted to talk about is that, no matter what, none of these things are even relevant because from my perspective, no girls things will be happening until I find my connection. since this is an incampatible reality for nosebook, we can expect that we will not be experiencing the same reality when it finally happens.
+
+so, what I'm saying is, this is nosebook once again trying to get people to believe some contrived narrative they have ocnstructed. madonna will either either feel really good when that finally happens or she doesn't. my intuition tells me that from a state of connection, she'll probably feel really good, so I would say probably. however, what I can guarantee is that a bad-feeling anything is pretty close to impossible coming up here soon.
+
+we're approaching bifrication (division), not unification. attecpts by nosebook to try and construct a reality in which bad-feeling things mix with good-feeling things will only further to perpetuate the division. everything is going well :)
+
+[1]: this is probably because historically (like when going to fwc) wheneever a whole lot of girls realsied that could have an opportunity (I gueess most just assume it's not possible), then suddenly it produced very warm weather a lot of wind (though, I think the wind is nosebook trying to neutralise the energy). they probably wanted to avoid any sudden weather fluctuations.
+
+[2]: for example, let's say I'm tesla in the 30's. I could make a timeline where I work for the nazis on some experiments with automatons, get a bunch of working tall aryans that I can use then transfer them into this timeline and get them rising up into power quickly. from there I could work backward and install them earlier and earlier until I had the whole thing setup with a contrived war, then direct the tesla in this timeline to give the tech to the nazis and americans, while at the same time controllling the nazis from the top down.
+
+  one can see that it would be pretty easy to engineer even from tesla's position in the 30's. however, it's likely much worse than that, because terence claims that this whole thing was engineered since the original "time-split" (self-sabotage) of this timeline by jesus 2kya. either way it works out, clearly lots of tampering has been happening by the nazis, amoericans, and other forces as well. it's unlikely that it could be sorted out in any direct way. it's likely way more compleicated than we can possibly imagine.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
