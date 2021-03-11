@@ -7377,6 +7377,30 @@ I didn't get to the point that I wanted to make. I can't remember what it is now
 
 [1]: like I siad in the previous entry, I don't know what their plan is here because it seems to me like they're going to have a hard policy on no connected people who are not one of the "redeemed" (the ones that have purchased their salvation). I figure they'll have to probably terminate the body and transfer its consciousness into a reduced capability body. the other idea is isolate it to a timeline or something -- but that seems "risky" from their perspective. I suggested that's what they eventually do to us, but that idea was met with a lot of resistance because they think we'll come back and maniulate them from another timeline or something (I dunno what their problem is). by default, I think they're going to wait until the last moment and depart without all of the troublemakers. I find this to be most likely, but then if the book of relelation is a message from the future to attract a timeline where they have a new heaven, new earth and new jerusalem, I dunno what that would mean. I don't have enough information at this point.
 
+### 2021-03-11 01:13 - so you're saying...
+
+... that good-feeling males will only be allowed to pair with bad-feeling females and good-feeling females will only be allowed to pair with bad-feeling males?
+
+yeah, if I had to guess[^1] what would be the goal of the custodians for the next era. the reason why is because I think male-female relationships amplify the creative/sexual energy more than any other type of relationship, and from their perspective they absolutely cannot allow anyone to be able to amplify any good-feeling energy (especially as we move toward sirius). they need to find ways to siphon off that energy or neutralise it, NOT amplify it.
+
+as terrible as it sounds, I don't think it's such a bad idea. it really does emphasise the whole "need not the manifestation" bit. people can choose which side they want to go to. terrible feeling dudes will be allowed to hook up with hot girls, and the ones that actually feel the way they want to will not be allowed to. no matter what expectations society puts on me, I'm likely always going to be the guy that goes toward what feels good to me. if it becomes not possible, I just drop it and go to the next thing. there are endless ways to feel good and requiring that it has to come this way through one specific thing/project/person/etc. is a total fail.
+
+it's kind of the ultimate dojo, and it's going to breed a whole new dynamic of diversity which has never been known before. the amount of new ways that emotional energy will have to channeled into the material world will come as a result of a multitude of new inventions designed to find new ways to express this emotional energy (you can't just feel good, conditional or not, and then do nothing with it -- it has to be expressed). assuming this happens, I don't really mind it because of all of the really great advantages that it has. the people who want to focus on their manifestations can do that now too. they'll have a fully conditional world that they can just observe and feel. the funny bit about it is that finally for the first time, they feeling will be the goal of the conditions.
+
+I realise this is definitely the slowest way to get to the realisation that emotions are important, but some people really like dragging their feet, and I think it's all good because of all of the great advances that will come as a result as well. I really think this will bring about a new system to try and identity concepts and emotions without letting people see what is the frequential aspect running the show behind it. maybe they'll call it the "science of emotions" (lol).
+
+---
+
+while realising this, it became quite clear to me that the symbols for the next era will *likely* be a woman[^3] that finds a way to transcend the societal expectations to rely on external things to feel the way she wants to. she'll find a boy[^2] that is similar (someone like me), and the boy will quickly be removed because of the risk that it would cause to have a disaster of someone actually feeling good (and not needing all of the crutches that society (eg. priesthood) has made "essential" to feel the way you want to feel). it's quite possible that the boy will be gay even -- doesn't matter though because of society's expectations for the woman (she's supposed to take advantage of him, not feel good and create with him).
+
+I said likely, but now at the end here I'm pretty certain these symbols are wrong. I don't know why/who directed me to write them, but there you go :) enjoy... remember to choose the way you want to feel and find a way to perceive things like your source does. symbols don't make a difference. just feel the way you want to feel.
+
+[1]: man, for some reason when writing "if I had to guess" part, I really reminded myself of vlad
+
+[2]: his age isn't important here. it's just that the word "man" here sounds funny to me because of the present connnotations with the word. I don't believe he'll be "mature" -- whatever his age is, but definitely childlike with the capacity to feel the way he wants to feel (which is good) without the conditions. he'll likely be one of the free spirited kids that the older women are expected to educate to become a proper man that is directed by them.
+
+[3]: her age isn't important either, but I would guess older, because she'll be expected by society to rely on conditions. she'll likely be quite mature, in the sense that instead of living lived her life and come to the resistant conclusions that society expects a woman of her age to come to, instead she'll probably be more playful and fun, not serious, and also having the capacity to feel how she wants to.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
