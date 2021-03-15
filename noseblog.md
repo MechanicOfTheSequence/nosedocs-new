@@ -7422,9 +7422,50 @@ in the bigger picture (imagine you're chief custodian: king janitor) when you wa
 
 about the manifestation. I just don't know. I feel like I'm repeating myself here, but on the one hand I'm just going to keep going like I'm going. I see no reason not to. there's literally no incentive to go another way. girls you say... uhhh, but then this wouldn't be a self-sabotage :) you see, the goal is to make things go to their extremes.
 
-from my perspective, if I want to find my aligment (and then), I literally don't have to do anything different than what I'm doing already. nothing. if I keep going the way I'm going, not only am I guaranteed to find it, it feels pretty close -- probably this year. therefore, if I'm *that* close, then why would I suddenly decide that girls have suddenly become more important than the way I feel? it doesn't make sense! no sense whatsoever! all I have to do is to wait a few more months, max a few years and I'm there. 
+from my perspective, if I want to find my aligment (and then), I literally don't have to do anything different than what I'm doing already. nothing. if I keep going the way I'm going, not only am I guaranteed to find it, it feels pretty close -- probably this year. therefore, if I'm *that* close, then why would I suddenly decide that girls have suddenly become more important than the way I feel? it doesn't make sense! no sense whatsoever! all I have to do is to wait a few more months, max a few years and I'm there.
 
 [1]: the ones I'm pretty sure on are ramtha, moses, jesus, tesla, and myself. potentially many others can be added: enoch, elijah, buddha and probably a number of indian dieties too.
+
+### 2021-03-15 14:28 - the solution is the problem
+
+I woke up this morning with some weird ideas[^2] floating around in my head. I want to get them out in a more thoughtful form, so I put the ideas down so nosebokk can force an evolution on them. they push against me writing things like this and when then do, they delete/delete things they don't like, forcing me to find a way to translate that thought into reality. I'm beginning to appreciate it.
+
+so when I woke up this morning, I was trying to emplain how all 'matter' is not only matter, but has a mental/conceptual structure to it as well. this is a concept I will touch on more soon because what the problem is, is that we're all very conditional. one of the strangest things is how broken our information of the past is. I think it has been deliberately obfuscated (as in, timelines were affected to influence more destruction of key components).
+
+I think this is happening on purpose because, say for example if we were to actually have the knowledge of how things really worked, we would use machines and other beneficial conditions to create the prefect environment for ourselves. we would all be very conditional, and we wouldn't have any concept of our emetions, which is how time is navigtated. I suppose it would be possible to navigate time going from one good feeling to another -- without actually changing any of the underlying beliefs.
+
+those underlying beliefs are systemic problems and once we have quite an enterprise built upon a flimsy foundation, you will attract a destruction. I believe something like this is exactly what happened to the atlantians. they just kept using more and more physical conditions to feel better while at the same time fearing some destruction of the planet. if they really felt good agout theirselves, they the sun would have affected the planet in a much less dramatic way.
+
+you simply cannot build a large anything on a shakey foundation. any builder will tell yeu this. so, in a sense, if we are going to find ourselves in a reality where all forms of science are nothing more than a well-crafted sham, designed to keep you looking at the material stuff when it has everyting to do with how you feel -- then, from from my perspective, the problem is the solution.
+
+the problem that science and conditions are so heavily controlled is the solution, not the problem. they cannot think and feel for you, no matter how hard they try, so anyone who has any success in this system is one who is capable emotionally of feeling how they want to feel.
+
+---
+
+when waking up, I was noticing that from their perspective (and this must have been emphasised yesterrday in the abe-now broadcast), that the solution is the problem. if the problem ix the solution, then likewise the solution is also the problem too. this is probably the best example of perception that I man give. on one side, perhaps the solution is obvious, but the solution is so undesirable, the solution *is* the problem.
+
+what I'm illushtrating here is that there are three elements:
+- a condition
+- the obvious way forward
+
+one of those is considered as undesirable, and depending on your form of perception, you will come to the conclusion that the solution is the problem or problem is the solution[^1]. it depends on you, but the situation in these circustances always feel forced or inevitable. you feel like you *must* choose between only desirable or only undesirable options.
+
+my point is that if you can find a way to feel any way that you want about any thing, then this circumstance will never arrive. you will never feel like you are *forced* to make a decision which will topple an enterprise built on a shaky foundation.
+
+[1]: this concept has existed for ages in the form of qustions like, if you have to kill someone to save 100 what do you do?
+
+[2]:  bigger idea notes
+
+  understanrding science vs understnanding media
+  essential/mental aspect of the nature of reality
+  probsability management group
+  I go me own way. so does tesla. we''re kind of like duals
+    tesla is very conditional
+    I think the whole goal, evidenced by reality is to create a timeline where no one can rely on conditions
+    I like conditions as evidence of an underlying aspect
+    most people want to describe the conrditions. I wish to understand their interaction
+      this universe is a mental one and all particles contain: the essential (or mental) framework to them
+      I got it, but what really flipped the switch for me was doug'h explanation of why the pisos deleted aristotle
 
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
