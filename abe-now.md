@@ -1929,3 +1929,9 @@ when I was younger, perhaps it was because there were so many children, but mom 
 ---
 
 so, the statement, "I want to feel love" feels a bit weird now, but if you are loving someone, you are on the frequency of love. you have to find your own way with it. for me, I find this easy because I recognise most of it is a programmed reasonse so I program a new one when the bad-feeling alarm goes off. maybe I need to think on it or run a few simulations in my head to get it, but I am the programmer of the way I feel, try that :)
+
+### 2021-03-13 01:11 - (2021-01-23 p2)
+
+#### (13:54) - the mixed bag of responses
+
+yes.
