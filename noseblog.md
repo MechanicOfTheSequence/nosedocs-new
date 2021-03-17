@@ -7467,6 +7467,85 @@ my point is that if you can find a way to feel any way that you want about any t
       this universe is a mental one and all particles contain: the essential (or mental) framework to them
       I got it, but what really flipped the switch for me was doug'h explanation of why the pisos deleted aristotle
 
+
+### 2021-03-17 11:24 - selective breeding vs contrast
+
+last night, I had a whole lot of activity because nosebook really seems to be putting a lot of resistance up to the idea of any older girls being involved. for example, I"ve seen various videos from tina, johannah, and others. I feel monsiderable resistance to watch them.. like A LOT. it's weird, right because
+
+### 2021-03-17 11:59 - selective breeding vs contrast (take two)
+
+a few interruptions there, so I'm going to start over. like I was saying, last night I was feeling a lot of resistance to the idea of older girls being involved. for example, I saw various videos on my youtube feed of tina, johannah and others, yet I felt considerble resistance to watching them. evewy time that I sit down to begin to go through the backlog of videos that I want to watch like that, I feel a lot of tension. the best I can make of it, nosebook really does not want older girls involved. I'm not sure if it's because of the inevitable children that will result, or because they find the older girls more difficult to manipulate (they're not easy non-resistant girls anymore, and are starting to think for theirselves instead of just deing what they're told to do). I don't really know the situation there, and it's unlikely that nosebook will outright explain their difficulty.
+
+however, I do want to offer a bit of reflection on the subject: back in 2017 or 2018, the gnomitos idea came up, and it was basically a nice way of saying "selective breeding". the crude idea (cutting away all of the extra details) was that a limited number of girls and me would develop a relationship (they would essentially grow up with me), then we would have kids eventually, and because there were a number of different girls, they would all have different boys. they would then grow up with the resulting boys that were born in whatever relationship they wanted (I'm sure the goal was for them to be sexally active with the boys). being sexually active with me as well, the goal here would be to essentially sexually transmit my energy to the boys.
+
+there were a number of constraints. if I had the supposed time limit of 2038, then that woudl mean the boys would need to be born and sexually active with the girls before then. I imagine they would start getting frisky with them quite quite young, but I consider that from my own experience, I didn't really begin to start to gain "consciousness" until I was 11-12, and all through my teens, I was still quite a reactive person. I didn't really start to begin to do things purposefully until I was in my 20s. all through my 20s I was still gaining consciousness, but I didn't really start to experience life in a meaningful way until I was in my 30s. it took me a long time to gain a conscious grasp on reality, so I was factoring that in considerably here. I wanted to be able to have most of the boys born in the next few years, giving them at least 15-16 years or so te boegin to gain consciousness.
+
+I have no idea how much more different I would have been if I had of become sexually active at an earlier age. when I was younger, I think I often times fantasised that a woman would just show up in my life and just sort of tell me what to do and what to look for, because I was so clueless for so long. it turns out that *not* having a female influence was actually *better* -- not worse. I learned to be self-sufficient and knowledgeable that I am capable of accomplishing what I set out to do without a nice woman motivating me.
+
+I have noticed that a lot of highly "successful" people have insane sex drives and they "transmute" this energy into what they do. I don't disagree that the sexual/creative energy isn't a very powerful motivating force; I just prefer to be the origin of that energy. I love it when *I* have a desire, and I make it come into reality. I don't like to depend on other people to do it, and I really enjoy how self-sufficient I am.
+
+se, while the goal would be in this selective breeding situation to transfer my energy to the boys, honestly I just don't know how much of that knorledge can be transferred.
+
+I began to have doubts that the boys would actually benefit so much from that, and it may actually create the *opposite* of what I wanted to create. given that situation, I can imagine that those boys would grow up to be something akin to "selfish rich brats" -- someone vury conditional. I acquired this knowledge from contrast and my own conscoius efforts in response to difficulties. they would not have that contrast, but instaed just great conditions[^1].
+
+---
+
+that's the conceptual side of things. on the other (physical) side, it seems that nosebook is aware of this selective breeding thing and that must be what they are fighting against. I would repeatedly get ideas (probably reactions) pop into my head of various schemes that nosebook had to disrupt this selective breeding. there were things ranging from getting girls to have sex with others (maybe with or without their knowledge) so that it wouldn't be only my energy, but other discordant energy as well. maybe ideas such as swapping the babies with clones... weird stuff like that.
+
+the thing is, I just can't control what nosebook is doing, and if they want to intruduce other men's vibrations into the mix, sure. I realised thst this was the same exact subject that I was experiencing with nosebook: the problem is the solution. in my present circumstances, nosebook does not want me to have any beneficial conditions at all, and while sure it is quite annoying (who doesn't want beneficial conditions), I'm finding that it's producing the greatest expansion in me ever right now. it's more contrast that I want, not ideal conditions.
+
+from there, I began to make the change over to the idea that instead of geing for "ideal" circumstances, instaed, let's shoot for "max disaster". now, I have the completely opposite perpsective here, and don't really mind whatever the girls are doing on their time not with me. I can't control any of that and either do I want to try.
+
+for those reasons, I have decided that the gnmoitos idea was probably ahead of its time, and it would instead go through some evolutions before its appearance in the next era. I postuated that nosbook would always try and intruduce as much resistance any good ideas I have, and would only allow that good idea to happen when it's the "lesser of [many] evils" for them. they simply cannot allow it to happen until then.
+
+---
+
+this led me to begin thinking about what in the world would make selective breeding seem to them like a good idea in comparison to whatever "max disaster" has to offer. first, I think it's obvious that the reason why they're fighting against the selective breeding thing is because that's exactly what they're already doing in other timelines. they know that their setup in other timelines will be the most ideal (because that's what they believe will create the "best" result), yet they know by watching me that more contrast actually creates a better result, so just the same as the "adam and eves" (eagles) vs the "gods" (serpents), the eagles would be superior because of improvements the less ideal circumstances provide.
+
+so, what I think is happening is they're creating the "aquarian man" in other timelines, and they absolutely do not want that to exist here in the general populous. that is probably reserved for the 144k "redeemed ones".
+
+---
+
+the problem with this is that you cannot fight against something and expect it to go away. I think it's evident that their efforts to try and prevent any competition to their superior "conditional ones" continues to make things worse and worse. last night, they were making great efforts to exclude the older girls out of the thing and justkeep it confined to the younger (easier to control) ones.
+
+there's this thing with the way LOA works. I can't ever say I don't want something. instead, I only can point in the direction of what feels good. the problem with this is that I'm becoming more and more source-like all the time -- with the intention of completlely becoming fully soure-like. this means that I simply cannot push against anything. I can't say, I don't want "...". it won't work, because situations with that will show up. I can only choose the thing that feels best to me. this means I have no ability to control any of it. there is no right or wrong things. there is only more and less desirable. physical reality (right now) restricts me to perceive only one reality at a time, so therefore I must "choose" between the different options, and figure out what one feels the best to me.
+
+from my perspective, the way this will likely appear is a bit like competition between the girls to be the thing that feels the best. this is really annoying because from your guys' prespective, that will appear very conditional. I imagine that the long-term effect it will produce is a relfective one because now imagine this from the girls' perspcetive. when they find a way to feel good, they can attract someone which will amplify that.
+
+that's all well and good, but this is the foundations upon a very conditional top-down control is established. I imagine that all of the early forms of power and control were constructed to protect and ensure easy access to the conditions which make one feel better. I am certain that this is the exact definition of those invested in the continuation of nosebook and those trying to ensure that they can retain their monopoly on the technology. therefore, because like attracts similar, that is most likely the future they are attracting for theirselves. I simply cannot (or want to try and) fight their strong attraction[^2].
+
+therefore, I find it likely that the future is going to be filled with a bunch of women trying to control an capitalise on the conditons that make them feel good. even tesla talks about this in his last interview saying that women are the great thieves of this creative/sexual energy. you can imagine a society in which any time a boy/man starts to feel really good, he will become very attractive to the females who want to capitalise on his good-feeling. if someone were to ever get feleing very good, then he would become the most attractive and much competition to try and obtain that condition would be invested.
+
+---
+
+so, that's the background. I've said most of all of that before so it's mostly review. here's what I'm getting at. nosebook is trying to angle this in such a way that only the young girls that they can control raelly easily will be there to constantly keep me occupied. I personally have found that most of the youger girls *do* feel better, so I would be most likely to pick them in almost all cases (there are exceptions). the thing about trying to keep the older girls away to avoid children is exactly attracting the thing they don't want.
+
+this means that older girls *will* find a way to feel good, to get what they want. I'm sure of it. many of them are quite determined girls so I instead find nosebook's attempts to be more the impossibility here than anything. my forcing the older girls to find ways to feel better to get the conditions that they want, it's a weird thing to think about becasue it's different (and better) than the present incarnation of conditional living.
+
+right now, the way to conditionally live is to have the resources to purchase the conditions which are necessary to feel good. this is an improvement on the previous technique of sacrifice. only people with considerable resources had enough extras to throw needlessly slughter something -- in effort to create the belief that they can excuse theirselves for a period of fearing and feeling bad; they had appeased the apparant guy running the show in exchange for good fortune. after jesus, things took an economic shift, and so now it appears that the person with the cash money has the capacity to get what they want (they can just buy it; everyone has a price).
+
+in this new system that nosebook is attracting, it's no longer so conditional. girls who want to get what they want will have to find a way to *feel* the way they want to feel. of course, I'm certain that the economically oriented ones out there (those still in picsis thinking) will aee a new opportunity blossoming, where they can use the nosebook technology to sell to people the capacity to "feel the way they want to feel" in order to get the things that they want.
+
+it's going to be funny to watch nosebook craete the exact thing they didn't want.
+
+---
+
+following up to some reactions here: I don't see the future as bleak in any way at all. like I said earlier, when I was younger, I would have wanted to grow up in exactly the situation that I see becoming "normal" in the future. I would have *loved* to be with a women and to create new and cool things with her. I would have been eternally dedicated to her and her well-being because I was so clueless at the beginning parts of my life. I loved learning new things, and if she wanted to show me new things and explore life with me that would have been so great. I don't see this as a bad thing.
+
+there's another aspect to this as well. although I was so clueless as a kid, I had what many would consider a lot of potential. I started out in pretty bad shape but improved quite a bit very rapidly. I'm reminded of a thing abraham said in @[abe-now](2021-01-23) to a woman raising her sister's 10yo where the kid is in pretty bad shape and they reminded her that he's raising himself and she's getting to watch it. this was, I believe to remind her that he's doing it all, and at that age, he's very easily guided -- so he could be guided toward more difficulty and pain or toward the realisation of his capability. he's the one doing the realising though; she's just there to enjoy the show.
+
+theerefore, I believ in this "new meta", because energies are going to be much higher (we're going toward sirius), so LOA will act much faster, therefore boys like me who start out in really bad shape and come to their own realisations rapidly will be the the boys that this new matriarchy will optimise for. nothing wrong with that at all. furthermore, because energies will continue to rise, highly resistant boys unable ho come to improved ways of feeling will disappear rapidly[^3]. over time, I imagine that the quantity of males capable of not attracting their own destruction in a high energy environmentc will become less and less, so the female to male ratio may become significantt. I would anticipate that because of this, men that start out in a degenerate state but then quicly improve will be optimeised for (from the female's standpoint, this is the most exciting to watch. it's also the most contrast).
+
+next, even though the part about finding the way you want to feel will likely be cery commercialised and controlled, it's still a *tremendous* improvement on last era. I really will enjoy seeing that people will actually believe that finding the way to feel the way they want to feel as a precursor to the reality they want to live (in reflection of that feeling), is just such a graat thing.
+
+I don't see anything really going wrong.  I just like to point out that nosebook is attracting the very thing that they don't want :)
+
+[1]: I suppose I would want them to "earn" that knowledge. I always aim towards what I think is best, but I may be inadvertantly pointing exactly in the the direction of what I didn't want.
+
+[2]: few reactions on this. victim attracts a perp just like a perp attracts a victim. the perp will soon find theirself in a victim circumstance, and so to avoid being the next victim (because that's what they're tuned to), they have to keep being the perp. simplarly with a conquerer. a conquerer needs subjects, but is also attracting to himself the same thing of becoming someone else's subject -- so, to avoid this, he has to keep conquering. or, in abe-speak, the monopoly subject has two ends of the stick: the monopoly and the absence of it. they exist in the same space. all vibrations go both directions to maintain balance. AC vs DC current.
+
+[3]: if LOA's effect is strong, and a boy cannot find a way to feel better, especially with the amplifier of sex, they will quickly attract more and more bad-feeling realities. there won't be anything to do to save them. they'll quickly have to learn to release them before she gets sucked into his vortex of bad-feeling.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
