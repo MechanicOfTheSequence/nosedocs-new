@@ -1935,3 +1935,21 @@ so, the statement, "I want to feel love" feels a bit weird now, but if you are l
 #### (13:54) - the mixed bag of responses
 
 yes.
+
+### 2021-03-18 08:24 - (2021-01-30 p1)
+
+#### (10:34) - seeing through the veil
+
+the question about seeing through the veil is a funny one because there are two ways to look at it physically and conceptually. on the physical side, there is this idea that the original humans were made with the capablity to see things how they really are, a very long distance, but then the "gods" did not want their slaves to have such good perceptive capability, and so limited their vision with a cloudy veil (I've called it a screen). the other way to look at is conceptually, which is what I aim to do. I had been decveived numerous times through my life with people telling me one thing and then that has no bearing on the reality of what they intend to do.
+
+many optimistic people have been deceived and the common reaction is to close down and become pessimistic. when I first started, I wanted to "see through their deception/veil" and know what they're really saying. when I began to rely on my emotions more than my physical senses (listening to their words, believing the graphs they were showing or other "evidence"), I began to get a sense of when what they're saying is bologna. however, I have since changed that idea.
+
+there's a problem with using emotions to try and figure out if someone is lying or not, because what they are saying will feel good to me or not. no other data usually is given, so I have to learn to trust that. I have numerous cases where something true feels bad to me, and many other cases where pure deception also feels good to me too. what I have learned is that when an idea feels good to me, that is a an idea more in resonance with my source -- therefore, even if by physical metrics, the idea is bad, it's still the least resistant way forward, and any further fanageling of the idea to try and conform it to someone else's expectations (or whatever) is *me* adding resistance to an idea that felt good to me.
+
+I will note that if the idea felt good to me, then the idea now doesn't feel good to me, then I don't follow it, but I always have a look to see where the reasistance is coming from. is it coming from someone else's perception of the idea or my own. sometimes I do back out, but in general, I've really began to trust what I feel in my emotions (not physical sensation) more than anything now, because it's always right.
+
+so, now imagine that I am onece again optimistic me and someone is trying to deceive me. it doesn't matter what they're doing. as long as the idea continues to feel good to me, I continue on with it. I can see somethting that they cannot. I have noticed that often times the final reault will turn out different than the intended result[^1], but that doesn't matter. when they talk about seeing through the veil as seeing things with the same perspective that your source does, they're exactly right. this is really the point of "seeing through the veil".
+
+and true, things will also look better, too.
+
+[1]: for example, affinaty always felt good to me, and it felt good for me to work on. the final result wasn't the website specifically, but the quantity of things that I learned in that time could only have happened if affinaty continued to feel good to me. it was an integral component in getting me to where I am now. I enjoyed every minute of it now in hindsight (the brambles fort was the best!).
