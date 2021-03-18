@@ -7506,7 +7506,7 @@ so, what I think is happening is they're creating the "aquarian man" in other ti
 
 ---
 
-the problem with this is that you cannot fight against something and expect it to go away. I think it's evident that their efforts to try and prevent any competition to their superior "conditional ones" continues to make things worse and worse. last night, they were making great efforts to exclude the older girls out of the thing and justkeep it confined to the younger (easier to control) ones.
+the problem with this is that you cannot fight against something and expect it to go away. I think it's evident that their efforts to try and prevent any competition to their superior CONDITIONAL ONES (my name for them) continue to make things worse and worse. last night, they were making great efforts to exclude the older girls out of the thing and justkeep it confined to the younger (easier to control) ones.
 
 there's this thing with the way LOA works. I can't ever say I don't want something. instead, I only can point in the direction of what feels good. the problem with this is that I'm becoming more and more source-like all the time -- with the intention of completlely becoming fully soure-like. this means that I simply cannot push against anything. I can't say, I don't want "...". it won't work, because situations with that will show up. I can only choose the thing that feels best to me. this means I have no ability to control any of it. there is no right or wrong things. there is only more and less desirable. physical reality (right now) restricts me to perceive only one reality at a time, so therefore I must "choose" between the different options, and figure out what one feels the best to me.
 
