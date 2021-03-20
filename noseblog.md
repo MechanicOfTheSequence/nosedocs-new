@@ -7645,6 +7645,27 @@ from the custodial perspective, a clean bifrication is a really good thing too b
 
 [2]: this is probably the reason why the last panel is "check out these machines capable of desire" -- which is clearly something that does not appear like it'll be happening anytime in the foraeeable future. "this is my reality" is before the split, and the desire machines after.
 
+
+### 2021-03-20 11:09 - another idea for max disaster
+
+this morning some things happened and I felt a bad feeling response. later I wondered what was happening and why I was feeling bad about something that I wasn't feeling bad about. I determined that I was probably not the origin of the bad feeling, but I will admit that I am definitely resonant with the bad feeling, otherwise I wouldn't be able to feel it. this is true.
+
+so in the shower just now I came up with another idea to maximise disaster. the feeling went away after a little bit, and I don't know if that happened because I actually changed my point of attraction on the issue/subject or because nosebook blocked the feeling like they do with the way most girls feel about me. I mean usually it's good, but it's certainly possible for them to do the same with bad feelings too.
+
+then (speculation goggles on), right before the split happens, they could remove those blocks and I'll attract a reality in responance with those feelings whoch are invisible to me. that way, they can assure theirselves that I don't have such a perfect manifestation, and we assure ourselves that there is in fact still quite some contrast in whatever the next thing is.
+
+it's so important to have unwanted to continue on the expansion. this is why I've constantly been trying to figure out ways for them to be able to continue to attempt to cause problems. without contrast, we would rapidly stagnate which is why I have the idea of automatons designed to create contrast (unwanted). this will also solve the reaction  I felt to when I wrote that I would jump right into their ultimate dojo. if we have sufficient contrast of our own, it'll take us a while to make our way through that before jumping back in, I guess... sure.
+
+I don't find it that bad of an idea. like say for example they found a whole bunch of things that felt bad to me, and instaed of allowing me to change the way I feel about them, they'll jsut block me from feeling that bad feeling, allowing it to continue to grow without my conscious awareness of it. when they unblock it, I'll feel it strongly and attract a reality resonant with how that feels really rapidly.
+
+a very nice disaster, sure :) how long do you suppose it'll take me/us to recover from it and begin to find a way to feel good again? I don't think it'll be long, and I think it's a great challenge. bring it on... it's not about the getting the "best" manifestation but reorienting (recovering) rapidly toward what's wanted. I think the more practise I get on this, the faster I'll be able to recover. I've already proven to myself that I can rocover rapidly so I just don't see it as a problem.
+
+---
+
+the thing that I was thinking is that if there isn't any continued malignant force present (nothing attempting to hold me back from what I want), it'll be such a rapid recovery that it would hardly cause even much of a challenge. I'll still need to create the automatons rapidly to keep a constant presence of unwanted otherwise I'll stagnate so fast. I really need to constantly have difficulty.
+
+so since I want to live in a world filled with unwanted, maybe some sort of swap can happen. I don't know how it would work, but maybe we build a really sweet paradise and then swap places and you guys run it into the ground for us so I have my usual fertile ground of discomfort and uncertainty in which I thrive. I'll have to think about it more to maybe figure out a way.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
