@@ -7590,6 +7590,61 @@ I really am unable to perceive this very well, and it doesn't really matter. I m
 
 I just see no difficulty here in accomplishing what I want. I want max difficulty. I didn't come for an easy manifestation. I came for the most difficult. they can try whatever trey want to try and I'll just keep figureing out a nwe way. they'll have so much work to do. it'll be good to keep them busy, I guess. you may say, I am breaking my alliance with tesla or whatever. sure dude, if he wants to be king janitor, then he's got to figure out how to stop me :) good luck. I don't have allegance to anybody. my only goal is to realise myself for who I *really* am, and I'm taking everyone with me on that journey if necessary. no thing can stop me (slow me down, sure -- not stop). hang on for as long as you can I guess...
 
+
+### 2021-03-20 06:41 - the path of least resistance
+
+I had a few reactions to this idea that I would be attempting to take someone's daughter away from them. I just don't see it. from my perspective, if there are many varoiuus paths that are low resistance, why would I decide to pick to go the one path that has high resistance. in fact, I think this is precisely the reason why we are where we are.
+
+as much as it may appear that nosebook is making efforts to get the girls thing going, at the same time mr. motor is very resistant to the idae. it's probably his resistance which I feel when I constantly choose to take the path of least resistance. this is probbly why my singular goal is to find my connection.
+
+I was thinking about it becsuse for example, if a girl wanted to do something with my but her father was very opposed to the idea, I would feel resistance and simply wouldn't go that way. I don't know why I would. I also don't really want to be thought of as a saviour either. if she is having a difference of opinion with her father, this is her problem, and a reflection of her own resistance. I'm not going to try and circumvent that to save her from some circumstance that she doesn't like. it just doesn't make any sense for me to do thst.
+
+furthermore, this is the tremendous advantage that "making the emotion the manifestation" -- because I'm not looking for any single set of circumstances, person, place, or thing to be the manifestation. my masnifestation is a feeling, and I can tell by how I'm doing based on whether I'm feeling more that way or less that way. therefore, when I make the feeling the manifestation and I accomplish the feeling, reality will reflect that. I know this is true. however, I don't know of the reflection will anyways be path of least resistance or what.
+
+---
+
+I  was thinking about this because in my persent state, it doesn't make any sense for me to try and go any resistant paths, but in a connected state, things may change significantly because if I'm no longer concerned at all about what other people are thinking and I'm no longer resonant with their resistance, then I'm simply not going to feel that resistance anymore. what that means is she won't feel resistant to me anymore, because it dosen't matter what her father (or mother) thinks anymore. I'm no longer resonant with that resistance.
+
+so, sure I won't be able to perceive that resistance anymore, but will the conditions which now reflect how I feel contain the previously resistant things? I don't really know. as I was writing this, the idea came into my head that if my resistance is no longer a factor in the equation, then that could mean that I now become her path of least resistance. that makes me sound a bit like a saviour. I don't know how I feel about that...
+
+---
+
+yeah ok, that would certainly create some interesting dynamics. if men pushed really hard against me getting connected and also their daughters' freedom, it would only exacerbate the problem...
+
+I have a lot to think about. the main thing I wanted to note here is that my goal is not to cause problems, as I have no intention of doing anything which causes problems, but then from a connected standpoint, I may become a complete troublemaker in the eyes of people wanting to control others. it appears like it could be a complete fiasco.
+
+---
+
+next, I want to talk about the realisation that I had yestreday. when thinking about the active/static orgone, after I wrote it, I made some realisations which I hold mom walking yesterday. the short version of it is that I believe the great pyramid transmuted energy by filtering out certain frequencies, attenuating and amplifying others. the final result was that people were able to give major attention to very bad-feeling things and the graet pyramid would transform that bad feeling into a good one. this creates a feedback loop where you are (because of the dopamine receptors in our brains, etc) being rewarded for thinking and feeling in a way which feels bad (cause it gets transformed into something that feels good).
+
+as I kind of eluded to in @[abe-now](2021-01-23 p2 36:39) (which coincidentally was very resonant with my conversation with dr. richardson yesterday.. he's very intuitive!), it's quite possible that nosebook is already using my capablity to trasnsform energy and marketing it as a way to access the "present moment". this makes me the replacement of what I believe the great pyramid was doing.
+
+so, if people all around the world are experiencing this stinging sensation on their body in high energy moments, it's because that energy is designed to be in motion. I think, like an ADHD kid, when you keep him still too long, it starts to cause problems, then that means the solution is to begin to allow that energy to move. well, that's kind of a problem because that energy will cause a higher state of conciousness, which means that everyone will be on a low-grade psychedellic experience 24/7, there won't be any way to escape it. blame the sun. it's none of our faults. the government has been trying to hide the massive influence the sun has on the energetic and mantal capacities of the human[^1]. it will at sonme point become impossible for them to continue to try and push against this energy though. they have to begin to let it flow at some point.
+
+this however, will cause a problem because how these things work. society trains you to perceive things a certain way. these things are good. these things are bad. this behaviour is good, and this other is bad. psychedellics remove a lot of those barriers and allow you to feel good in the process when you essentially change your programming. notice how some people don't respond well to psychedellics though? to some, the experience causes things to spiral out of control, gain paranoia and other bad-feelings. this is because the effect is to remove these pillars of thought which society places as fundamental to organised (and non-chaotic) living. for those people, it feels like their whole world (as they they know it) is crumbling. it's hard for some to see that there are other ways to perceive the same world.
+
+this effect is the removal of the knowledge of "good and evil". when you lose the ablity to perceive right and wrong, good and bad, good and evil, then all of a sudden everything appears infinite and fractal. for some people this is a very distressing experience, and that's fine. we have been designed to retain this "knowledge of good and evil" so we continue to perceive the ordinances that society places for organised and cooperative living. if we perceive that and only that, we will only perceive this reality through the two extremes of this dielectic of good and evil (as constructed by society) and never figure out that we are eternal beings.
+
+it's going to rapidly become impossible for them to continue to not allow this energy to flow. they will need to allow it to flow at some point, which means that the effects of LOA will go into super high speed. bad feeling thoughts will attract bad things rapidly.
+
+it's not raelly fair for everyone if their reality begins to manifest so rapidly before they begin to get a grip on their emotions. also, it's not fair if a buncs of bad-feeling people are causing a lot of problems for those around them. the solution is a sort of great pyramid like setup. fortunately they already have me doing this, so they could modify the "present moment" so that it is more present than it already is, allowing people's thoughts to be transformed into things that feel good. there's the whole thing about things spinning out of control, but I was under the impression that was already happening with the sun going nova, so the people preparing for that will alwready have that setup for them.
+
+---
+
+I had some reactions wondering what I think this means for the future. I'm going to put on the speculation goggles now.
+
+in a bigger picture of things, what this is doing is allowing there to be a clean bifrication. everyone will feel good so no one will be attracting a terrible thing to this planet, but some people will feel worse than they physically feel and others better -- however, no one will be attracting massive world-wide problems. this will continue on for some time... think of it like a cell dividing. there will be those that feel good and those that feel bad -- even though everyone will physically feel good.
+
+from my perspective, this is no problem because I'll be pretty good at feeling the way I want to feel, so no matter what happens, reality will refect how I feel. however, at some point, I suppose there will be a overload point. the energy will be too much for my body to handle and I'll peace out, or maybe the custodians will finally make their own timeline. either way, from the perspective of the people who actually feel good (everyone will be boosted), their reality will refect that. it may be possible that when I go away (from your perspective), the timeline will split into millions each going with those compatible with how they feel. I don't know how it will work in that big picture. I can only see that it's creating a nice separation between those who actually feel good and those that don't. each will receive their corresponding reality. how many timelines exactly that will produce, I dunno. min 2, max billions, I guess.
+
+that means that for the people preparing for disaster, probably will want to get into their safety holes before the split (2038?) cause from then until the nova, things will likely degenerate rapidly. from my perspective (and those with me that feel good), it'll probably appear like a magnificent transition into a higher energy state where thought manifests instantly. we'll probably have to create automatons to create contrast because a society without contrast will quickly stagnate, but that's a whole different problem[^2].
+
+from the custodial perspective, a clean bifrication is a really good thing too because when they head off in their way. the last thing they want is some good-feeling people mucking up their "1000 years of peace" (probably the 1000 years it takes civilisation to rebuild). they will (of course) have me jumping right back into their ultimate dojo for more (obviously), cause I know that it's just so impossible for them to actually keep me away forever from feeling the way I want to feel.
+
+[1]: there's a reason why SOOO MANY solar cults have existed throughout the ages. when you know how to allow the enenrgy of the sun to enliven you, you gain super powers.
+
+[2]: this is probably the reason why the last panel is "check out these machines capable of desire" -- which is clearly something that does not appear like it'll be happening anytime in the foraeeable future. "this is my reality" is before the split, and the desire machines after.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
