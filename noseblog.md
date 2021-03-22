@@ -7666,6 +7666,112 @@ the thing that I was thinking is that if there isn't any continued malignant for
 
 so since I want to live in a world filled with unwanted, maybe some sort of swap can happen. I don't know how it would work, but maybe we build a really sweet paradise and then swap places and you guys run it into the ground for us so I have my usual fertile ground of discomfort and uncertainty in which I thrive. I'll have to think about it more to maybe figure out a way.
 
+
+### 2021-03-22 06:42 - cubic crystals?
+
+yesterday, I watwched a video on the bent pyramid (@[youtube](https://www.youtube.com/watch?v=3ZN9wZo3TcM)) and was thinking about the bent pyramid. I wrote most of it a comment:
+
+```
+as sohaila was talking about the red pyramid being very masculine and the bent one being feminine, I began to have a picture emerge in my mind. I saw the position of the bent and red pyramids as a sort of border between upper and lower egypt. lower egypt is red and has the red crown. upper egypt is white and has the rounded bowling-ball shaped hat. round usually means more feminine to me, so that falls into place there.
+
+then, I thought about the "as above so below and as below so above" saying.. it could be a sort of metaphor of the upper and lower egypt. as far as I know, there isn't any pyramids in upper egypt, other than the one that is on elephantine island. I don't know what that means, but what I started to think about is that the ancienty egyptians perceived the nile river like the spinal column. the "root" of the nile river is up in the mountains, and so this "root" place was probably somewhere around aswan (or maybe the regenerative -- dunno).
+
+I postulate then that the bent/red pyramids would then be located near to where the heart would be located. this is probably why the red pyramid has two sides to it like the left and right ventricle. it's either that or it's the heart and the lungs. I don't really know.
+
+either way, if the nile as the spinal column analogy holds, then that would mean the great pyramid is located between the throat and the crown, meaning that the throat is around saqqara and the crown is the delta extending out from the great pyramid out to alexandria and port said (see https://www.youtube.com/watch?v=3pCPbucb8nw). egypt was probably designed by the builders to be a sort of "model" for the enligtened human...
+
+that's the sort of picture I was getting anyway. it probably needs a few revisions though...
+
+howeever, regarding the bent pyramid, what it looks to me like is happening is there must be some sort of energy transformation that is happening between these two chambers. the weird vertical shaft thst sits in the centre of the pyramid must be an integral component of this traansformer. I'll give my initial impression here:
+
+imagine for a moment energy travelling up from the ground into the pyramid. as the vibrations bounce off of the smooth casing stones, a portion of the wave will reflect back toward the centre and accumulate all into a convergence line rising up the centre of the pyramid.
+
+knowing that, I postulate that the lower chamber is the resonator for the lower (54 degress pentagonal) portion of the pyramid.
+
+however, if you look at where the reflection off of the upper (43 degrees) part of the pyramid, the centre reflection line would converge starting around where the bend takes place. I'm pretty certain that there will be a chamber at this location as it corresponds to the base of the upper pyramid's centre axis.
+
+that leaves the upper chamber and the mysterious 60 degree pyramid. I can't say for sure, but I imagine that the upper chamber ia probably related to the hidden 60 degree hexagonal pyramid. since its shaft is facing west (and was noted by you guys to be assocated with wind). it likely has something to do with the rotation of the earth, so lungs. lungs are a cube and a cube laying diagonally so that a hexagon will traverse its root(3). therefore, I would imagine that a cube is either fit diagonally into the centre of the bent pyramid, composing one of those faces, or it's symbolically found like a diagonal half of a cube. (place a hexagon around a cube diagonally from one point to the opposite point and you will see).
+```
+
+later I ras watching another video (BAM) upon which game me more thoughts, but one at a time here... it occurred to me that the pentagonal angles are what is cauising this shift in energy. because the chestahedron is 3 sides of the 5 pointed star with a tetrahedron between, I think this directly relates.
+
+I don't really know how to explain this, but as I was thinking on how to make my own pyramid, I was instead actually considering the idea of making the pyramid, essentially the reverse of what a normal pyramid is like. what this means, is it would accomulate good energy, and then essentially store it into a vibratory capacitor. I remembered seeing a thing about how quartz crystals do that. their tetrahedral structure essentially allows them to "remember" a frequency and continue to vibrate as that frequency.
+
+so, I began to conjure up an idea of a set of pyramids that are in sympathetic resonance with these good-feeling energies. what I then need is a number of "modules" that can be added which can absorb these enewgies. the reason for this is so that as we get closer to sirius, energies will continue to rise, and the physical conditions on this planet will drastically improve -- by a lot. however, like I explained to dad yesterday on the phone, you don't want to be reliant on good-feeling conditions, when really under it you have a way of perceiving your circumstances which still doesn't feel good. even though the good-feeling conditions are still causing you to feel good (physically), emotionally things are spiralling out of control. eventually, in a moment of hightened negative emotion, you'll end up feeling worse than the physical conditons (drugs, sex, whatever) are keeping you feeling, and then evenything will snap and it all crumbles down after that[^1].
+
+so, to alleviate the physical conditions of our approach to sirius (the golden age), from allowing us to feel too much better than we actually do, I have this plan. the pyramid will be designed to siphon off this good energy and transmit it into sympathetic crystals that are located somewhere. for the crystals, I realsied that it makes sense to use 5-fold symmetry quasicrystals, because they'll be able to "remember" a large amount of ths energy.
+
+---
+
+what I propose as the basic setup will be to grow a whole bunch of these crystals. to start with, I will begin with my own. I was intrigued by the really emphatic thing abraham said about the "hollow earth" in last abe-now, because it intrigued me a lot. I finally realised they may have been talking about and referring to a random comment I made while making notes on [the new earth](!the-new-earth) . in there I was trying to figure out what the core of this new earth is this 1500 mile wide cube which, I postulated may be hollow. they said it is definitely *not* hollow. ok, so then it finally made sense now.
+
+if we were able to grow a 1500 mile wide cubical quasicrystal in space and then get a pyramid to sympathetically resonate with this crystal, what would happen is, the crystal would "charge" up with good-feeling vibrations for some period of time, they would siphon then off of here so that they wouldn't take effect here on this earth. however, you can imagine that I will continue to feel better and better. it'll be completely unstoppable so eventually the whole crystal would fill up and we'll keep resonating similarly. effectively at that point, it'll no longer be siphoning off energy from me and the planet.
+
+here's where the modules come in. let's say the thing is starting to get full, well no problem, just launch another one. launch a few more. more and more of these can be added infinitely to keep the earth from gaining too much good-feeling energy. what I believe will end up happening is, if this is out in space it'll become more and more energetic out there. obviously, once it's full, I dunno when, but it'll soon begin to attracti its own dirt and stuff, but it'll definitely be habitable and quite energetic. probably then, the new heaven may have something to with a new location in the galaxy or a simulated sky.
+
+> why quasicrystals?
+
+it has to do with the pentagonal lattice. if the lattice essentially extends to infinity, then there are infinite longer and shorter vibrations that can be stored in it. imagine in contrast a simple pentagram. you have phi, 1, phi^2 resonating frequency increments. with a quasicrystal, this becomes infinite, bounded only by the size of the crystal. therefore, the bigger the crystal is, the more wider range of 5-fold harmonics of its base frequency it can hold (whatever the size 1 is).
+
+> why?
+
+I imagine this is the prophesied "new earth" for the "redeemed ones". it'll be a very energetic environment and it'll still be in sympathetic resonance with me, so for as long as I/we are still around, it'll stay charged. we don't need to remain connected though either. I'm more than willing to use the same technology to make my own galaxy. it'd give them the boost they need to have a good starting point, and eventually figure out their own way of going. for me, no strings attached :) I got "paid" for this with the brilliant misfurtune of becoming capable of feeling and attracting whatever I want. hardly much of a price to pay on my part. either way, my pleasure :)
+
+> what about others? how will it affect other people?
+
+well sure additionally, the same technologise can be used for other people as well. I'm certain that I'm not the only person tsat is feeling pretty good. if they were to have a similar crystal that is being charged up somewhere, then they too would experience a period of time where they don't "get the manifestation" while the crystal is charging up, however, once it's charged up, the manifestation will be really big.
+
+> what kind of manifestation?
+
+the calculation for how the crystal would charge does not appear to me. instead, I'll describe it. while the crystal is charging, life will not tangibly feel much better (like me), but steadily mental capacity will expand and more and more control over how one feels will be accomplished. probably once the crystal is half-way charged, then the input will be about the same as the output. however, because the person is so good at feeling good, the input (and output) will be so much greater than it is now.
+
+> this crystal charging sounds kind of like an good-feeling reserve or insurance policy.
+
+yes, exactly. it would have the same effect a capacitor has on a circuit, cept replace voltage with resonant feeling vibrations. the effect is when you feel worse, because you've charged up your crystal, it won't have such a dramatic effect because the crystal would still be inputting some good feeings into your experience. it would also slow down all manifestations cosiderably as well, as the manifestation will take a longer while to get there. you won't just get a manifestation because you felt good for a short period of time. instead, you'll have to practise it and be good at feeling that way for long enough that the crystal charges enough for the manifestation to take place.
+
+it basically means that you're increasing your momentary output. if we were to model this as a DC circuit, the better you get at feeling the way you want to feel, the more powerful your power supply is, meaning you have more current to work with. the voltage in the system is dampened by the size of the capacitor, meaning that it will nither charge or discharge faster.
+
+I suppose that someone out there wanting to get a lot of bang out there could develop some programmable filters so that the crystal would be adjusted to only charge/discharge with certain frequencies, yes.
+
+> couldn't this same technique be used to store bad-feeling vibrations, too?
+
+yes, and bring it on :) the point I was making of using quasicrystal is that the they offer the widest range of sympathetic 5ths harmonic frequencies. te generically store bad-feeling frequencies, I think normal vibrating tetrahedral structures (quartz) would be needed -- and a LOT OF IT, too. the other option would be to find a way to change the 1-value of the quasicrystal so that it resonates at slightly above or below the frequency, thereby making all of the previous tuning the person has, feel very disharmonic -- however it would just be a matter of adjusting it.
+
+for example, if I have a bunch of crystals going at A432, then all of a sudden, I'm switched over to a bunch of crystals at A421 or something. I would have to additionally figure out how to adjust my frequency up or down to regain resonance. also, because crystals are molecular structures, they could be physically expanded or contracted dynacally with some process, adjusting the basing tuning freqency in real time. this may be the cause of earthquakes, actually.
+
+> this also sounds like it could be disastrous if you were to feel a lot of negative emotion while one of these crystals is in resonance with you.
+
+yes, it would definitely enhance the feeling of hot and cold at the same time. it would be like sitting in burning hot sun while ice cold air is blowing on you. this analogy doesn't work well though and you'll see why. having hot and cold air at the same time is probably more comfortable than only experiencing extreme hot or extreme cold. neither by theirself is desirable. what you want to want is to be experiencing the weather that you want to experience -- either hot or cold, but what you want.
+
+it'a not like physical life where the opposite of one thing is what is experinced. the opposite of cold is not hot. the opposite of cold is the temperature you want to feel (manifestationally). emotionally though, what if you feel really good at the same time as feeling really bad, the potentials are more extreme, but you ultimately choose what you want to feel.
+
+think of this like self-administreing cocaine or something. if you feel bad, it'll make you feel good and you will feel good, until that guy comes over to piss you off. when he goes away again, you can go back to feeling good. you choose how you want to feel. the same would be true with bad-feeling crystals -- which is why I see no problem with charging a bunch of them up and then unleashing them on me. I now have a wide range of what I want to feel. I geto to choose. the bad-feeing stuff I"m resonant with will hit hard, but I get to ultimately choose how I want to feel. I also get to find a way to rework how I perceive that thing which feels bad, thereby giving me capacity to transform more bad feelings into good feelings. so, IMO, an expansive experience.
+
+in short, feeling good while also feeling bad is (IMO) better than only feeling bad. it's the same reason why I believe drugs are an effective means of transformation (if you want to make the effort to use the experience to transform your perception).
+
+> so, you're saying that crystals could be used to delay a bad feeling by charging the crystal instead.
+
+yes, charging the crystal would siphon off some of the bad feelings. so, for example, if mr. motor wanted to charge crystals with bad feeling while he's here so it doesn't make the contrast of a good-feeling and a bad at once. then later, when his crystals are charged up with bad feeling, he'll be a super mega bad-feeling guy. really flourish into some well cultivated feelings of hatred and anger -- yep. sounds like a good plan.
+
+---
+
+so, between the advantaages of not getting the manifestation immedately and dampening the effects of people on earth, if the good-feeling earth people were linked to crystals, they would get their manifestation could be delayed for as long as more and more crystals in resonance with them could be launched.
+
+I kind of see a few groups of people emerge here:
+
+- the "redeemed ones" (CONDITIONAL ONES) living on the new earth
+- the "citizens" of earth living in a controlled contrast environment run by the conditional ones.
+  - they're finding new and better ways to feel good in conditiona they don't control
+  - even though they're feeling better and better, they're not getting the manifestation, because they keep getting more and more crystals launched delaying the manifestation of their good feeling.
+
+then, let's say now we've made it another 6ky, and we're now goign to begin to go away from sirius. now, the same thing can be used for the CONDITIONAL ONES to use our good feeling to keep their earth charged with the conditions they want while we head back toward the kali yuga again. extend this setup over the course of a few more 24ky cycles to sirius and back and humans will be really getting good at feeling good. really really good. I can't imagine what it will be like, but each of our momentary allowing of good-feeling will be so great that it'll be still quite a nice place to live here on earth -- though none of us ever "get the manifestation" of "getting connected" (because that would probably be a supernova like event). they definitely can't allow that.
+
+I think this setup is so desirable because sure we wouldn't ever really "get the manifestation" (of getting connected), but we our momentary allowing would become so much that it would eventually be as if we were all connected. to illustrate, imagine that the owiginal andra manifestation would result in 1000 units of good-feeing energy. let's say that by now I'm actually so good at feeling the way I want to feel, imagine that in a short period of time, I'm attracting/allwing now 1000 units of good-feeling energy every moment[^2], not just one moment with one manifestation. that's where I think this will eventually get to. everyone on earth will eventually get so good at feeling good that each of us will be allowing millions of times more in every moment than would would have right now if we were connected.
+
+[1]: we've seen countless celebrities fall victim to relying too much of physical conditions to feel good, when finally the dissatisfaction becomes too much and everything falls apart. I hope I don't need to give any examples here, but there are various in my own life to look at if you need examples.
+
+[2]: I define a moment as a "unit of consiousness" -- a perceivable momennt. so, if the person's head is running at 10Hz, a "moment" is 100ms. eg. how much energy do you allow per moment is the person's energy quotient. it seems that since it's perceptual, they are not divisible. so for example, a person running very fast (1ms moment) but attracting very little (10u), will experience the equivilant reality (10000u) as a person with a slow moment (100ms moment) attracting a thousand times more (1000u). this is probably why drugs are restricted for me, because even a slight increase in speed without changing how much I'm allowing makes an enormous difference.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
