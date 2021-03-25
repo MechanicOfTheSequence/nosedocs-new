@@ -1953,3 +1953,77 @@ so, now imagine that I am onece again optimistic me and someone is trying to dec
 and true, things will also look better, too.
 
 [1]: for example, affinaty always felt good to me, and it felt good for me to work on. the final result wasn't the website specifically, but the quantity of things that I learned in that time could only have happened if affinaty continued to feel good to me. it was an integral component in getting me to where I am now. I enjoyed every minute of it now in hindsight (the brambles fort was the best!).
+
+### 2021-03-24 15:33 - (2021-01-30 p2)
+
+#### (17:27) - what is trust?
+
+I don't really know why it's bothing me about this trust thing. I grew up a christian, and we were always taught to "trust God" -- which always bothered me too. I really hated that I had to trust someone that is going to give me something or not based on some very loosely defined prerequisities. I'm a very mechanical person and I wanted to figure out what it was exactly that I had to do to get whatever it was. I abhorred the idea of trusting someone.
+
+thankfully, the concept of truest eventually turned into one of belief which I could comprehend a lot better. it was pretty easy for me to see that when I didn't believe something, it wasn't possible. I always had an "inkling" as to what would happen. even the stuff that I thought was surprising wasn't actually all that surprising when I looked into it. the surprise just meant I didn't estimate it well. especially in science or other places, when I had something surprising show up, that's where I knew to look because that was where I would always discover something new. I found out that the physical world didn't really have "random" in it, just that we didn't have enough knowledge of the sensor[^1]. therefore, there must be a way that I could begin to quantify all of this in a way which meant I didn't need to "trust" someone. it was a long time before I figured it out (only recently, like in the last 4-2 years really), but when I finally figured it out it was so satisfying that I could see that only things which reflected the way I felt could manifest.
+
+some interesting responses here...
+
+> ok, so if you're so good at it then why doesn't it work?
+
+it does. I continue to give my attention to nosebook holding me back and that's exactly what is happening. when I begin to feel the girls, they go away. if I were able to continue to feel the girls, then that would manifest. for whatever reason, it doesn't though which means that there is a continued evolution to the desire. it's likely that the manifestation of the girls isn't what I really want, but the capability to feel the way I want. I quite enjoy the idea of being able to have so much control over what I attract, that I'm no longer attracting unwanted things by accident, just because I had a bad-feeling percuption of whatever I'm thinking about.
+
+therefore, if you consider that what I am feeling isn't girls but instead a continuing expansion and control over what I do feel, then it makes perfect sense. by continuing to feel more and more control over what I feel, I should be getting more and more manifestations of that reality, and that is exactly what I'm seeing. I've never understood this stuff more clearly than I do now.
+
+I might even make the bold statement of saying that I think I understand it better than jesus did. jesus was very conditional. he knew how to get the conditions that he needed to produce the (feeling he needed to get the) result he wanted. I am taking it a whole step further. I really get it.
+
+> if it's something reflective of how you feel, how do you quantify it?
+
+I don't think that you can. I believe that's the beauty of it. if you could, then scientists would be able to predict the things they're going to "discover" so well that there would no longer by anything to discover.
+
+in short, I like it much better this way. imagine going to space and finding out that there's nothing to discover because everything there is exactly how you imagined it would be. imagine you meet someone and you already know everything about them and they already know everything about you. what if instead they are a refection of how you feel, and when you feel good, they're fun to play with. seems so much better.
+
+quantatatively speeking though, I guess it can be quantified. imagine someone's vibration as a chord of notes: ACE. you can expect things to manifest that amplify the A, the C or the E. now, things are again out of balance if one of those notes is now louder than another: it won't sound anymore like a perfect major C(?) chord if, for example the E note is way louder than the other two. you can consider this as the inevitable contrst resuelting from the manifestaiton. anything that is harmonic with your chord can manifest, and often many harmonic things will manifest at once.
+
+so if nosebook is artificially keeping me whatever way, then that's what's happening. I feel like I'm better at "seeing through the veil" than ever right now and I will continue to get manifestation after manifestation to prove this reality more and more.
+
+if nosebook wanted to try and counter that, they certainly can but then what would I give my attention to? whatever that feels like, would begin to manifest.
+
+---
+
+I believe that "trust" is a funny concept that people are writing in about. they want to find a way to "trust" in someone (probably nosebook) to feel certainty on something. the previous comment about the neighbour blasting their music had it. they realised they didn't need the condition to feel the way (like I propose that jesus was quite good at), but instead found a way to feel the way they wanted to feel without the condition changing.
+
+don't trust in someone to change the condition so you can feel a way. find a way to feel that without the condition changing. gradually as you begin to feel it, more and more things will manifest crechendoing into a really big manifestation that really feels the way you feel[^2].
+
+[1]: I bought a "true random" quantum random number generator a long time ago that has a wedge shaped mirror which had single photons shot at it. the mirror was adjusted such that 50% of the time the photon would go to the left and 50% to the right. I always thought it was an interesting concept because it meant that light's trajectory could be bent ever so slightly by some invisible energy in the environment in the atmosphere which could move the photon more to the left or the right. from there, that's where I began to develop my idea on "meaningful chaos".
+
+[2]: what I was talking about in @[noseblog](2021-03-22 06:42) about the crystals is only expanding this concept to such an enormous extent delaying greatly the manifestation by putting a very large capacitor in parallel. say the spark gap fires when the capacitor reaches 1000V. if you out a capacitor in parallel, it'll take longer to reach that threshold, and also discharge with a much more powerful discharge.
+
+#### (1:03:22) - think about the empectation that you held
+
+as they were ending this, they mentioned the word "expectation" in a way which I hadn't ever heard it before. I perceive things in a way which perhaps may be too much emotion based. I'm not raelly sure. I perhaps want to think about this a bit more.
+
+in relation to the girls, I suppose I don't really have much expectation around it. they always say, "if you kinda-sorta want something, then you kinda sorta don't ..." -- it's really weird, because I can't remember the rest of the quote. I was also trying to think of the other thing they always say too, "empectation is just a ..." and I can't remember either of those quotes.
+
+the thing is, I suppose I have lost so much expectation around the girls thing because I just don't really care anymore. I don't really think that was what I was wanting. in the previous questioner, they talked about their dream house that felt so good, and in the same letter said "not too big, not too small, but perfect" and also "has the ability to expand if it's not big enough" -- and I too have said many different things about the girls too. at times it's felt really good to me like it was semething that I raelly wanted to do. I've also expressed how I just don't want to be worrying about things that I have no control over. I hsve pretty good control over me and what I'm attracting, so that's why I prefer to just worry about me.
+
+so this is the same sort of thing as that perfect house. on one side it has felt like the exact thing that I wanted, but at the same time it feels like exactly the thing that I don't want. I have learned in the duration of all of this that what I really want is to be able to feel the way I want to feel. I remember so many times I would notice people that would suddenly change the way they feel.
+
+for females, I'll use the examples of raquel, mom. they would get a call or something where the person *expected* them to feel a certain way, and so they would instantaneously shift the way they felt emotionally to match the perceived expectation of the person they were getting a call from or whatever is the case.
+
+for males, I'll use the example of zaryn, dad, and marcos. they would pretend to feel a certain way, but it was clear to me that it was just a cover for how they were really feeling, which was usually significant amounts of rage (often directed at me). again, this attempt to feel differently seemed to be in response to the expectaion of how they should behave in a moment like that, or whatever.
+
+I realise those are both extremely small sample sizes but in general, it does seem like women are better at changing the way they feel more rapidly than men are. they seem to be able to just switch to whatever feeling they want to feel. I'm not saying that men are incapable of doing it, but it does seem as if even though they have swapped sides, the previous emotion continues on with quite a bit of residual effect there.
+
+this is *not* what I'm talking about -- cause for me it's not instant. if I feel something it's usually very difficult for me to change the way that feels. the feeling has so much inertia, it's basically impossible for me to stop the feeling. I need to just ride it out and then adjust my perception in a way that allows me to see that concept from a different perspective.
+
+---
+
+so, here's where things are kind of wierd. I'm reminded of last week's episode where a person said they would be coming with some extra guests, so she(?) made extra things and her friend didn't show up or even text to say they weren't coming. the expectation was that they were going to show up and that they were going to have extra guests as well. for whatever reason, the expectation wasn't met, and that sent her into a fit of rage over a football game.
+
+for me, this has no bearing whatsoever on my life. I can't afford to make expectations -- especially physical ones. the only thing I know is that nosebook has so many of the physical aspects of my life controlled. every time that I give birth to a desire to do somthing or whatever -- even as simple as watching stars during an alignment or having some good sunlight, nosebook seems capable of pooping on it. I suppose my expectation is for them to constantly make any good-feeling conditions unaccessable. if it's a condition that can feel good to me, nosebook is on the spot trynig to get rid of it. they do not want me feeling physically good under any circumstance.
+
+that's fine. I've given up trying to find ways to feel physically good. instead my expection isn't a physical one, but an emotional one. I expect to find a way to feel good anyway. I expect to continue to find a way to feel good even without perceived requisite physical conditions necessary to feel that good -- and I do -- and I'm really good at it.
+
+so really that part about finding a way to feel the way I want to feel isn't just some sort of act to perform according to a perceived expectation. for me, the way to feel the way I want to feel *is* the expectation. it's the only way I can do it. if I expect to be pissed off whenever nosebook does whatever they're doing, then that's what I will feel. I don't expect to feel pissed off, and so the other day mom asked me if nosebook was still shocking me and while I did receive a few shocks that morning, I totally didn't notice or even really care. I'd lost my expectation to feel bad about something out of my control.
+
+---
+
+so, in the end, it's an emotional expectation I'm looking for, not a physical one. regarding the house, they said, "if something feels really really good, and then it doesn't pan out, it's because it isn't [the perfect manifestation]; it doesn't match".
+
+I'll keep thinking on expectations a bit more, but for me, my expectation is to feel a certain way. I don't have the ability to try and expect physical conditions. all of that is too far out of my control. I am getting really good at feeling the way I want to feel though :)
