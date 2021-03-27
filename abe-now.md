@@ -2027,3 +2027,45 @@ so really that part about finding a way to feel the way I want to feel isn't jus
 so, in the end, it's an emotional expectation I'm looking for, not a physical one. regarding the house, they said, "if something feels really really good, and then it doesn't pan out, it's because it isn't [the perfect manifestation]; it doesn't match".
 
 I'll keep thinking on expectations a bit more, but for me, my expectation is to feel a certain way. I don't have the ability to try and expect physical conditions. all of that is too far out of my control. I am getting really good at feeling the way I want to feel though :)
+
+### 2021-03-27 12:18 - (2021-02-06 p2)
+
+#### (26:38) - your reality is a reflection of how you feel
+
+before they continue... it's easier to see something that bothers you about yourself (something about you which doesn't feel good) in someone else, than it is to see it in yourself. it looks like it's someone or something happening outside of you that's causing you to feel that way, but it's only a reflection of how you feel.
+
+#### (39:09) - many of you want to be healers for others
+
+bleh! not me. I find this idea detestable. I just don't really like the idea of doing things for other people. there was this idea that jesus could come and do somthing for us so that we didn't have to. fill in the something that would be: sins, sickness, etc. I dunno. but this idea of a saviour is really bothering me more and more lately. just like in the previous section, sure I am finding ways to feel really good without the conditions changing and that's really good, but don't need me to do that for you. you can do it too. what you perceive in me is only possible if it weren't also resonant in you. my goal is not to be some sort of prosthetic for someone who does not theirself feel capable. I intend to show everyone that it's completely possible to be in whaetever situation (and I really want this... see @[noseblog](2021-03-27 09:38)) and have the capacity to feel how I want to feel. there is no greater feeling of self-confidence and accomplishement than showing myself that I am resiliant and can take control of the situation not with some physical force. knowing that it's all an emotional game makes it so easy to reason about because I believe it's an impossible battle physically: there's always someone bigger and stronger -- and if you are the biggest and strongest, next year you likely won't be. it's just too difficult to maintain the position of physically strongest.
+
+#### (49:11) - don't festher someone's nest too much
+
+repeat of above.
+
+#### (50:09) - tracking number of the things in my vortex
+
+the person said that they enjoy the feeling of anticipation of the thing coming, even more than the thing itself -- then they turn around and want to know the tracking number. I don't understand becase you only look at the tracking number when you feel there's a shipping problem and thst it isn't in fact coming. if you kneow for sure the thing was coming and were enjoying the anticipation of it coming, then you would definitely *not* want a tracking number and instead of looking for the package out there on the porch every day, instead you would be continuing to hope that they package didn't come because the anticipation feels better than the package arriving. the questioner, if they way they claim they feel about their vortex is correct, would be hoping that the package is delayed for as long as possible because the anicipation is so great. they would also, as soon as it arrives, immediately order another one, hoping that package takes even longer.
+
+I get the sense that they may not be enjoying the antipation of the things in their vortex coming so much if they want a tracking number.
+
+---
+
+as I was writing this, I was getting reactions to what I was writing bevause I was giving the illusion that maybe I find the anticipation of the things in my vortex coming to be so much more fun than the actual things and that I'm purposefully trying to have the packages delayed because I like the anticipation so much.
+
+I wouldn't say that is accurate. I don't get to feel the anitipation of it coming. nosebook shuts it down. whenever I get the chance to feel it, I do enjoy to feel it for as long as I can, but I'm definitely not purposefully delaying. I do think that nosebook is doing their best to try and delay it for as long as possible. I think it's going to be very difficult to keep up their charade if I am to get connected, so they definitely don't want that. I definitely *want* them to keep trying to keep me from getting connected though, because the more they fight it, the more they're attracting it.
+
+this again comes to a definition of what's in the vortex. for me, the only thing that matters is my connection. if they can hold me away from that forever, graet. that's fine with me because it'll be the most manifestation -- but realise that forever is quite a tall order. I don't believe they will be able to. there are so many difficult things for them to actually do that, they must eventuaally have to give that up. but, maybe if the crystals idea goes through, then maybe it will be possible to go all the wy till the end without getting connected. who knows. the thing I do know is that the joy is in the journey, and that I'm having quite a good time along the way here I don't want it to stop. I don't feel anticipation though -- not usually anyway. they're getting better and better at getting rid of that feeling. soon, all that will be left is a feeling of getting better and better at feeling what I want to feel.
+
+---
+
+I have postulated that as things increase further, if I still have any negative emotion present in my vibration it'll probably create adverse weather effects, mayb fire, explosions, etc. but this is all OK. I want the capability to be able to feel the way I want to feel. I want the control to be able to transform any bad-feeling idea into a source-perspective version of the same. I dunno.
+
+from my perspective, I would estimate that within the next year or two, I should no longer have any bad-feeling ideas that resonate with me anymore. if they get the crystals idea going, that's another thing entirely. I don't know how fast or slow that could be. either way, it simply doesn't matter to me. I'm quite enjoying the journey. we'll have to see if me continuing like this becomes more of a liability than an asset for them. not my problems. I find away to feel how I want to feel without needing the conditions to change to feel that way. it's so easy :)
+
+#### (54:00) - planned obsolescece
+
+> your quest for perfection defies your intention for evolution
+
+if we had stuff that worked perfectly, evolution wouldn't happen as frequently. so, therefore, in order to embrace rapid evolution, we should only design things that work poorly... lol. or, with planned obsolescence, evolution can continue to happen more rapidly too.. I actually think that if the concept of planned obsolescece were chosen by the consumer instead of forced through faulty products, then we could keep evolution happening *and* have nice products. it would be good for the economy and everything if produtct turnover rate and release of new competing design was rapid.
+
+it's kind of a weird thing because planned obsolescence works well for monopolies (or cartels), yet new competing designs do not work well for monopolies, so this can potentially be streamlined so that the best of both is integrated into our experience. we don't need to be forced to use lousy products to desire to update to a superior design more frequently.
