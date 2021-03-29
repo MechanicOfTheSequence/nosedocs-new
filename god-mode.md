@@ -37,7 +37,9 @@ kind of another way to say the one previous, but it illustrates that it's bidire
 -----------------------
 ## program your reality
 
-I have noticed that *all reality* is a program. it's a conceptual program though and I interface with it with thoughts (usually input) and feelings (usually output). these are some ideas that I have found useful and maybe a few I also would have wanted to know early on to get me started.
+I have noticed that *all reality* is a program. it's a conceptual program though and I interface with it with by inputting a feeling and then a feeling comes back out. I arrange, categorise and organise these feelings with thoughts (which are more like data structures).
+
+these are some ideas that I have found useful and also things I would have wanted to know early on to get me started, too.
 
 [TODO: explain that later, this faculty transforms and intentional feeling (input) can produce thoughts as (output). for example, if you can convince yourself that you are able to figure anything out, then in any moment when you don't feel that way don't dispair, it'll come back and you will figure it out. thoughts and emotions are both inputs and outputs]
 
