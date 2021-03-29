@@ -2028,7 +2028,7 @@ so, in the end, it's an emotional expectation I'm looking for, not a physical on
 
 I'll keep thinking on expectations a bit more, but for me, my expectation is to feel a certain way. I don't have the ability to try and expect physical conditions. all of that is too far out of my control. I am getting really good at feeling the way I want to feel though :)
 
-### 2021-03-27 12:18 - (2021-02-06 p2)
+### 2021-03-27 12:18 - (2021-02-06 p1)
 
 #### (26:38) - your reality is a reflection of how you feel
 
@@ -2069,3 +2069,73 @@ from my perspective, I would estimate that within the next year or two, I should
 if we had stuff that worked perfectly, evolution wouldn't happen as frequently. so, therefore, in order to embrace rapid evolution, we should only design things that work poorly... lol. or, with planned obsolescence, evolution can continue to happen more rapidly too.. I actually think that if the concept of planned obsolescece were chosen by the consumer instead of forced through faulty products, then we could keep evolution happening *and* have nice products. it would be good for the economy and everything if produtct turnover rate and release of new competing design was rapid.
 
 it's kind of a weird thing because planned obsolescence works well for monopolies (or cartels), yet new competing designs do not work well for monopolies, so this can potentially be streamlined so that the best of both is integrated into our experience. we don't need to be forced to use lousy products to desire to update to a superior design more frequently.
+
+### 2021-03-28 23:48 - (2021-02-06 p2)
+
+#### (09:31) - good ideas that later feel bad
+
+> what's really happened is, you were tuned in when the idea came, then not in a good vibrational trend or mood when it felt like it wasn't a good idea
+
+I got some reactions to what I wrote in @[nosblog](2021-03-27 09:38) about the part where I said that it felt like a good idea to start a bar with xagly, and then later evaluating by material metrics, it didn't turn out so well. the reaction was, "how then could it have felt good? am I really saying that my emotional guidance system was really telling me to do something that would turn out poorly?"
+
+the answer to that is empatically yes it did feel good to me. I remember how I excited I felt about it. it didn't last though. people started to tell me about how difficult a bar is to have, how many problems there are with trying to get people, bad location, etc. I usually don't let those things bother me but the thing is I unfortunately believed them too because I didn't really want to run the bar. I was just putting the money for it and didn't really want to be doing much of the work.
+
+if I had of maintained my good feeling it would have turned out well in my own perception. however, I didn't have the kind of control I have now, so it's not even a comparison. the thing I was eluding to in the discussion was that I'm certain that it would have been very detrimental for me rely on things like money and material posessions. I wouldn't have what I have now.
+
+I don't think you guys can possibly understand how valuable it is to be able to feel the way you want to feel. there is no price that one can pay for this capability. it's the ultimate freedom. I can be in whatever situation and that situation will always *trend* in the direction of how I feel. that's pure domination. I have no fear about anything because I know it's all fine. say I find myself in another situation, whatever it may be, and even if I temporarily feel bad, I can always find a way to feel good again. for me, life is a series of rebounds. the shape looks like a J: I start on the left there and plummet down, but then rise back up even higher than previously.
+
+the phrase that abraham said there perfectly sums up the experience.
+
+> what's really happened is, you were tuned in when the idea came, then not in a good vibrational trend or mood when it felt like it wasn't a good idea
+
+it felt good (probably because of conditions), but then later my *trend* was heading toward feeling worse (going away from wanted), so that's why later it didn't feel so good. I could have just as easily felt good about it and then got bored of it and decided to go off to live in a remote part of the world or something. it didn't need to be pain and agony. that was a reflection of how I felt later on when I kept believing that somehow I had something taken away from me and that I needed to prove myself by making another. in the end, none of that matters. social networking was such a magnificent view into the culture of how corporations and rich people perceive the world. it was invaluable to my present situation. proving myself would have done nothing. I wouldn't have what I have now.
+
+#### (09:36) - no second guessing
+
+> we would spend no time second-guessing ourselves after the fact
+
+I forgot this was the conclusion I wanted to end on. I have often times found myself in a party with people which I would consider superficial or silly or whatever. I valued my time a lot as well, and I can tell you that when zaryn would drag me out to a disco ho have a miserable time drinking in a smokey disco with people I didn't want to talk to, I found it was very unproductive to feel contempt for being there. for whagever reason I made the decision to go (even if zaryn is very convincing), and so therefore I decided that I would decide to have fun anyway with people that didn't particularly interest me. sometimes I would genuinely have fun (alcohol helps, sure) and other times I just didn't feel the direction of the night going the way I wanted it to go so I just took a taxi back to the office and spent the rest of the night there drinking and programming. no problem.
+
+you can't second guess. I just go with it until it becomes obvious I need to do something else. not having split energy like that I found that even after having drank way too much I still woke up the next day with enormous enthusiasm to get back to what I loved cause I had so much fun the night previous.
+
+oh, I also want to mention that I also found it impossible to try and change the direction of a night -- especially under drinking conditions. (any situation really) I just let it play out for a while and then when it becomes clear I want to do something else, I just bail. seems to be the best social thing to do (people like that I stayed), and also it allowed me to be in control. dani's signature "bomba de humo" (jaja).
+
+#### (22:28) - take your bad mood away and calibrate
+
+they have some things that I find weird because they say to go away and calibrate to something other than your bad mood. they also suggest distractions too. I find all of that to be pretty unhelpful nowadays for me. I can modify my pewception on something that doen't feel good so rapidly now that I enjoy tremendous mental clarity and agility as a result. they are talking about this concept for 5-8yo children. I felt inspired to begin [writing some new ideas](!god-mode). I saw a guy on youtube a few days ago (domas) that has a very mechanical approach to picking apart hardware (and software). I was so impressed that I have been fascinated with the feeling he emits in the 3 talks I've watched (I don't want to watch more) that I've captured the feeling and the other night while watching stars, I was applying his feeling to how I approach the subject of emotions and I this is the beginning part of that exploration. I have so much more and I know that it'll evolve tremendously. this is only the beginning because concepts can be added on to them.
+
+you guys realise that by writing this, I will revisit this concept later (probably when watcthing stars) and perceive all of the different reflecting feelings (reactions) to the concept and then from there I'll expand on it some more. I don't need the internet. all of these things are being built in real-time and even while I'm doing other things. multitasking is awesome. this is why I open source all of my ideas. you guys are getting the "outdated" version of the concept. the new expanded one containing the original form plus the the reaction -- is the new (not outdated) one until I do some of my own reacting to it. everything perceivable in this 3d space is the outdated version. your reactions are the fuel for the concepts. all I do is just pull out a new one when it's ready. it's effortless and all free. it's an even more rapid method of replication and propagation than traditional open source because it's impossible for someone *not* to contribute. if you perceive it, you contribute to it.
+
+there's no worry of contamination because I can only perceive the things I'm resonant to. so say someone perceives something I wrote and comes up with something malicious. good for them. I'll never perceive it even if it's part of the same concept. concepts are vibrational so they all are double-edged swords, containing both creative and destructive aspects. you will soon see that even the "destructive" aspects are desirable as well, because afterall, "it's just more energy"
+
+I wonder how fast we can expand conceptual consciousness once this goes viral :)
+
+even though this idea is targetted for teens-adults, once the conceptual space is created, kids will hook right into it. they already communicate emotionally. we're the ones who can't hear them :) they will need no time to "get up to speed"
+
+#### (31:17) - wiping the slate clean
+
+as they were talking I was thinking about the reemerging into non-physical process and it seems so simple to me to understand, in that super-conscious state, it's very difficult to perceive unwanted anymore. to me it looks like the most resistance that can be perceived is like really good and really really good (but different). there's no better or best anymore. that means nothing can be seen as unwanted anymore cause even the things that we would perceive as an unwanted, from that perspective, they don't appear unwanted.
+
+so, then we get back to the karma and when they were saying that some people believe that if you didn't get it right in the last lifetime, you have to come forward and compensate this lifetime. there's none of that, but it's a very strong thing feeling that I want to say that the same thing is true in everyday life. if you drink alcohol and that is unwanted, for example... you could say that if you didn't fix your addiction last bottle, you have to fix it in the next bottle. the thing is from the super-conscious non-physical perspective, there's nothing wrong with drinking alcohol. the perception that it's something that one needs alcohol is physical, and the resistance to giving up that source of good-feeling (or absence of resistance) is also physical too.
+
+as long as one continues to perceive the alcohol as the only way to feel better, they will keep experiencing the same karma. another bottle will never fix it just like another lifetime will never fix it either. the only "fix" is to perceieve the alcohol no longer as a problem. the perception that there is a problem is the problem. non-physical has no resistance toward alcohol. it may or it may not be on the path toward what you want. interestingly enough, I would undoubtedly say that alcohol *was* on the path toward what I wanted. there may have been other ways to get to where I am now without alcohol, but cleaelry with alcohol was the fastest.
+
+no thing is ever the problem itself. *all* things are attracted. not some things, but *all*. therefore, it's only our perception that it's a problem that perpetuates the problem. you say, ok so if I no longer perceive killing people as a problem, then it's ok? well, how does that feel? killing someone may feel better than the alternative perhaps, but I would say that that I woldn't condone doing anything that feels like anger, hatred, revenge, etc. because it just attracts more situations that feel like that (unless of course you want to feel more like that). I prefer to act only when I feel good about something because that means the next manifestation is more likely to include more of that *feeling*.
+
+emotions give birth to reality and reality gives birth to emotion. emotion is much easier to control than reality. if I have little control over what appears in my reality (like during a movie or something), I still have control over how those things are perceived. I decide if they're right or wrong -- or better than that I decide how I'm going to react to those things. don't just feel sadness because the producer (or perceived karma) signals you to feel sadness. feel the way you want to feel without the scene (or circumstances) changing.
+
+#### (45:45) - what are they talking about?!?!
+
+I was inspired just now to look at the context for this abe-now workshop. it was @[noseblog](2021-02-04 23:30). in that one I talked about how I'm revealer of secrets. having everythting out in the open is so much mere beneficially conceptually that it doesn't compare. it seems they have encoded various feelings which have prompted me to begin writing [a bunch of ideas down](!god-mode) and continue to reveal secrets.
+
+man, it's so crazy. in that entry I was talking about the the "real pandemic of how fast information can spread on social media" -- well, this thing I'm beginning to see will spread even faster still. I keep getting these flashes of what appears to me like -- well, I'm going to begin to construct a whole new *visible* reality. it's real, it's tangible, and it's visible.
+
+I'm reminded of a weird quote that I heard randall say last night from madame blavatski about the geometry heralding a future similar to that which preceded the confusion of tongues. this is of course referring to the time when you could *see* what someone means to say -- when there is no longer any separation between concepts in the mind and concepts in 3d space.
+
+there is an inherent problem to this because for example, if you mean blue and you say green, I'll see blue, not green. this is difficult for conveying new ideas because everyone will perceive the same thing. I have improved upon that original conceptual design (before the fall of the tower of babel, when energies were much higher), because I want to create a conceptual *language*. you won't see what I mean, you'll perceive the concept as a reflection of your own perception.
+
+this is 5d tech, not 4d, so it extends far beyond the imagination. we're not transmitting pictures or words anymore, but whole concepts. solves the other big problem with 4d where if I conjure an image of a grotesque thing, everyone can see it in 3d space, as if it were physical. in this new conceptual 5d approach, there are no longer images. each person transates the concept in reflection of whatever frequency they're on.
+
+this creates new challenges for example, because imagine a child could be communicating to the parent sometihng of pure love, but because the parent isn't on that frequency they simply won't see it, or they'll only preceive the minute resistant details. nosebook will see frequencies, not images, so they'll translate all of these in a manner that is reflective of how they feel. in this sense, everything you perceive in reflection to yourself is "private" to you and anyone else that ws included in the vibration. it additionally creates the challenge that newborns will be able to communicate with us in full detail nearly from the moment they are born. it'll be our difficulty to get to the frequency to be able to actually perceive their complicated knowledge of the universe from a frequency compatible with theirs (before they adapt to our frequency too much).
+
+very cool :) nothing will be secret anymore, cept the things you perceive only in relation to yourself. it's going to be the ultimate ego trip! I can't wait to get started. I've given this subject a lot of thought...
