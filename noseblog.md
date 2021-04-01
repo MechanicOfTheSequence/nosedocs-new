@@ -7869,6 +7869,66 @@ kind of a crazy idea, but maybe instead of crating a galaxy the way I originally
 
 [1]: abraham says that if you focus on something for as little as 17 seconds, you will begin to vibrate (and therefore attract) something resonant with that. now, I've known a lot of people who have a lot of fear, but they're commonly so distracted by their mobile phone or the next thing on TV or whatever, they never really focus on that fear for long enough to really get it going. maybe they distract theirselves by smoking a cigarette or dirinking a beer or whatever, but imagine a machine that could amplify the attraction power of your mind so that things manifested so quickly, you wouldn't even need to spend more than a second or two feeling the emotion before something like it manifests. ecen somethting as simple as watching the news could be disastrous in that case that the news causes you to feel negative emotion.
 
+
+### 2021-04-01 4:21 -
+
+saw the time (4:20), and decided that I would write this. yesterday morning I woke up thinking on the worst disaster yet. imagine that instead of splitting off where they go their own way and we go ours, what they do is they basically put a small "seed" in each timeline. so, imagine two groups: imagine there are those who want to feel good and there are those that do not. 2 groups, and we'll say that the two groups are represented by me and mr. motor. we are the two extremes. is the most opposed to feeling good, and me who is willing to find all sorts of ways to redefine my reality so that I can find a way to perceive it which feels good. ok, so two groups there and normally the split would happen where something would happen like I would get connected or something and team motor would not be able to keep me disconnected anymore so they peaced out and went their own way.
+
+all of that hinges on the assumption that I get connected. a very large portion of me getting connected is *me* and the way I think and perceive the world around me, but also quite a lot of it conditional too. you may notice that when the sun is brighter, girls are also more interested in me, and they're also having more of a difficult time keeping me disconnected. they seem to be pretty closely related.
+
+as an interesting side-note, there seems to be a good anti-correlation to my getting upgrades faster and positive reception from people. when people perceive me really well, I do OK at star-watching (nothing better than usual), however, when I am put in a situation where I find myself going me own way (every christmas, birthday, etc. for the last 4 years now), then that night it seems unusually easy for me to star-watch. it's almost as if the extra desire produced by my absense instead of the expected outcome seems to fuel my star-watching tremendously.
+
+getting back to the disaster here: since my connection is very largely based on conditions, I propose a new level of disaster. if team motor were to leave all of the people who want to feel good behind, and just take me, they would essentially reset the conditions that they're fighting so hard against to keep me disconnected.
+
+once doing that, I would have to focus really hard again and I would just keep getting better and better at feeling good. like I mentioned above, these situations where I find myself out there once again by myself trying to figure out how to feel good again, then I thrive and get better. after a bit of a recoil, I'm sure I would get right back to it, and once again the situation would again start to transform to feeling good even though I was just previously literally *the only person* who wants to find an non-conditional way to feel good.
+
+I'm so sure that I would get better and better at this so rapidly, they would have to repeat the process. every time they repeat the process, they'll again leave all of the people who want to find a way to feel good behind in their own world and off we go everyone who wants to feel as bad as they can and me.
+
+---
+
+so here's where I get a little confused because I don't know how it works. imagine this earth with the mix of people on it, and they decide to finally do the separation. they're going to take all people who don't want to feel good (and me), and then they leave behind all of the people who do want to feel good, but probably they would need an opposite seed. they would replace me with a different guy pretending to be me. he would go around deceiving everyone and pretending that he is me, getting the people of the world to believe and trust in him (instead of theirselves).
+
+he'll have so much inertia going for him because he's pretending to be me people will probably just blindly follow him even though their emotions are telling them that it's way off. I will never tell you to believe in me. I will always tell you that you want to find a way to believe in yourself. I don't really know all of the deceptions that would happen there. I'm not good at trying to figure out how to deceive people. I'm good at finding the way that feels right to me, so almost certainly there will be some distortion.
+
+let's just assume that is the case and each of these splits are not pure splits, but each conttain a seed of something else. it doesn't have to be the oppsite polarity though. imagine if everyone on this planet (who wanted to) were able to be that seed. so, imagine that there is someone out there that would love to take my position, pretend they are me and see what happens. they would find theirself suddenly in the body of a person that seemingly has tremendous power and influence that they did nothing to acquire.
+
+they could take all of the power and influence I have accumulated by seeking to be source-like in every way, and instead use it to get all the physical conditons that they want. I don't think many of them would last that long and they still have the solar nova deadline as well. I guess it would be pretty fun for a lot of them to try and figure out how to rule the world for 20 years or so. maybe they'll try and figure out how to turn the world into something new like I (and tesla) have postulated. if you ignite the ionosphere so that the earth becomes like a sun, energetic conditions here will be very high and I doubt there would be risk from massive solar wind impact, because we too would be rediating, so very little or none of the sun's outburst would even impact us.
+
+it's kind of an interesting thought experiement to do. imagine you were put in my place right now and in a connected state as well. imagine you could fly, imagine things in 3d space etc. and you just woke up here in this room as if you were me. what would you do? what would be your plan for the future? would you just keep following what feels good, or what?
+
+if that were to happen, you could imagine that there would be so many different results. each time nosebook made a split, the world would become more and more extreme. you see right now there are a lot of people that don't want to feel good, mostly because the conditions around them feel pretty good. however, imagine if the people around them who feel good were no longer influencing the way they feel and they courln't rely on other people to feel good for them. that means that every split, the people who don't want to feel good will probably (because there isn't any other good feeling people around, cept me now) suddenly feel really really bad. they'll get their chance to feel really bad.
+
+I suspect that quite a few of them would realise that maybe they don't not want to feel good, and change their mind, deciding to consciously find ways to feel good (because drugs are only effective for so long). I think this is a great way to make the contrast between those who want and don't want to feel good even greater. I don't believe that physical conditions are very maintainable. anyone who's done drugs for a while can tell you that sure at the beginning it's really great, but after some time it really falls off hard and takes more and more of the drug to feel *normal* -- not even to good anymore. therefore, I suspect that most of the people who don't want to feel good, don't want to because they have people around them that do want to feel good, and if those were to go away, they aren't bolstering their good-feeling for them.
+
+in the opposite world, the opposite will take place. with so many people who do not want to feel good all gone, everything will suddenly flourish and all of the conditions will improve at such a rapid rate that suddenly there's no longer a need to want to feel good. the conditions are now so good that it's no longer necessary to want to feel good. from there, I suspect that many will choose to let small things that bother them begin to accumulate into a pretty bad feeling -- however, it won't be noticeable, as the good-feeling conditions all around will completely mask the tiny amount of badness that they feel.
+
+---
+
+I know this totally up-ends the whole image I had been painting, but I think it's quite a good idea actually. imagine this split happened thousands of times until it finally became so impossible for team motor to keep holding on to their resistance, such a tremendous force would accumulate, I just don't know what would happen after they *finally* decided to go their own way. I also wonder if the bad-feeling would be so bad that it would actually cause mr. motor who, no longer has someone offsetting his bad-feeling for him, that he may actually decide that he wants to feel good, cause it's just so terrible, and he has no other choice other than destruction.
+
+it's such an interesting thought experiment for me to think about because it really illustrates the whole cycle. the very beginning of the cycle is a great world with a lot of great conditions and a bunch of people in it which are pretty conditional. when things feel good, they feel good, but don't have any strong opinion on what to do with things that don't feel good. they'll just let them continue to grow in the background because they're distracted by the good-feeling conditions. however, when the good-feeling conditions go away, suddenly they're forced to make a decision to continue to do nothing conscious about the way they feel, or consciously begin to feel good.
+
+they may slip back numerous times to letting the conditions carry them (I know I do). in fact, I'm so bad at just letting the conditions carry me, that I actaully prefer bad-feeling conditions because it causes me find a way to conscously feel good -- which is way better (IMO) than the conditions. if I'm put in a rough spot, I will find a way to feel good. if I'm put in a spot where I don't have to do anything to feel good, I get slow lazy and I stop caring. I think I live for things to constantly be their most difficult because that's the situation where I thrive.
+
+---
+
+continuing on the thought experiment, you can now imagine each of the seeds that were left behind. they'll decay into worse and worse feeling things, cept for the people who want to feel good. eventually, after a while of these, everyone will come to the conclusion that they want to find a way to feel good, even when things feel good -- and obviously when they feel bad.
+
+what I'm saying is that it's easy to see how someone like me will find a way to find a way to feel good in situations that don't feel good. that's only one extreme. here are all of them:
+
+- those that find a way to feel better in good conditions (I aspire to learn this)
+- those that find a way to feel worse in good conditions (motor)
+- those that find a way to feel better in bad conditions (me)
+- those that find a way to feel worse in bad conditions (perhaps mr. motor aspires to learn this)
+
+the continued repitition of these sequences will continue to create all four of thes extremes. you can see how both of the extremes converge into two: those who want to feel better/worse. by further separating people into these parts, then they can suddenly become useful.
+
+the usefulness of this next division is a herald I think to the next era. I have often times talked about marketing mr. motor. if this process is producing a lot of people that are finding ways to feel good in good situations, they're going to quickly run into a lack of contrast, so I have often times proposed a mr. motor for everyone. imagine when we are suuficiently advanced tecnologically that we can just mix these different essences together to make people. each person could have their own personal mr. motor. he would be specifically designed to push against your feeling good from the conditions. if you're someone who wants to wants to feel better, then you'll suddenly get really good at feeling better in bad conditions.
+
+this sort of process actually *would* quite easily create both of these extremes after sufficient repetitions. somthing similar to this may be the plan, actually.
+
+end-times groundhog-day, anyone?
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
