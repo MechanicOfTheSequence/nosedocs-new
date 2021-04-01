@@ -7870,7 +7870,7 @@ kind of a crazy idea, but maybe instead of crating a galaxy the way I originally
 [1]: abraham says that if you focus on something for as little as 17 seconds, you will begin to vibrate (and therefore attract) something resonant with that. now, I've known a lot of people who have a lot of fear, but they're commonly so distracted by their mobile phone or the next thing on TV or whatever, they never really focus on that fear for long enough to really get it going. maybe they distract theirselves by smoking a cigarette or dirinking a beer or whatever, but imagine a machine that could amplify the attraction power of your mind so that things manifested so quickly, you wouldn't even need to spend more than a second or two feeling the emotion before something like it manifests. ecen somethting as simple as watching the news could be disastrous in that case that the news causes you to feel negative emotion.
 
 
-### 2021-04-01 4:21 -
+### 2021-04-01 4:21 - fourty minutes till happy hour
 
 saw the time (4:20), and decided that I would write this. yesterday morning I woke up thinking on the worst disaster yet. imagine that instead of splitting off where they go their own way and we go ours, what they do is they basically put a small "seed" in each timeline. so, imagine two groups: imagine there are those who want to feel good and there are those that do not. 2 groups, and we'll say that the two groups are represented by me and mr. motor. we are the two extremes. is the most opposed to feeling good, and me who is willing to find all sorts of ways to redefine my reality so that I can find a way to perceive it which feels good. ok, so two groups there and normally the split would happen where something would happen like I would get connected or something and team motor would not be able to keep me disconnected anymore so they peaced out and went their own way.
 
@@ -7928,6 +7928,66 @@ the usefulness of this next division is a herald I think to the next era. I have
 this sort of process actually *would* quite easily create both of these extremes after sufficient repetitions. somthing similar to this may be the plan, actually.
 
 end-times groundhog-day, anyone?
+
+### 2021-04-01 15:06 - why not?
+
+in the previous entry I talked about an idea to create the biggest disaster of all, and I think some people didn't take me seriously (after all, it did happen to coincide with april fools day[^1]) however I actually was serious. some my think that I'm trying to pull out all of the worst ideas, forcing an evolution by causing nosebook to decide that some of these ideas are not wanted. the theory is that conspiracy only works in secret, and so if I call out some of the worst ideas, then they're not able to do them...
+
+but, why not? I think it's a great idea. I could very well be one of those timelines I mentioned. so like I said, the theory is that they would need to get rid of a bunch of people that want to feel good from this timeline so that the conditions don't improve and I find my connection. well, that means that they would need to make a timeline with a bunch of people that want to feel good.
+
+I was only throwing the idea out there as the replacement for me being a guy who would deceive the world, but in reality everyone has the capacity to react however they want to, to my conditions. it's completely open to however they want to react to my conditions.
+
+---
+
+let's take a new angle at this. I don't know when the timeline would begin. the reason why I say this is because imagine that instead of waking up here in my body in a connected state (you wouldn't remember your old self and your memories of your arrival to this moment would be artificial). in your connected state, you would be like adam and eve in the garden. in a fully connected state and following inspiration. the conditions of the world would, like I said, be very good because there wouldn't be bad-feelers anymore (or very few). the whole world would jump right into a golden age, energies would be very high, so most people would begin to fly and stuff. it would be a very different world than today. very much more similar to how I picture the atlantian times were, actually.
+
+this time, however the difference would be that instaed of a bunch of crystals being the reason for people's good feeling, instead now it's other people and a lack of resistant people. people's perceptions would remain the same, so while everyone feels good, it'll be more similar to the 80's. the other night I was blown away because a "comedy" film was watching a black man fail miserably at stealing televisions and getting caught[^2]. this was supposed to be funny. times were different then, everyone felt better, so things like that could go unnoticed because everythhing felt so good. it would be like that. things that don't feel good will get encoded into everyday society[^3] and eventually, those bad-feeling things will eventually fester.
+
+so, with that picture painted, it's pretty easy to see that is exactly the world I was born into. however, imagine for a moment that all of my memories of my past are artificial. they really did happen to the original me, but all future versions of myself are just accessing those memories of the original me. the main difference bettween what I'm saying here and what I'm proposing is the connected state.
+
+what I'm saying is that I did all of the work finding a way to feel good, then other people can take advantage it. this may be ahead of it's time, but imagine for a moment that nosebook was very concerned with continuing to run their world without anyone connected in it, so therefore they need to keep separating off the good-feelers, so that conditions don't get too good on this planet. imagine for a moment that people could select which timeline that they want to take. I think that it would require vibwrational similarity the person I was at the time. door 1 is to go back to the beginning where I was in the hospital. I was smart but emotionally repressed, anger issues, but I was really smart and wanted to be a programmer. door 2 is to pop into my body now which is the one I'm proposing.
+
+the vibrational similarity could be accomplished by various means, but sexually could be one way. there are a lot of people already which are already quite vibrationally similar to me just because they perceive things through my form of perception (whether that's watching my experience or vision upgrades, or going to "the present moment" or whatever). I figure that a very large portion of people could be vibrationally similar to me. I don't know how many but I would imagine more than 20%.
+
+so you jump into my experience, and find yourself entering into a connected state. what do you do? your "memories" are mine and you would "remember" of the things that had lead up to that moment, but now conditions are going to be very good, so you'll act more from feeling than from logic (as do I). the thing that "the present moment" is that people may have not really noticed is that there's no thought. it's pretty similar to meditation in that regard. it's all feeling, and within that feeling you're reacting to the present moment. no thought. that's what the connected state is. it's pure feeling. it's nearly 100% reaction without any real thought. you're just following what feels good to you, so your perception will determine how you react. there's no real time to think anymore. everything is going too fast.
+
+---
+
+so, what I'm saying is that each timeline where a person took my place would be able to kind of experience the world as a reflection of their perception. to extend this idea further, I don't see any reason why instead of creating a split where a bunch of good-feeling people leave, actually it could be happening already. let me explain.
+
+imagine that life has caused you to begin to want to feel good. you end up finding ways to feel good, but you're starting to feel *too* good, so a timeline is created where you find yourself in a connected state[^4] (whether inside of my body or yours doesn't matter). in that state, the world will become a reflection of what you believe, and like I said, without a buncs of negative nancys, conditions will improve dramatically and very rapidly. you would be king/queen of your own world in a connected state.
+
+I said it doesn't matter if they choose to get connected in my body or theirs; it kinda does, because if you would want to go into my body, that means you're interested in having the influence from the position that I'm in now. it may also allow someone to believe in the girls situation if it's my memories instead of their own. either way, the world will be a reflection of what they beleive and how they feel. it'll be nearly 100% reactions in that state.
+
+I don't know the percentages of people or anything like that but imagine that you found youreslf in a world in a connected state, you would experience a reality essentially reflective of your perceptions. so imagine your memory of the past and see how that feels and imagine how that would shape your reactions in the present. or, imagine instead you had my memories (not your own) you would be like me. as you go through life, reacting to things, it would feel to like (like it does to me now) that you are *remembering* these different ideas, and the culmination of knowledge would become so great. everyone would have access to that knowledge, and whether you chose your body/memories/experiences as the basis for it, or mine doesn't matter.
+
+---
+
+this could be happening right now (or begin to happen en masse soon). any person that starts to feel too good, will get transported to their own timeline where they will experience their connection and the present version of thierself (on this time) will either disappear, die, or be replced with a "clone" (especially if they're an essential worker).
+
+what I'm saying is that instead of a large split happening where the people are divided into two, it makes a lot more sense if this were to happen gradually with every night, hundreds, then thousands, etc. people leaving for their own timeline while the ultimate dojo gets setup here on this one. I'd like to assume that what I've described as the "ultimate dojo" is being setup by the custodians, such that people's source energy can be mixed with others and put into bodies and situations which would limit how good we can feel. I think the goal will be to eventually get each of us on our own timelines with all of the conditons so well controlled that we all fall into the category of the person that wants to find a way to feel better in bad conditions.
+
+I postuated that to further prevent us from getting connected, our source energy should be divided between many bodies and timelines, but this creates a small solution for that as well, because each of us, should we get connected, will experence a reflection of our perception over time, so say the conditions of our approach to sirius or commerially available products allow people to find the conditions that they need to get connected. no problem. we'll attract our own destruction with our own perception as a reflection of the way we feel.
+
+you can see that some are going up finding ways to feel better and better, and then others who get to the connected state will rapidly turn their own world into a reflection of how they feel. combine this with degenerate DNA and we have quite the spin cycle.
+
+eventually someone will figure out how to feel the way they want to feel, and when they get connected they won't attract their own destruction. they'll have figued it out. you can see how both sides of the extremes are improved. some will be so good at feeling the way they want to feel, they'll be good at feeling good in basd conditions. others (like me) begin to become complacent in good-feeling conditions, and so we'll learn how to feel better in good conrditions.
+
+obviously for this to be effective, a whole bunch of people who choose to feel bad in good-feeling conditions will need to be optimised for, to keep those on the bad conditions path busy. they'll also need to be optimised as well, so they'll need to be bred so that the ones that choose to feel bad in both bad and good-feeling situations. these will become the optimal DNA to put some of the more successful people into so they have a harder time.
+
+I guess you gatta earn it, right? nothing comes without a cost :)
+
+eventually, we're going to have the most extreme of the extremes.
+
+[1]: btw, I like april fools day. ever since I got introduced to the tarot, I began to really embrace the "fool" archetype -- however, I would translate it as naive rather than fool; those were different times then. anyway, I think it's best to be a strong believer in everything and learn from mistakes than to be a strong doubter in everything, make no mistsakes and accomplish nothing.
+
+[2]: [TODO: reference to carson's show with carlin and pryor]
+
+[3]: [TODO: reference to black jeaopardy]. while watching that clip, I realised that for hundqreds of years now (maybe more?), we have been teaching black people to feel bad whenever someone says something that could be perceived as racist. same argument for sexist, machismo, etc. -- it's all the same. I just hadn't realised this. raquel tried to teach me to feel bad about machismo every time that she saw it, and it worked kinda but I had fully given it up by the time I got to marcos' house. in spain, I would be offended (feeling bad) nearly 100% of the time I'm around others, and especially around the party-pijos. not helpful.
+
+[4]: OMG, I just figured out why I have been writing so much of this. it was to get to this idea! this is what I was looking for. I'll continue it out (so you see my thought process), and then I'll summarise at the end.
+
+[5]:
 
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
