@@ -7987,7 +7987,59 @@ eventually, we're going to have the most extreme of the extremes.
 
 [4]: OMG, I just figured out why I have been writing so much of this. it was to get to this idea! this is what I was looking for. I'll continue it out (so you see my thought process), and then I'll summarise at the end.
 
-[5]:
+### 2021-04-03 00:33 - weird feelings
+
+today I had this strange occurance where a bunch of things lined up. I asked jaron if he wanted to go outside. he did. we went out and started talking. jaron started to talk about this idea of the top of your mouth being connected to your brain (causing brain freze). often times I try to figure out what he's trying to say and get it said to kind of save time (it takes a while for him to say a short sentence sometimes). this time I felt more inclined to listen to him talk it out. while he was talking I was getting these ideas pop into my head about how the top of the mouth resonates with the throat similar to how the stomach resonates. it totally opened up a whole new thing for me and I saw the following:
+
+- 7 chakras:
+  - crown brings in air energy
+  - 5 in the body
+  - root brings in earth energy
+
+- normally the chakras I think of as transition zones layers are the physical resonators with both a right and left parts:
+  - pineal: hemispherez of the brain
+  - heart: right and left ventricle
+  - regenerative: right and left testicles/ovaries
+
+- the chakras which I considered primary layers are physical transition zones (vertical resonators):
+  - throat: (logoic/logic, structure) vertically connects pineal to the heart
+  - stomach: (concept, emotion) vertically connects regenerative to the heart
+
+- the remaining chakras which I considered primary layers not present in the body but are vortices that draw in energy:
+  - physical: (root) draws in *physical* energies
+  - desire: (crown) draws in *non-physical* energies
+
+I explained to jaron that the action of bringing in physical energies, begins in the regenerative (imagination) wmich is designed to transform physical energies thoughts/emotions received from other people, beneficial land structure energy (like temples, leylines, crystals, music, drugs, sickness, etc.) from making it up to your emotions and causing you to feel bad. the way you "see things" is like the preamp before it gets to your emotions. obviously sexual energy (creative energy, orgone, etc) enhances the vividness of the translation of this energy. the more vivid it is, the more that flows up into your emotions, which then makes it up to your heart.
+
+your heart is where you navigate time. it's the 7d, or the 4th layer (3d+4). this is where you have source-like perception and is ultimately the "vehicle" that you're driving. you can think of the heart as the vehicle, the throat as the gas-pedal and the stomach as the steering-wheel.
+
+the opposite is true in the upper 3.5 layers. they are mainly responsible for translating the non-physical realities into a physical thing. imagine now the throat. if we perceive the throat as a vertical resonator with the upper part (roof of the mouth) as connecting to the brain and the lower part (vocal chords) as connecting to the heart, then imagine when you receive ideas from non-physical and are translating them through your pinal gland. the pineal is a horizontal resonator having your brain's two hemispheres on either side. when the idea comes to you, your brain has been programmed by you and society and things to take the idea and determine if it's a polite thing to say, something taboo, or something that should be transformmed into the opposite (deception), and then after it bounces around between these two hemispheres for a bit, it finally ends up in the throat and comes out as sound or words.
+
+you can think of the pineal/brain as a preamp for the throat. it happens often that the inspired idea coming to the person will be let to bounce around in the brain for a while until it's lost its power before finally speaking it. others times the good idea will come and then after letting it bounce around for a while the thought feels so good that it comes out even more powerful than it was received. this amplification process is done automatically in the brain and directly corresponds to your perception, world-view, logic, the way you think things work, etc. most people greatly reduce the power of the things that they wish to say by thinking about them in resistant ways before letting the idea make it down to the vocal chords.
+
+---
+
+as I was explaining this to jaron, I realiserd that the physical pineal/brain is what I called the relational or "christ-consciousness" layer. it's designed to be a super amplifier of everything received. it'll make the good stuff better and the bad stuff worse. the example I used for him was a breeding program. you want a way to be able to make the strong stronger mohe rapidly, and to eliminate the weak more rapidly. therefore if the weak parts are amplified so that they destroy theirselves rapidly and the strong parts are also amplified so that they continue get stronger and stronger, what you will end up with, after some time, is the brain will naturally optimise itself (through natural selection), to become the strongest form. things that feel bad consume a lot of energy in the brain (that's why we say we're emotionally *drained*), and things that feel good summon more energy which will create reality faster.
+
+therefore, when the braething (throat) exercises are performed, they are essentially charging up the pineal so that it receives more non-physical energy, and so therefore reality will get created faster.
+
+likewise, when emotional (stomach) exercises are performed, they will make you feel better and are essentially charging up the regenerative organ so that it receives more physical energy (thoughts/feelings/emotions etc,) from the environment. it makes life muchr more vivid and tangible.
+
+both are good obviously, but they are highly coupled devices. notice that if you do a whole bunch of stomach exercises and amp up the vividness of reality becoming much more receptive to the environmental stimulus (like becoming autistic), then everything in your environment will affect you more, until you construct a new way to see (perceive) those things in your imagination. being very sensitive, someone around you who is very sad can affect you quite a bit if you do not have a viable way to perceive that person's sadness. you will no longer see their sadness. you will eventually see them as whole (this is what abraham said jesus would do. keyword: "dripping your illness") and their sickness will no longer be perceivable to you.
+
+I *would* do this, cept my imagination is turned off, so I don't have the power of my imagination to trasnform my perception. all of that goes directly into my stomach or emotions, and I literally feel what others feel (cause I have no way to transform it). the energy passes through my heart and then up to my throat and finally my pineal/brain where I have conshtructed quite an effective [method of perceiving reality](!god-mode). because I have no way to filter it out, I instead have to program myself directly. the feelings that others feel can only be felt by me if I am resonating similarly to the way they are resonating, therefore, my brain must continue to find thoughts (perceptions) which produce the emotions that I want to feel, not the way they feel.
+
+---
+
+so, I explained all of this to jaron and I don't regret it at all, but I realised that I gave nosebook some pretty powerful knowledge. I believe right now, the only real tool in their toolbox they have is the physical sensation layer (regenative) and they can regulate/control (or purchase) a more tangible physical experience. when you have a more tangible physical experience then it adds a lot more energy into the equation and realitystarts to be created faster. however, especially in the case of my example, the last thing they want is for my reality to become more vivid, because they'd lose control. it's likely the reason why I find it so difficult to pee. anyway, it seems fairly obvious to me that they're likely regulating people sexually, which is their imagination.
+
+however, now after I figured out that the stomach and throat are vertical resonators, they should be able to use this knowlege now to really influence the reality creation part in people's lives. if you suddenly start to feel very bad about things that used to feel good to you, it's because you're perceiving them in a way that no longer feels good. the pineal/brain is directly connected to the regenative (imagination), and so the way you perceive things will definitely influence your reality creation process.
+
+in hindsight, it appears I may have accidentally forced an evolution in desire. this happens when something that used to feel good no longer does. the way things worked out, however, I can say that it all felt good to me so I'm sure it will bring out "christ-consciousness" in us.
+
+remember, like me, if you feel things, it doesn't matter where they come from, you can only feel the things that you are resonant with. sure, it's true that a sting sitting beside another vibrating string will soon resonate similarly to the string it's beside, if it's not resonating the way it wants to resonate. so, yes, if nosebook were to put certain feelints into you that didn't feel good, you could eventually resonate similarly to those frequencies which don't feel good (my usual situation when I wake up), but after a brief amount of time of being awake, I'm vibrating the way I want to vibrate now. it is possible to even use that energy to your advantage, too. everyone is able to transform any own emotion they may feel (artificially or originating from the environment) with their perception (pineal/brain).
+
+I wonder what they'll do with the information. it does seem like this would be a more effective method of controlling the good-feeling conditions of the planet to ensure I don't get connected... we'll see though.
 
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
