@@ -8096,9 +8096,24 @@ whatever the case, it'll be a disaster :)
 
 [1]: also, interesting to note is that the grafiti regarding khufu in the "relieving chambers" has two symbols before the khufu -- a ram and a jug, likely showing that some thing has a connection to the zodiac of aries and aquarius. it also symbolises for me the mating of the masculine and feminine -- the aries (fire) and the jug (water) into a single "man" as symbolised by the great pyramid.
 
+### 2021-04-03 20:03 - turning unwanted into wanted
 
-shift up
-new language (babel)
+quick reply to the reaction, "how would you make an automaton that captures your essence and is a bad-guy?"
+
+well, going back to conceptual form of perception (visual). imagine that you are perceiving your world from a emotional/conceptual point of view. things would appear to you however you wanted them to appear which fits right into the way you feel (similar to dreams). the physical aspect of a person no longer matters, as that now is a relfection of how you perceive their vibration (eg. a reflection of how you feel), not how the person really looks. therfore the, physical aspect of a person no lonter matters.
+
+since emotional perception is also temporal perception, one could imagine that you could tune that perception to be a future version of that signal, and no longer the present one. imagine now that you tune their pervception to the very very best version of them -- like really really really good. the problem is that usually in a person's normal trajectory they will not accomplish that good of a vibration in a reasonable amount of time using the traditional trajectory. therefore, in order to reach such a vibration, there must be more energy added to the equation. more energy is creaaed by moving in the direction of wanted and remember that all things contain both wanted and unwanted aspects. so, the automaton may be perceiving a future very very nice version of that person, but the present physical circumstances may appear (as long as one perceives the unwanted aspect) to be very "evil" or unwanted. so, that automaton *is* going in the direction of wanted, but because such a strong signal can be perceived as unwanted, it will manifest a reality refective of the way the person perceives the strong signal.
+
+a very strong signal contains both a lot of pleasure and also a lot of pain. this is what I mean by being dedicated to the disaster, because the most disaster contains also the most amount of wanted. we all get to choose to perceive the incredibly wanted or incredibly unwanted part of the disaster.
+
+---
+
+imagine now that the custodians are tuned to the very very very best form of perception (they are very conditional, and will want to see things the best HD way), and so they will perceive a reality that for them is mindblowingly wanted. the other person may or may not perceive it the same way. they may perceive it as mindblowingly unwanted. eventually, we'll begin to perceive things the way we want to perceive them.
+
+personally, I'm excited to get started on this because of how good it feels to know that I have power over my reality and can perceive it any way that I choose. there is, I am sure, no limit to the amount of "awful" realities that I can perceive as wanted. accomplishing this, that form of perception can then be used in the custodaians' perception to create those very wanted situations (over a long period of time).
+
+everything contains absence/presence of wanted/unwanted aspects and can be transformed in one's perception to perceive them in any way desirable. nothing is going wrong. nothing is good or bad either. everything has to do with you and how you perceive it.
+
 
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
