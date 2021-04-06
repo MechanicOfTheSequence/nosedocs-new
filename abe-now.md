@@ -2139,3 +2139,59 @@ this is 5d tech, not 4d, so it extends far beyond the imagination. we're not tra
 this creates new challenges for example, because imagine a child could be communicating to the parent sometihng of pure love, but because the parent isn't on that frequency they simply won't see it, or they'll only preceive the minute resistant details. nosebook will see frequencies, not images, so they'll translate all of these in a manner that is reflective of how they feel. in this sense, everything you perceive in reflection to yourself is "private" to you and anyone else that ws included in the vibration. it additionally creates the challenge that newborns will be able to communicate with us in full detail nearly from the moment they are born. it'll be our difficulty to get to the frequency to be able to actually perceive their complicated knowledge of the universe from a frequency compatible with theirs (before they adapt to our frequency too much).
 
 very cool :) nothing will be secret anymore, cept the things you perceive only in relation to yourself. it's going to be the ultimate ego trip! I can't wait to get started. I've given this subject a lot of thought...
+
+### 2021-04-06 01:32 - (2021-02-13 p1)
+
+#### (26:52) - lack of ready to start
+
+they're talking about how this kind of lethargy relates to split energy. I related to everything they said leading up to the split energy bit. the part about beingmotivated by others and the part about not knowing what I want to do. in fact, for me the part about not knowing what I want to do is more of the thing than anything.
+
+if I think about doing something like programming or something, it doesn't really feel very much like something I want to do. then, I think about something else. I don't want to do that either. oh, now I hear jaron upstairs. sometimes I want to go up, and other times I don't when I want to go up to see him, I do. until I have something that I want to do, I just sort of sit there.
+
+my "problem" isn't so much lack of ready to start, but instead more like just not wanting to do things, so I don't do them. I used to be very motivated and stuff so I thought it was a bad thing to just sit around when nothing is interesting to me. I guess what I want to say is: if nothing feels like something you want to do, don't worry about it. it doesn't make you lazy to wait until you're inspired to do something.
+
+---
+
+it could be the case that I do actually have split energy. I imagine that if something originally felt really good to me (like programming), but I don't really feel like doing it so much right now, then it's fine. if that split energy is coming from nosebook, then it doesn't matter because I'm still resonant with it even if they are the source of the split energy.
+
+weird reaction: what if there's something that I want to do, but can't find the motivation to do? for me, this has to do with feeling. if I think about programming a successful project, then for me it feels like flying. it feels like everything is going smoothely. if I don't feel like that or have the ability to feel like that, then it's no use trying. I won't be able to get there.
+
+there is some merit in just forcing something to get the flow going. like, if you watch a freestyler or a break dancer, they jsut have to get their mouth or body moving for it to start flowing sometimes, but somewhere deep down they know they'll be able to pull through and something good will come from it. at least that's the case for me. if that can't be found, I simply wouldn't try. I would just wait until I actually wanted to do it so badly that I actually did it. I would do that sometimes too, force myself not to work on something so that I don't get burned out on it. if someone tells you you can't do something you want to do, it increases desire. you can force yourself to not work on something you want to work on and it could be effective in building desire.
+
+likewise, think about it from the future: imagine you're in the future looking back on the project and the jounrey it took to get the finshed thing. imagine the road. however the road feels: like you were flying, like you were slogging through the difficult bits, or like beating your head on a wall, find that feeling now so the path opens. as long as you can feel like that, you're on the road to the finished product.
+
+#### (28:48) - a new perspective on focus
+
+as they were talking about focus, they said "focus is looking at something" .. and I was thinking, well, just cause I point my camera *at* something doesn't mean I'm focused on it. focus is a verb implying the action of making the thing I'm looking at become clearer.
+
+everything I look at, I'm constantly trying to figure out how it works, disecting it so that I understand it clearer. fro a lont time it REALLY BOTHERED ME (a lot) that everything in my eyesight is blurry. I hate looking at stuff and not being able to focus and see it clearly.
+
+I did however, find that I didn't need to see something clearly to focus on it. I can look, not directly at a person, yet I'm still focused on them. the more I get the person I'm not looking at into my focus, the more I (don't know the right word) -- I behold them. I understand them. I feel them. it turns out that focus in that context is to understand something. I must understand all of the things that I care about. the things I care about are the things I'm focused on.
+
+#### (55:24) - law of gravity
+
+really weird, they said something like, "you accept the law of gravity as real" and I went off into a weird sequence. last night I was listening to the snake-bros rant for quite a while about how people just assume there is a law of gravity, when there isn't really one -- so maybe I was abit primed for this...
+
+anyway, when they said that about the law of gravity, this picture popped into my head: @[youtube](https://youtu.be/t-_VPRCtiUg?t=366). in the video there derek is explaining that pendulum clocks begin to synchronise theirselves when they share a common vibrating medium.
+
+a while back I explained that I think we need to look into the idea that it's the vibration of things which is the source of gravity. atoms vibrate similarly to other atoms and so therefore they should attrct eachother. the more of them there are (mass), the more attractive they become.
+
+if we consider that each of those metronomes are an atom (or collections of atoms), then in order for each of them to to attract the other one, what they need is some sort of shared medium in which vibrations of one thing can propagate to another thing. this may be why the aether was killed in favour of the thery of relativity. ether theories ([defined by wikipedia](https://en.wikipedia.org/wiki/Aether_theories)) "propose the existence of a medium, a space-filling substance or field, thought to be necessary as a transmission medium for the propagation of electromagnetic or *gravitational forces*."
+
+all you need now for a law of gravity ia, a medium capable of propagating vibration and the understanding that all matter vibrates :)
+
+#### (59:28) - you're never there
+
+I was listening to this one, and there were a few key phrases that jumped out at me. they were, "who stopped drinking to keep our family together" and "who struggles with being nurturing and attentive"... man, I didn't really want to write this but ... oh well, here I am... I question his desire to be there in the first place. those statements sound to me like expectations that the woman writing in, is putting on him. it sounds to me like she gave him an ultimatum about stopping to drink or breaking up. he probably stopped regrettingly because he didn't feel like he had another choice, guilt, "it's the right thing to do", etc.
+
+maybe I'm reading really far into this here, but it really sounds to me like she is really trying force a cohesive family unit to conform to her expectations. this sounds to be all of expectations going way too far. if I had to imagine, I imagine that she probably expected (for years) that he wouldn't be able to stop his drinking, then finally it became too much, she gave him the ultimatum, then expected him to once again conform to her expectations. now she expects him to not be nurturing and attentive.
+
+the poor guy sounds depressed. he probably had a lot of illusion earlier on in life only to find out that he has to conform to his boss's expectations, his daughter's expections, his wife's etc. I understand exactly how this feels. I too was a very heavy drinker when raquel gave me a similar ultimatum. I didn't quit drinking though. I knew raquel would leave me because I didn't wish to change my habit for her. we were in the point of our relationship wehre we were each telling eachother what to do to cover up our own dissatisfaction.
+
+dissatisfaction comes when not going toward what's wanted. the woman also sounds quite dissatisfied, and she's probably expecting her dissatisfied husband to do things that she thinks will make her feel satisfaction. yet, you cannot, from a place of dissatisfaction, arrive to a reality of satisfaction. no person, no matter how much they try can ever make a dissatisfied person satisfied. no matter how hard he tries to make her feel satisfied, it'll never work. he simply cannot "buck the momentum" of her dissatisfaction. even if he were to become nurturing and attentive, there would be another thing manifesting in her reality reflective of her dissatisfaction.
+
+I feel strange(?) writng this, but I believe I am, because a lot of people are experiencing something similar. I expected her to leave me (even though I really didn't want her to go) because I really didn't want to change the thing that made me feel good (drinking) just because she told me to -- or be around a dissatisfied person. she left, and I was still dissatisfied drinker (it had nothing to do with her). I kept drinking to numb the depression, but the depression got worse. at that time I truely had no ready to start. everthing falling to pieces. I eventually had to find a way to feel the way I wanted to feel. I couldn't make anyone else responsible for the way I feel. the way I feel is my sole responsibility. I expect things of myself, not of others. soon those began to become only positive expectations for myself.
+
+---
+
+I still try not to expect things of others too much but I'll be honest, tonight while watching stars, it was silent for the first time in a long time. I genuinely missed mr. motor's noise. I had come to expect to hear his motor roar when I got into sync with the star, that it was weird not to hear it. that's about the most I expect of people now. I realised that I push mr. motor's buttons and expect him to react because I enjoy the extra energy he provides. it's just more energy. so husband if you're listening... cheers, and good luck :)
