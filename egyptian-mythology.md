@@ -33,6 +33,8 @@
 #### khnum
 
 - god associated with sirius (the rising of the nile)
+- said to be the source of the nile
+  - an aquarian god, you may say
 - consorts are:
   - satis (sirius b)
   - hathor (venus)
@@ -40,6 +42,7 @@
   - anuket (which is also his daughter with satis)
 - associated with creating other gods
 - ram (aries) headed
+- green skinned
 
 #### vulcan (ptah)
 
@@ -175,3 +178,67 @@ continuing on with this sym
 unrlated to this, but it's quite possible that hephaestos is the creative side of vulcan (5th ray) and typhon is the destructive side of vulcan. the opposite of vulcan will be saturn (3rd ray) and his ordered/logical side is cronos, and his opposite "destructive" emotional personification would be something similar to zeus.
 
 it's kind of an interesting thing to think about the idea of taking a destructive god like uranus and separating him out into various aspects, where they can fight with each other (saturn and jupiter).
+
+### elephantine / upper egyptian triad as a symbol of mother and daughter
+
+the strange thing is that this triad is two females and one male. usually it's two males and one female. also of interest is the concept that he is said to be the divine potter, making children in his image. his two consorts are sirius (satis) which is the mother goddess and they have a child anuket, which is very symbolic of venus.
+
+in essence, I see khnum as the kind of bringer-togeher of the mother and the daughter. also, it's interesting that this potter guy who fashions childeren of clay (adam was said to be made of clay/dust) and fashioned in the image of YHVH as well. I propose that the upper (bowling-ball hat) egypt was in power during the time of the divine feminine and this is why this triad was worahipped in aswan/elephantine.
+
+there is a connection here with the frog. the female version of khnum is heket/heqet which is depicted as a frog. the frog seems to have good symbolism as it it is amphibian, being able to breath water and air, walking on the earth. I guess the only thing a frog would need for it to embody all of the elements, would be to be connected to fire -- masculine or maybe able hto breathe fire (reminds me of mario for some reason). tadpoles also look a lot like sperms
+
+### tree of life symbolism in egypt
+
+strange synchronicity today I was watching a video on the tree of life @[youtube](https://youtu.be/Ven22mNSdPc?t=1458), and I could see that extending down from the crown, I noticed two masculine paths of 4: one is down through binah and the other through hokmhah. the feminine path comes up from the root there and extends up to the hidden unification in daat. I thought that this was a bit weird because one would imagine the vertical base to be symbolic of the penis and the surrounding part to appear more like the vagina. when we assume that the crown is shared for each left and right pairs of four, we get a similar configuration as the chakras. the heart joins the top 3 with the bottom 3. when perceved as two aspects of *4*, then the top and bottom are in infinite cycles with eachother. the next thing to notice here is that because the middle one (daat) is missing in the original design, then it can be seen that this one only happens when the masculine and feminine principals are combined.
+
+the whole thing reaks of having dual symbolism. the bottom-most one (malkuth) is said to represent kingship, and as the root of the tree, I can only assume that, mixing the nile with the tree of life, to be khnum (the source of the nile).
+
+however, the analogy goes exactly in reverse if you awe to look at this with physical eyes, and see the `daat -> malkuth` as the penis or a tesla coil. at the base is the primary coil, and the tip (daat) is the *receiver*. the "source" of the nile is the receiver, not the source. so, thst must mean that we must now invert the image to see the dual of this tree.
+
+I want to relate this to the nile for some reason, because it gives me a new configuration. if I make the top (keter) gizah, and the bottom (malkuth) elephantine, then I end up with 3 + 5 + 3 = 11. the balance of 5 and 6. I believe that the body doesn't contain all of the 7 chakras. the crown and the root are "virtual" chakras, or like vortices which draw energy out of the earth (root) or the sky (crown). so here's the thing: if we perceive this setup as similar to the tesla coil, the root would be the ground (earth) connection, and the crown as the air connection to the receiver (usually a spherical or torus-shaped hollow body), we end up with a connection that is likely mirrored in the internals of the great pyramid which are not shown.
+
+
+
+if we imagine the nile as a spinal column or the chakras, the dividing
+
+
+### nile symbol of for the human energy system
+
+using for reference: @[youtube](https://youtu.be/Ven22mNSdPc?t=1458)
+
+not totally sure what I'm seeing here. my initial ideas are:
+
+- root: invisible/khnum (the source of the nile)
+  - M0: malkuth (kingship)
+  - F1: keter (crown)
+  - F2: keter (crown)
+- regenetive: (elephantine/aswan) will be
+  - F0: jesod (foundation)
+  - M1: binah (understanding)
+  - M2: chochmah (wisdom)
+- emotional: (luxor?)
+  - F0: tiferet (beauty)
+  - M1: gevurah (discipline)
+  - M2: chesed (kindness)
+- heart: (dashur)
+  - F0: daat (understanding)
+  - M1: hod (glory)
+  - M2: nezach (victory)
+- throat: (saqqara)
+  - F0:
+- pineal (giza)
+- crown: invisible (spreading out toward alexandria & port said)
+
+NOTE: the above is incomplete. when I started writing it I had the image of a duality where there were three parts of 4 shown in the tree of life (left, right, centre), then making these the triple tau. the thing is now, I don't see it the same way I did so I'm unable to complete the explanation. it was important in the picture to note that there were 3 sets of four, the fourth one is a virtual one relating to the five going up the centre from kether to malkuth. this became the balance between the outer 6 (3+3) and the inner 5. 6 & 5 balance is heart thinking. I also want to mention that I advanced the meaning of F0, F1, M0 & M1 in @[noseblog](2021-04-07 21:14). I see that part clearly now so I may come back to revisit this.
+
+I think when the 4th is discovered, then the crown becomes virtual, and the root becomes virtual as well. the 5 chskras remaining are all fully used now, so everything shifts up (just like in vitruvian man):
+
+- kether: pineal/brain
+- daat: throat/structure/logic
+- tiphereth: heart/source
+- jesod: emotions
+- malkuth: imagination
+
+it's worth also noting here that if we apply this back to the nile setup, let's assume that giza will be the top and elephantine is the bottom. there is considerable evidence that this is the case because if you look at the zodiac, if the end of taurus is the top, then the beginning of libra will be the bottom. libra was always associated with elephants. I consider elephantine island to taurus mountain to run the full extent of the spine in this enlightened, all 5 chakras (not 7) enabled man. I would imagine that the macro is simulated in the micro, meaning that there are likely chambers corresponding to these in the great pyramid.
+
+as I was looking at the vitruvian man pyramid configuration (@[youtube](https://youtu.be/yPdnpBSLoJw?t=194)), I keep wondering why there wouldn't be something located at ground level. they went to such extraordinary effort to get the floor tiles just right (ground level -- which is funny because jesod means "foundation"), that either the floor tiles (foundation) is the important part of that layer, or there is something located in the very centre at the same level as the floor and the socket. also it just seems so much to me like there should be a second "kings chamber" for the other side. the whole passage is aligned to the left of the pyramid's centre, the "trial passages" have a second indentaiton on the right side. correspondingly, the scan pyramids project detected a void aroound the area of the right pectoral on the vitruvian man is. additionally, I think this corresponds to the bent pyramid, while the "king's chamber" corresponds to the red pyramid. looking at the plan for dashur, it may be possible that there were actually 4 installations there, not only the red and bent pyramids.
