@@ -127,6 +127,53 @@ the stone type may have something to do with it as well, as these niches seem to
 ### eagle defeating serpent symbolism
 
 - @[youtube](https://www.youtube.com/watch?v=ZcvLYfKfDK4): eagle holding smake in beak and talons
+- @[youtube](https://www.youtube.com/watch?v=_8DjZYzoVDs): eagle & serpent battling origins in feud between enki and enlil
+
+### cataclysm in leo stopped construction
+
+in this temple, one can see a lot of lion and elephant symbolism. in the procession of the equinox, lion (leo) comes after elephant (libra), and is superior. this can clearly be seen with the image of the lion subduing the elephant: @[youtube](https://youtu.be/MPmu4G0ozOQ?t=175).
+
+interesting to note as well that the symbol of this temple is all about females and their energy. following my model of the right half of the zodiac (libra->lion->cow) is feminine, this temple is clearly at the peak of the hight of the feminine power.
+
+something happens though, because there are places in the temple which are clerly unfinished: @[youtube](https://youtu.be/M1RWh6CKjlk?t=905). this must correspond with all of the other places around the world that it appears that some of the largest stones were being shaped when work abruptly stops. this is clearly happening in the time of leo, so some 12kya -- which corresponds directly to the YD boundary and platos account of the sinking of atlantis. this konark sun temple must have been contemparary with the atlantians.
+
+it's also worth noting that in india quite a lot of the subtractive process of creating a temple by removing rock seems to be associated with the elephant (libra).
+
+another example of unfinished work: @[youtube](https://youtu.be/2MvSHMF7Zr4?t=811)
+
+either way, india seems to contain a lot of imagery of maidens (virgo), elephants (libra), and serpents/naga (scorpio). clearly india was in its high point during this quadrant roughly 18-12kya (the 6ky leading up to ghe YD boudary). this type of rock structure seems to involve the removal of rock, like the kailasa caves, the domed caves (seen in BAM), etc. similar caves exist in china as well, such as with the longyou caves. I estimate that this was happening at roughly the same time period as the peruvian "hanan pacha" era. the hanan pacha could be of teh previous era because the differences between the two are astounding. some of the peruvisn hanan pacha appears to be random and haphazard, whereas the indian cavves and temples built by removing rock appear to have incredible precision and accuracy to them. they remind me most of the "kafre" statue in egypt.
+
+there must have also been a resurgance in indian stonework because the next style that appears is a bunch of sandstone blocks stacked up, then the stone is remover to ornately decorate the outer surface. this is similar but considerably easier to do than the usually diorite or basalt carvings found in the older temples.
+
+another example of unfinished stone excavation: @[youtube](https://youtu.be/WVZ-FAVnbf8?t=770). this is different than the above, because like the longyou caves and other places, the rough parallel toolmarks can be seen where the parts of the stone were not yet smoothed and designed. the other carvings (of the elephant and cow) are quite weathered, so probably quite old. same for the above exatmple, but instead on blocks of sandstone.
+
+unfinished work in the osirion: @[youtube](https://youtu.be/DUYj5fN1h-E?t=5830)
+
+### cow, elephant, and lion symbols together
+
+I have noticed in india there are many examples where I see cow, elephant, and lion symbols. there is also no end to images of young women as well. these are all on the same side of the zodiac, and so therefore if we consider that it starts in libra, and ends in taurus, with the peak during the cow, it may be possible that the original temples in india were built with rituals and symbols to show a sort of progression or process of unfoldment of the feminine side in the human.
+
+it's an interesting idea because india has many very strange depictions of women wearing high-heels, using mirrors, handbags, etc. all sorts of accessories usually associated with vanity. it may be a point along the journey to discover that the outer is a reflection of how one feels. I don't know how to find this out, but other places around the world seem very masculine, yet india seems to have a very strong female presence in its symbols, much more than america for exmple. seems that the goddess trend started east of mosopotamia and gradually got more masculine as dominant civilisation moved westward.
+
+I don't really know but it may be interesting if there are twins (gemini), crab/lobster or whatever water animal is for the indians in these temples. though I don't know that the
+
+### the movement of energetic side of the earth
+
+when I say this, I'm referring to the part of the planet which has more energy flowing into it and is therefore more influential during different eras of human history. it seems to correspond to the procession of the equinoxes. I suspect that it may be correlated to our sun's alignment with sirius.
+
+### the orientation of our sun in relation to sirius
+
+I can see two ways to look at this. I have been trying to figure out randall's view of our solar system as perceied from a larger inner-galactic star cluster orbit. the orbits from his description sound to me like they're not terribly elongated. therefore, the first way I imagine our sun as orbiting sirius in a very similar way that our planet orbits the sun.
+
+imagine for a moment that our sun has a  the processsion of the equinox is the pole of the earth tilted toward sirius. in the same way that when the earth is tilted toward the sun (june in northern hemisphere), we experience summer. likewise, it may be the same way for our tilt toward sirius. the sirian equinoxes would correspnd to the time when the sun's tolt is most in alignment with the sirian sun's alignment. the pole of the earth is tilted so we do not experience a full connection to the sun during the equinex here on earth, but we do not know if our sun has the same alignment as sirius or not. what I wanted to get at here is that during the procession of the equinoxes, one part of the sun will tilt more toward sirius in the same way our earth tilts during one part of the year more toward the sun.
+
+I think sirius b potentially has quite a few stars in orbit with it, making it more like a star cluster. there are a whole bunch of stars in the [ursa major moving group](https://en.wikipedia.org/wiki/Ursa_Major_Moving_Group), which all share the same velocity. however scientists have ruled out that sirius is a member of this group because sirius (according to their standard model of star formation) is younger than the other stars in the group, and so therefore its identical trajectory is only pure coincidence. I mean, obviously it is. the stadard model of star formation is very clearly proven to be incorrect by sky scholar: @[youtube](https://www.youtube.com/watch?v=H4h4rfGDxkk).
+
+I don't have enough information to look into that, but intuitively, I imagine star clusters being more like a bunch of resonating stars that orbit each other in a "chaotic" manner. it'll likely be a while before we figure out our vibrational similarity to these other stars. right now we just say they emit x-rays and so does our sun, but we don't really know how harmonic those x-ray signatures are of each other.
+
+intuitively, I believe our sun has more of highly elongated orbit with sirius b, much closer to how a comet appears to us. when I think of a comet going around our sun, it never is 100% of the time below the ecliptic and the rest of the time above it. there seems to be a time when it crosses the ecliptic. for any elliptical orbit, I would guess (not sure on the maths) that our sun would spend *roughly* 50% of the time below the sirian ecliptic and the rest above. I don't know what configuration our sun would be in, but intuitively, I would imagine that we are tidally locked with sirius b, like our moon is with us (likely in a harmonic, which may account for the "great year" symbolism). therfore, if this is the case (I can't find any data on sorian polar orientation in relation to ours), then it's easy to see that some percent of the time we will be above the sirian ecliptic and the rest of the time below it.
+
+if we take the indian yuga to be a good place to start for the eliptical orbit, we need an orbit where the whole thing is divisible by 10. we'll spend 4 of it pretty close to sirius, 3 a little further, 2 much further, and 1 of it really far away. I imagine sirius would be located at one of the points of the ellipse. I don't know how to calculate the width or the other point to make those numbers.
 
 ### lord shiva - supreme god
 
