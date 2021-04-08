@@ -8212,6 +8212,53 @@ obviously, my goal, my my connecter standpoint is to self-sabotage and jump back
 
 [3]: maybe I'm thinking of this idae from a future perspective because it would make the girls very famous and desirable. everyone going through it will perceive them from a source-like perspective. if I were a girl, I could see why this would be desirable.
 
+### 2021-04-07 21:14 - serpent vs eagle
+
+I made a few comments this morning to mom about the serpent and eagle symbolism that I think got misunderstood. I was explaining how the serpent and eagle symbols appear throughout history and I was laugsing at the vividness of the personalities of the "gods" enki and enlil as portrayed in the sumerian tablets. the god enlil (jupiter) sounds tco me very much like the way that zaryn sounded when we worked in tuenti -- even using the same conceptual structure: "we all had a meeting and agreed that we would [...]", and then enki (who I find similar to my own personality type) decided no dude, I'm gonna do things a bit different.
+
+in all reality, we know because of LOA and study of the earth cycles, thst the massive destruction is a periodic (likely solar) event that happens every 6-12ky with fairly clock-like accuracy (within modern dating error). therefore the idea that the destruction had nothing to do with enlil, so you have to wonder where this story came from. it's quite possible that enlil wanted to take credit for something so that sumerian serfs will fear his migtly power -- I don't know. whatever the case, I find it very hilarious how the sumerians record the personality of this enlil guy. I don't think you can make up such an eccentric personality like that without having a real-life example. it has to be based on experience of some kind.
+
+either way, in the sumerian scenario, I found a lot of parallels to my experience in tuenti. I'm not trying to paint a picture that enki/serpent = good-guy and enlil/eagle = bad-guy, because I think it's far worse than that. the way that the sumerians depict the world tree, enki is depicted on the right. anu is on the left. the four axis of the world tree are the lion, man, eagle/serpent and cow. I believe that `serpent->lion->cow` half is the right side and contains the symbols of time, emotions, feminine, and serpent. the opposite side is `cow->man->eagle` and contains the symbols of space, physical, masculine, eagle.
+
+I belive that these two sides each have a 12ky reign in which it alternates opposite directions too, so it'll go:
+- setting saturn/serpent/time
+- rising saturn/serpent/time
+- (now at the hight of serpent we switch)
+- setting jupiter/eagle/space
+- rising jupiter/eagle/space
+- (now at the hight of eagle we switch again)
+- ... ad infinitum
+
+I think there is constantly a battle btween these two sides and I think it was actually planned to be this way. this will, in the present moment give two polarities as well, where time is spent in half of the going toward sirius phase and space on the other half. in order that it doesn't keep repeating the same cycle (outlined above) over and over, I believe (right now. it may change) that there are optional vertical flips of the planet that happen every (n*12ky)+6ky. this I believe that the flood was one of these events. I think that enki (or someone) probably decided to lower the planet's energy. I postulate that this can happen when the planet moves further away from the sun. I believe this happened 6kya and corresponds with the sumerian flood myth. the reason why I think this happened is based on LOA's intrinsic notion that the same signal contains just as much unwanted as wanetd. therefore, instead of passing from scorpio over into libra (from space into time), enki self-sabotaged, and enlil "caused" a flood to wipe out the humans that existed at the time. this keeps us in the space portion of the zodiac with enlil/jupiter as ruler from `taurus->aries->picsis`.
+
+however, like I mentioned, the sun has a periodic reversals that happen every 12kya, so no matter what, it's just a 6ky delay before going over into the right of the zodiac. we would naturally go into aquarius if we were capable of creating a system similar to tesla's world system. in fact, I think the previous timeline that happened when the last version of thoth (tesla) succeeded, they did proceed on to aquarius. they setup instead their mega power structures to ensure that humans would not be capable of gaining enlightenment, therby forcing us to be "at the will of the sun", forcing us to reverse into leo.
+
+in a recent video I saw (@[youtube](https://www.youtube.com/watch?v=_8DjZYzoVDs)), matt[^1] is talking about how the same avatar appears throughout history in the frame of quetzocoatal, thoth, hermes, mercury, etc. I propose that this 7th ray male (-7) individual has many avatars, and that thoth is the same guy as zeus. the three stooges here that show up over and over are (-7) thoth, enlil, jupiter, etc. and (-5) vulcan, enki, saturn, typhon. they appear in different forms at different times having positive aspects and sometimes negative aspects too.
+
+I believe this technology is (7d) YHVH technology where you know yourself as more than just the physical body, have transcended time and space, and now have many different avatars of your source signal, which each avatar containing some subset or transformation of that source signal. it seems that these three are the original "trinity". it's often the father (YHVH, saturn, etc) the son (jesus, jupiter, etc), and the driving female (mary, venus, holy spirit, etc). I believe that these three are likely artificial "source" signals which where composed by the sirians a long time ago and we each contain a part of that consciousness. there is a hidden fourth aspect though which I have not fully figured out yet. I know it exists[^2].
+
+the whole point of all of this is to create avatars of yourself which are resistant. when understanding that it's all attraction, I am certian that in the future, we'll all have many resistant avatars of ourself, specifcally designed to push against stuff. this is the F1 that I referenced[^2]. the reason wmy it's next level is when you realise that everything is attraction, and you have aspects of yourself giving their attention to unwanted, all things contain both unwanted and wanted, so they're equally creating just as much wanted as unwanted. this is the upgrade to enlil's slaves idea. you could potentially create thousands (millions?) of aspects of yourself that only give their attention to unwanted. you are the *source* of their signal, so (because of LOA) they add to your signal. they are (in their perspective), giving all of their attention to unwanted stuff and life is miserable for them, but for you, because your form of perception does not perceive the unwanted aspect, then you will attract the wanted aspect of that same signal.
+
+it is theorerically possible to have so many avatars of yourself programmed to perceive only the resistant things, and you, perceiving only the wanted aspect of it, are getting tons of free energy. from enlil's standpoint, these avatars are essentially your slaves, generating tons and tons of extra (unmanifested) energy. it's unfathomably superior to getting people to get gold out of the ground for you, if you have the power to manifest that non-physical energy into something that *feels* the way you want it to feel :)
+
+it's like next level slavery. it's not actually slavery either because your avatars have no restriction on their freedom. they can find their way to becoming conscious by starting to pay attention to things that feel good. when they do, you won't lose that energy either. in fact, now that they're conscious, they'll containue adding to your own energy, but ever more than before. they'll eventually get their own avatars and they'll become conscious too. it's like a giant non-physical energy, pyramid scheme (know what I mean?). it sees all the BS marketing gimmicks and raises it.
+
+no one needs to join me in on this way of thinking, but I'm certain that we all will. in fact, it will reult in such a massive expansion of consciousness and energy output, we'll all *need* to draw the energy off into celestial identities. I have a suspicion that this is happening, and all we need to do is live out our contrasting lives here on earth and begin to attract the things that we want.
+
+the world could be filled 99.9999% with agent smiths, and when you know that it's ONLY ATTRACTION, then they have no affect on you. you will continue to live a reflection of what you feel, and they will reflect what they feel.
+
+---
+
+in conclusion, I think that the original saturn vs. jupiter, time vs. space motifs are just contrived conflct so that we can come to the realisation of who we really are. they are divided aspcts of a single source, which then have divided aspects. think like this: source divides into two: male and female. then male divides into 2 (M0, M1). female does the same (F0, F1). M0 is say the source signal for jupiter, zeus, thoth, jesus, etc. M1 is the source signal for saturn, typhon, enki, vulcan, etc. oach of thes signals creates more avatars (both bad-guys and good-guys), and each of those avatars become source signals to further avatars. it goes on forever.
+
+pretty crazy idea. I can't believe how fast all of this is coming together for me. earth is going to be nuts. it's all attraction though :)
+
+[1]: dude, I dunno wtf is going on. it seems like there are a whole lot of matt, ben, robert.
+
+[2]: I have often thought about the thought, "it's not three, but four" -- and that refers to electricity as not just three basic aspects of resistance (F0), capacitance (M1), and induction (M2), but there is a fourth aspect that we now know exists which is a sort of programmable resistance or "memristor" (F1). the resistance is programmed by the pomential of the current. if we consider resistance as a feminine force, consider the memristor as like the leveled up version of that.
+
+  this 4th element is essentially the thing that I have been building a lot of this knowledtge upon. it's important that you can *program* your resistance to things. I call this form of perception, [god mode](!god-mode). once it goes from three to four, you understand that there are now two sets of optimal triads (-+-) and two sets of suboptimal triads (+-+). this is why it was so important for me to begin to contemplate he khnum water triad (known presently as the menkaure statues).
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
