@@ -388,3 +388,60 @@ doug found rams horns in the bushes, then explains that solomon made a lie that 
 here doug talks about the clues to where the ark is, in a legend written by baroch (grandson of jeremiah) about mout moriah in sinai: @[youtube](https://youtu.be/yghxYTKTAdw?t=870).
 
 http://resonancescience.org/Shakespeare-Equatons
+
+# bardcast #12
+
+peter dawkins
+
+### twins
+
+@[youtube](https://youtu.be/3p65eldbGiQ?t=2464)
+
+zeus disguised as a swan and someone has twins (gemini). they are two brothers. one is immortal and the other is mortal. he goes on to say that the twins are actually two sets of twins, so two girls and two boys. two are immortal and tow are mortal. I find this interesting becauase I had been contemplating this concept of twins in the format of electromagnetism. I considered that there are two "masculine" sides of capacitance and inductance. and the feminine side of resistance. this creates the first triad. however, there is another "feminine" version of resistance which is more advanced than just normal resistance, which is a "memristor".
+
+I claim that resistance is the female principal because everything has resistance. there is not a physical object that by itself without extraordinary conditions is a superconductor. all things contain some amount of resistance. this is the mortal female. the same is true with capacitance. nearly everything (that I know of) has some amount of "stray capacitance" which is usually close to zero, but it does exist. capacitance is just the ability to store a charge. the charge doesn't stay forever as things always want to go back to its equilibrium state. this would be the mortal masculine.
+
+opposite the capacitance is induction. induction isn't a stored anything it's a physical structure relating to the geometry which energy flows through it (like a coil or whateever), and so by itself it does nothing. it needs to have energy flowing through it to "work". this is the immortal masculine. simply a structure which energy flows through it in a harmonious way, creating the desirable magnetism.
+
+opposite the feminine resistance is the "memristor". it is a programmable resistance. resistance, or the amount of energy it dissipates as it flows through it remains until it's programmed to be a different way. this is really good, analogus of control. resistors are kind of like funnels. they only allow so much current to flow through. from what I've heard of the technology, it requires a special built structure to allow it to be programmed (similar to a semiconductor), and it apparently is nearly to impossible to create large resistors. these are very tiny ones (like microns wide) and can only allow a very small amount of current to flow through them. they're mostly used for "fine tuning" of a resonating circuit. they can also be used to store extremely large amounts of data as well. when the resistance is programmed the structure itself physically changes. the immortal feminine[^1].
+
+I consider it the immortal feminine, because it takes some time to become conscious of this aspect. you don't want everything to be a short circuit (or nearly 0 resistance) because the vibrations would all be very high. you want to be able to control the speed of your vibration consciously, and to resist some things more than others. consider for exahple that every time you have a strong impulse (high voltage), you program these resistors. just imagine the common case of sex or trauma. these high voltages come as a result of interaction with an external sources of potential, therefore if every single of of these events were to program the resistors without any other thing, this would be bad. this is how children learn at first, but later on it becomes necessary to gain conscious control of this and redirect these signals through your own (consciously created) circuits of perception, instead of just letting all signals through to program at will. progwam your environment or be programmed by it.
+
+---
+
+personally, I don't consider myself to have the immortal masculine very well understood. I can sort of get the idea of forming a structure where the energy that flows through it flows through creating the magnetism vibrating at the frequency and shape that I want, but this is largely not very well understood by me. I know some men are quite good at this. I am certain however that I am quite good at the immortal female. I can easily program and reprogram my resistance so rapidly, that this allows me to nearly shapeshift in concept. I think that this is precisely the necessary thing to travese time at will. clearly the other is space.
+
+[1]: the analogue of this may be considered, if the person is considered to be a vibrational being, that these programmable resistors are programmed by high voltage events, so things like solar outbursts, sex, drugs, trauma, laughter, etc. -- any case of strong *emotion*. peter emphasises the utilisation of emotion to convey these ideas.
+
+
+### saturn the jester (and using humour as a method to bypass power structures)
+
+@[youtube](https://youtu.be/3p65eldbGiQ?t=1687)
+
+humour is the unique ability to take something taboo or resistant in nature and to reprogram that resistance so that it appears lighter and funnier, thereby adjussting the *emotion* associated with it. I explain that one naviages time with their emotion. this is a *very* saturian concept.0
+
+### 12th night & twins
+
+@[youtube](https://youtu.be/3p65eldbGiQ?t=2855)
+
+I don't know the play but peter is saying that the comedies are representing the whole initiatory path in the form of jest. he says that the mortal being is born (on christmas), and but it isn't until the end of 12th day, is the epiphany that the spiritual being is born.
+
+since weeks are 7 days, the 12 seems te tell me that this has something to do with some sort of procession of the soul through different days or "labours" before enlightenment.
+
+above the grave of shakespeare, are the gemini (twins). there are three symbols associted with them. the spade (adam & eve expelled from the garden cursed to toil the earth -- so, labour or effort), the hourglass (time, cycles, saturn)
+
+the way this relates to twins is that in my system, I outline 7 layers. the centre (4th, heart) being source and contains half of each. the bottom 3.5 are mortal/physical (earth) layers and the top 3.5 are immortal/non-physical (air) layers. it's interesting that there is always a constant conflict going on (even thoughh they're so intertwined) between time and space. these are seen as the difference between saturn (time) and jupiter (space). the hourglass (being a symbol of cycles/repetition) and the spade (as labour or effort) also fall into the same perspective. when you lift weights, do you do reps or heavy lifting?
+
+it's interesting that saturn (unfortuniately called poseidon) was prince of the earth, and jupiter over the air. so saturn (vulcan, -5), is given power over the earth (7), and jupiter (thoth, -7) who is very physical is given power over the air (5). air is always associated with emotions and earth with physical knowledge like science and stuff. so each wire given rulership over their opposite domain. they were both setup for failure from the beginning.
+
+it's also worth mentioning that I gave the example of division in @[noseblog](2021-04-07 21:14) which also mirrors exactly these twins as well. I said that one can think of the first division of the source signal was male and female. from there it divides again into the 4 parts here. in my system, there are 7 rays, which closely align with two sets. the first emanation is 1/2/4/7. this would be the archetype of thoth/zeus which is more phyiscally oriented. the second emination contains the parts 3/4/5/6. this would be the archetype of the emination of vulcan/saturn. you can simplify it (as I have done) by saying that 2/4/6 are transitions or wildcards. they can be a part of either side and can contain both. the two primary types being: 1/7 & 3/5 (both add to 8, btw)
+
+you will notice that I have listed the 4th ray twice, and that's because it's the centrepoint containing both physical and non-physical. the other layers 2 and 6 also contain both physical (you *feel* the relation between physical and non-physical things) and non-physical (your imagination does not take physical form, but it can). the goal here is to add up to 4 so that further divisions are possible. I think that this is designed so that everyone is incomplete (I'm not sure. I can't figure out whether to count 2 and 6 as two each or two halves. this was never clear to me). depending on how you add them, you can get different numbers.
+
+it's also worth noticing that the twins and saturn/satan are both mentioned in the book or revelation in nearly the same part as the "two witnesses" and the serpent of old with 7 heads and 10 crowns. I see this perhaps a bit differently than most. I consider myself to be two beings (at least!) sharing the same body. I do not believe the person is restricted to only one personality containing the same body. a person having multiple persality disorder can exhibit peculiar behaviour between personalities, changing allergies, eyesigsht, body structure, etc. normally however, these people are not usually conscious of the other personality. I've also heard of a similar thing with people who have had their corpus calosum damaged, fully separating the two hemispheres of the brain from eachother. I definitely have my entire right hemispehere turned off. I know it exists and is working because I *feel* it all the time. it also comes out in dream state quite often.
+
+when I had the brain haemorrhage, I clearly identified jesus entering my body. as time went on, I did not discover that this was a massive 2 metre enlighened being but instead showed up always to me in the form of a little girl that I identified as +1, not a -7 which I would say that jesus was. the sirians talk about the 1 being able to act like the 7 (and vice versa). I also know that a conceptual person (5) has incredible logic and capablity to perceive structure patterns over large periods of time (trends). I would say that 3/5 work very well together. in my case, I percive myself as a 3/5, and a 1/7 entered my body and we became really good friends, worked well together and learned a lot from eachother.
+
+clearly, the twins are the divided halves and the point is to get them to come together so that all 7 layers become functional. I have postulated that there may be an intermediary phase before this happens. this is the fully "connected" version of yourself -- the one that would appear to the custodians as "uncontrolable". I postulate that the intermediary stage is one where we're all *kinda* connected.. only 5 of the layers will be available to us. I talk about this further in @[noseblog](2021-04-08 20:04)
+
+I would also say that 1/7 work well together. there are some traps which I will outline here as well.
