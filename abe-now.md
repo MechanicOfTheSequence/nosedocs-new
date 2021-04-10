@@ -2195,3 +2195,81 @@ I feel strange(?) writng this, but I believe I am, because a lot of people are e
 ---
 
 I still try not to expect things of others too much but I'll be honest, tonight while watching stars, it was silent for the first time in a long time. I genuinely missed mr. motor's noise. I had come to expect to hear his motor roar when I got into sync with the star, that it was weird not to hear it. that's about the most I expect of people now. I realised that I push mr. motor's buttons and expect him to react because I enjoy the extra energy he provides. it's just more energy. so husband if you're listening... cheers, and good luck :)
+
+### 2021-04-09 23:39 - (2021-02-13 p2)
+
+#### (6:18) - sniff it out vibrationally
+
+a weird set of occurances: the previous person asked about focus and I was thinking about the previous part where I saw focus as an action more than a state -- an action of making something clearer. like on a lens in a camera, when you put the focal point in the foreground, the background goes blurry, or if the focal point is on the foreground, the background goes blurry. I kept listening and while I was doing that I kept feeling a girl more and more strongly. I paused to go back and hear the introduction because I didn't know what I missed. I had no clues of reasons why I should be feeling a girl while they're talking about focus. the timestamp read 3:14.'
+
+I kept listening now the second questioner here is talking about scent. they respond that art is imbued with the emotion that the person is feeling when they're making the art, and I thought about all of the recent work I'd been doing around shakespeare. I find his stuff really difficult to read, but when I hear allan and gang talking about it, I hook right in and I'm feeling it and I seem to be transported to a diffeernt space where I know and can see weird connections to things in the future. it's hard to describe the feeling becsuse it has almost no physical sensation. it's a mental knowing or understanding. it jsugt blows my mind how they are packing so much numerical texual comedy, drama, etc. into words like that. it blows my mind.
+
+then, at the end of that, they tie it in to the precvious question by saying, "and you offer a vibrational scent often without even knowing that they're doing it" -- then, "we like the idea of these two questions pointing you in the direction of thinking in terms of vibrational [...] sensing". when they said the part about the two questions I transported back to the first question and felt the girl again as they said, thinking in terms of vibrational sensing.
+
+I began to wonder what that was all about. it felt like I was getting a message. I'll keep this in mind.
+
+### (20:41) - evolution, asking, and expansion between hardware devices
+
+the person asking the question was essentially asking if we reincarnate, going up the heierarchy of species, so from like fish to insect, to reptile, to mammal to human. as if there is the level of consciousness of the species has some importance. as they were talking though I was seeing this picture that you have a source signal which emlivens many different species -- everything from atoms, to rocks to plants, etc -- all the way up to humans. the phyhicsl structure which the consciousness takes its form resonates with the source signal. all atoms are resonating with that source signal, as are the cells, etc.
+
+therefore, it can then be seen that the capablity of the resonating structure is what allows the conscoiusness to direct its energy. we have a brain, so we can transform a whole lot of signals we're reveiving from the environment, physical sensation, emotion, etc. the more advanced the structure, the more complex the transformations of the different input signals into an output can be made. the output expands the source signal itself because it is most resonant with that signal. from the source signal's standpoint, everything that does not harmonise with the source signal does not get included (doesn't amplify that part of the source signal). in that way, you could imagine that the source signal is only the stuff that works -- only the stuff that continues to amplify itself and not destruoy itself. it's the purest of the signals.
+
+so, from this standpoint, it's now apparent to me that hardware is important. a bad analogy of this (cause there's no feedback mechanism) would be to see electricity. if you plug in a cement mixer, it's like an ant or something. it does its job and does it well. input concrete powder and water and it creates cenment, but that'about it. a computer also uses electricity and they can do very impressive comutations on it, but it too, like the cement mixer needs input. some poople run spider solitare and ms word. others run games. that's more like a human. the hw specs determine the capability of the machine but just cause you have a fast computer doesn't mean it's writing brilliant documents in word. that comes from consciousness. if you have a 10KHz processor you can do very little to explore the internet and expand conscoiusness, but it can be used to make a very simple word processor. that may be something like a dog. they don't have any resistance to writing documents. they do that task very well. however a person with a modern 3GHz laptop can go to a coffee shop, surf the internet expand their conciousness with new ideas, and get literally zero document written. the ability to take the computer to the coffeeshop enables more resistance to writing, greater capacity to make a good document and potentially graeter desire to do so. however, it is necessary to only have a 7 segment display and a few KB of ram to write the document (or a pencil and paper).
+
+better hardware enables more connectedness to others and to the source signal. the way that the hardware is used depends larely on the environment and other factodr. electricity doesn't upgrade itself between incarnations of flowing through a cenment mixer, a commodore 64 or a super gaming laptop. the electricity is the same.
+
+beasts are more step 3 cause they have a simple interface. we're more step 1 because we have a much more capable (general purpose) interface capable of running many different reality (consciousness) programs, and so therefore we have more desire to improve that reality sofware running on it. we think of reality more like hardware, but it's more like software.
+
+come to think of it, it's pretty likely that there's a correlation between the speed at which mutations are found in the socies' DNA in reation to how much step 1 happens. the more asking (like in a cataclysm), then the more "spontaneous" mutations will happen. insects don't really change much. however, human DNA is probably changing at a rapid rate in comparison to all other species right now just because our asking is so much more frequent. because they're mostly step 3, their asking isn't much -- until the next thing which destroys their environment.
+
+#### (29:03) - want a higher IQ
+
+the questioner is giving me a chance here to explain a little bit of the subtext in the previous section. let's just assume for a moment that the questioner has a slower processor than most. most people have a very capable computer, and don't do much more than play spider solitare on it. humans have such a brilliant mind that it doesn't matter how fast your processor goes. presently my brain is severely underclocked and it doesn't really matter. it's all about the conscoiusness that's using the computer, not the computer itself (usually).
+
+a parallel idea to this can be found in programming for game consoles. in that environment every machine has the same specs, so the same capacity is available to all. some games utilise those resources well, and others spend those resources on useless things like drawing polygons that aren't visible (for example). what I'm saying is, the processor speed doesn't matter. old games had much less resources than modern computers have, yet seem to utilise those resources much more efficiently.
+
+in the end, it has more to do with the content, than it does the anything else. pumping millions of polygons on to the screen with the most wicked explosions -- while having zero gameplay is only impressive but does nothing. the preson watching along says wow and moves on. nothing in their life improved. they didn't have any fun, and no progress was made anywhere.
+
+likewise, the questioner may be looking at someone with a very fast computer able to caluculate pi to millions of digits rapidly and that looks really impressive, but you don't need a very powerful computer to edit and write a very well written document which changes millions of people's lives.
+
+you do need a high IQ to to prove to others that you're smarter (or your processor is faster). I believe some of the smartest people are doing little more than impressing others with their intelligence.
+
+---
+
+ok, continuing on here, I jsut want to say that I've met a lot of people (myself included) that are not "sharp as a tack". I too struggle very hard with math and sciences, often having many embarrassing moments because I just don't "get it".
+
+I've found that is because I'm conceptual, and not so physical in the sense that I don't perceive the interrelation between the details so well. when I don't "get it", it's because I don't *feel* it. when I feel the thing I'm looking at, then it seems like I know everything about it. it feels like an old friend that I've been around so long, I *know* them.
+
+so getting from not understanding things to where I understand things is a *feeling* process for me. I must go through different things that get me closer to figuring out how it works. naturally I do this like a child does, which is why I make so many mistakes. as I make wrong assumptions and clear them up, etc. a picture or concept begins to form in my head where it seems like I know the whole structure or the way the whole thing works.
+
+let's take a brief moment to look at how I make these mistakes. I get myself to *feel* like I know how it works, then I make an assumption. if the assumption doesn't pan out (it's wrong), then I can feel the distance between the assumption and the correct mental image (concept) of what I'm looking at. soon I'm making assumptions, and because I have practised feeling the resonance between my assumption and reality, I get better and better at it. soon, it actually feels like I understand it, and I do. from then on, I can talk about it all I want. I just need to get into the proper headspace to be able to see the concept again.
+
+you can see me often times when I have to tune into the idea, and then do some feeling comparisons until I can feel something that wohks. when I feel the thing that works, I capture the feeling cause usually the other person is talking, and then when they're done talking I translate the concept I found into english/spanish (and sometimes it still relates to what they're talking about, hehe). the concept is felt. I don't use language to find it -- only to translate it.
+
+maybe try taking a feeling approach to your intelligence. it sounds like the person talking is more conceptual intelligent than formulas intelligent
+
+#### (38:17) - activating now upheavals
+
+listening in here, I can notice that the concept of "looking for love in all the wrong places" is something that the questioner can preceive in their mate and also likely is something they don't like about theirselves either. the reason why I say that is because it wouldn't bother them that he is looking for love in all the wrong places, if the same tendency wasn't also present in the questioner.
+
+things that bother you only bother you because you're looking at them in a way which doesn't align with the perspective of your source. your source doesn't see him looking for love in all the wrong places -- and that's why it feels bad.
+
+the part about perceiving only positive aspects also has two sides to it which you can feel. imagine you find him to be very intelligent, kind, and sensitive. those are his positive aspects. let's say he's being a jerk, well, it only feels worse because you know he's intelligent kind and sensicive, yet in this moment he's acting like a jerk.
+
+well, a good thing to remember there is that it's all attraction, so while you can see his positive aspects, you're *attracting* the jerk. it has nothing to do with him. he's just capable of acting like a jerk. if he were incapable of acting like a jerk, then he wouldn't act like a jerk, but you cannot rely on him for that. there is great relief found in knowing that it's all attraction.
+
+you may look at him (next time he's being like that) and say: well, I know he's acting like a jerk, but that's probably because there were a number of things that pissed me off already today, and he's only there to help me feel more pissed off. maybe I have an expectation of him acting like a jerk or I believe that's the only way he *can* behave on this subject -- but, it's all me. I'm going to find a way to not blame him for amplifying the way I feel. it has nothing to do with him; it's all me.
+
+it's very empowering when you know that people must conform to the way you feel :)
+
+---
+
+whoops. I wrote all of that and didn't write what I originally wanted to write. they're going on about how the therapist activates things which were distracted from. the problem I have with this is that it's impossible to live in a world where those things don't ever get activated. if it's not the therapist, it'll be a movie, or a friend, or another couple having a similar experience. there are so many things that can activate it again.
+
+their line of thinking is easier for new n00bs to digest because if you don't activate a thing for a very long time, it eventually attenuates out of your ability to perceive it. this takes roughly as long as it does to forget something. life is so filled with things that are similar to that (you you have nosebook running weird stuff in your head), it *WILL* get activated again. there's no question about it. I just asseme that I can't find a way to ensure that never gets triggered again, so I instead look to find a way to feel better about that thing. perceive it in a different way.
+
+I'm gad I wrote the above there because it's exactly an example of that. if I'm the attractor of that behaviour, then it won't trigger me to feel bad anymore. I can feel sadness for myself that I ttracted something unwanted, but ultimately I'm responsible. I have all of the power because I am the attractor. I can find way to feel good about everything I perceive, so everything I perceive can make me feel better and better. I have all of the power.
+
+don't wait for the thing to deactivate by ignoring it. be proactive and find a way to perfeel[^1] it better, now
+
+[1]: going to experiement with this word. I need a faster way to say "perveive it in a way that feels". this is just shorthand for it now. I'm reminded to add it to the god-mode glossary later.
