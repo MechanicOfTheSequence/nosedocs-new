@@ -8473,6 +8473,52 @@ I got the feeling that idea fell out of favour a bit. I guess just think about i
 
 probably what'll happen is you'll do nothing but drag your feet, meaning we're doing my plan. when it becomes too unbearable, you can finally decide to peace out. try and wait until it feels like everything has completely fallen apart and there's no hope anymore. that's the kind of disaster I'm shootin for :)
 
+
+### 2021-04-13 09:22 - create your own destiny
+
+@[youtube](https://www.youtube.com/watch?v=KRneIzR52r0)
+
+I was listening to a robert grant podcast where amber was talking about the throat and making a sort of prediction of the future.. she called it "black tongue". well, following that discussion I swiched over to the snake-bros and kyle jumps off into a very similar discussion about fate and destiny...
+
+@[youtube](https://youtu.be/ubotTGmdX_E?t=1598)
+
+I really wanted to write about this because he presents the idea that if someone makes a prophecy telling you your fate (as presented from amber and robert in the previous podcast), they said that it *always* comes to pass. she's absolutely right that it's the throat that's involved in this one. that's where I experience it anyway, and to give it meaning, I call it "structure". emotion is the energy through which the perception is realised (and future attracted), but the prophecy (belief) is structure and confines the thing.
+
+so let me try a few ways to explain here what I mean. if I feel good, then good things will happen in my life. my life is a reflection of how I feel, confined to the form of what I believe. I can only see a "miracle" if somewhere deep down I believe the miracle is possible. the throat is your logic, your world-view or blueprint through which you perceive things. in short, it's your perception. emotion is the attractor and that fills the form constructed by your beliefs.
+
+so, kyle is talking about how when the guy gets the prophecy, he fights against the prophecy and begins to fear it, and in fearing the prophecy that he doesn't want to come true, he attracts the reality of that prophecy. I can think of fear in two aspects. one is an emotion, which someone feels, but before that emotion there is a belief, like monsters are in the bushes or someone wants to kill me which *produces the emotion*.
+
+I try to distinguish the difference between the perception and the emotion when I spaek on it, but I'm realising that they are perhaps quite intermingled, which is why I wanted to write this. if I tell someone that their project is going to be very successful, they believe me and experience that, then that's really great. however if I tell someone that they are going to be miserable all of their life, and they experience that, that's not so great, but in the end, it's on them.
+
+just cause someone tells you a prophecy doesn't mean you have to believe it. I used to watch people in the church give tons of prophecies that never panned out. what I believe is happeningy is that even if they do believe it, they can't actually manifest that reality because of the way they feel. if the blueprint is saying to build a 10k ft^2 house, and the resources are only available to make a 2k ft^2 house, you can believe in the blueprint and the building, and the perfect design of the architect, but if there are no resources, it doesn't get built. the construction gets delayed until the resources are available.
+
+---
+
+so what I'm saying is, imagine someone gives me a prophecy and I don't like it (or maybe I do). either way, if I try hard to make it a reality or make sure it doesn't become a reality, then I believe it and it's in process of manifestation. I'm basically saying the prophet has more power to create my reality than I do. I don't like that, and jaron used to do this to me as a kid all of the time. he's the opposite of me. he's throat (structure) and I'm stomach (emotion). he would tell me things like, "I'm going to win this game" and then no matter what I did, he would win it. I found it was hopeless to try otherwise. he would just win.
+
+in other circumstnances, I would try the same game with him and tell him he would win. this is the same thing thatrobert was talking about getting played by his wife or his daughter to eat her lunch. tell her he bets she cannot finish her lunch and she has to prove the person wrong. I would tell jaron I would win and he would have to prove me wrong, and then he would win. what he said seemed to always come to pass because I believed him.
+
+I also noticed when I was playing counter-strike that the moment that I told people that I was winning, I started to lose. same thing. I want to explain that because now I understand it. for me, the manifestation is the *feeling*, not the reality. for jaron, the manifestation is the physical part. when I would say I'm winning I would feel like I was winning, and then that was the manifestation. I eventually stopped trying to take score of who was winning or whatever[^1], and instead I just learned to make it feel natural to be getting crazy headshots and stuff.
+
+---
+
+so here's what I'm trying to say: the structure confines the emotion. when I reduced the whole counter-strike experience to winning, it was no longer fun for me. it's so much more than that. by confining the experience to just the feeling of winning, I no longer felt good like I used to. I don't really care to win that much. winning doesn't make me feel good. I really don't care that much. I'm much more interested in having fun and feeling howgood I am at reacting aiming and shooting faster. that is the feeling that is intoxicating -- not the winning. therefore, I figured out to take the comparison out of it and just focus on feeling the fun of playing. from there, if I just maintained that and didn't worry what jaron was saying, I could experience a reality that reflects how I feel, having nothing to do with jaron's predictions or winning.
+
+you will notice that I offer a lot of structure (predictions and such... see last entry) in these things I write, but this is not so that I can be right about the future there. most prophecy is backed by a strong belief in how accurate (or right) the person is. if they're accurate, then people believe them, but as kyle points out, it's kind of like the stock market in that it's not very predictable. I say these things very convincingly, but it's an illusion. I'm basically vocalising ideas to find the resonance of them. I don't think I'll ever get to the point where I can acurately predict the future. kyle brings of cayce and I have yet to study him but he talks about how the prophyecy seems to be much easier understood in hindsight. what I do is I tune into feelings, then they get interpreted as *symbols* which reflect my present belief system or structure. I know that's always changing. I don't have time to get stuck in my ways anymore. like amber talking about how this is the quality of the divine feminine, nothing I say I feel is ever very good, so I'm trying to constantly improve the trajectory of the symbols and interpret them more and more clearly.
+
+I don't ever believe everything I say myself. it's constantly changing and constantly in flux, refecting the way that I feel now. you can see how over these last few years, I have figured out how to feel better and better and the way I feel is directly reflected in how I translate these symbols. this is precisely why I *don't* want it to end. I can see that if we just keep going, in 5-10 years, the perspective through which I'm translating these symbols will feel so good that basically everything I say will be like mind-blowing divine wisdom because I feel so good. it's in my interest to keep this going for as long as possible. if nosebook can keep my imagination held away, that would be great because I could eventually figure out how to manifest physical matter in 3d space just by feeling its *presence*. I have been exploring the possibilities of what's possible by perceiiving only the absence of things (resistance) as a way to continue to creat. I think this concept was expressed by amber in the podcast in the part where everything a woman feels is reasistance, and women (and people like me) are beginning to learn to use that resistance to our advantage (like robert's mom).
+
+I know that no matter what people believe, reality will continue to reflect how I feel and I'm getting really good at that -- so no big deal. I can continue to throw out as many bad ideas as possbile, knowing that none of them will happen. so, I guess enjoy the story as it continues to unfold :)
+
+---
+
+last thing about outdated: everything you believe you feel. there is a part of fear which is belief and a part which is emotion[^2], so instead of believing the prophecy, instead just feel the way you want to. understanding that all structures (beliefs) are outdated. the minute you think of them, LOA already makes a newer more wanted version. every time you think of the thing that brings fear, LOA also makes a newer more wanted version. this is why the more you think about these things, the bigger and more likely they become. therefore, to avoid any prophecy just realise that it's always old news. it's outdated and the thing that manifests will always be better (or worse) than what you believe it will be like.
+
+
+[1]: you even noticed this the last time I played hearthstone. the minute I started to notice that the deck was winning, I stopped winning. when I was having fun, it kept winning.
+
+[2]: or, "you feel what you believe"... or, "what you believe (and how you feel about it), is your perception"
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
