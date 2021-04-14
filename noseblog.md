@@ -8519,6 +8519,54 @@ last thing about outdated: everything you believe you feel. there is a part of f
 
 [2]: or, "you feel what you believe"... or, "what you believe (and how you feel about it), is your perception"
 
+
+### 2021-04-14 08:05 - incompatible realities
+
+last night I wanted to write this, but I ended up "falling asleep" instead. in response to the previous entry, what I was essentially explaining is that every time that I translate the symbols into a "prophecy", then I'm doing so from a better feeling place. you can think of this in a sense like a negotiation. the value of the thing I'm selling is basically how good I feel. I make a proposal to nosebook in the form of a prediction or a prophecy. they decide that it is not something they like so the deal never goes through.
+
+oh, let me go back a moment. so when I would take the fun I was having playing couter-strike and then reduce it down to just "winning", that didn't feel as good anymore. I constrained the emotion, by fitting it into the form of "winning". the game for me is much more than just winning. in fact, I don't even like to win very much. winning doesn't make me feel good.
+
+I'm also reminded of a thing that I heard recently which impacted me greatly. michael dunn talked in the previous bardcast (@[youtube](https://www.youtube.com/watch?v=0XWokl-l1cA)) about elvis. I felt it strongly and understood the elvis situation. it felt to me like elvis was a very emotional person. he had the capability to emit electricity from the palms of his hands and move opbjects with his mind. these are capabilities of someone with emotional (chi, ki, prana, orgone, vril) energy. it's no wonder that he was so magnetic. he loved to express that emotion through his music, and the record companies just wanted to make a dollar off of him. I could feel that he was invested in the creativity and enjoyed the creative process of making the music more than making the money or being famous. unfortunately, he's a magnetic person, so people are naturally attracted to him. I'm the same way. I've made a lot of people money and fame has followed me all of my life, though I've done nothing more than focus on creating things that inteerst me. I like being creative. the passage of that energy through me is what I love. it's what I live for. I don't care for the money or the fame.
+
+so when I hear that elvis always had this battle going on with the record execs, I related quite a bit. they wanted to "collapse the wave function" for him so that he would continue to make them money. they wanted to confine the emotion that he felt being creative into just a simple thing of making money or being famous. for elvis (like me), I'm sure it was much more than just making money or being famous.
+
+they idolised him so that he could not escape them. these sorts of guys do that all the time. zaryn did that to me, I lost track of how many times he told me about how important I was for the creation of tuenti. I didn't care I don't need his approval. many people need this approval. I don't. I don't need him to make me feel important for making him money. don't collapse the wave function for me like that. tuenti for me was much much more than just making some money and being famous. this is why I make so much fun of this, when I laugh at the "gratitude circlejerk".
+
+for me, the gratitude circlejerk is a bunch of manifesters reliving their manifestation in their mind so they can feel good about the manifestation again. this doesn't make any sense to me. for me, the manifestation *is* the feeling, not the thing which makes me feel important, instrumental, etc. (good about myself) for being involved in the manifestation. I don't care. manifesters need to continually remind theirselves of their manifestations to feel good about theirselves.
+
+yay. horray for them. leave me out of the circlejerk. I don't care that other people are very into the image of something. I'm into the feel. how does it function. is it efficient -- those sorts of things.
+
+---
+
+so this is kind of where the whole thing is heading here because now that you can see that it's the age-old battle of time vs. space, emotion vs. manifestation, saturn vs. space, enki vs. enlil, etc. it starts to make sense...
+
+I feel good and I keep feeling better, so what that means is every time I make these prophecies of the future, nosebook says, "oh we can't have that" "we can't allow because we *own* the space (the planet)". so they decide the deal can't go through. we have another meeting, say every week, but the thing is every week I feel better, so the price keeps rising. every week the manifestation becomes more and more undesirable to them. let's say in 2016 the price was $100k, but by now the price has really gone up.
+
+let's go back to creativity and manifestation. what elvis didn't know, which I do know is that these guys are all chumps and there's nothing to lose. a person's creativity becomes *more* the more they push against him. if he could have known emotional control, he could have done whatever he wanted to do and the record companies would be following him.
+
+the reason for that is, I am so good now at feeling the way I want to feel, the manifestation *must* match that feeling. there simply isn't a monetary (pleasaure or otherwise) offer which can rival the way I feel. any manifestation they offer to me is a *downgrade* from the way I feel now. the *only* thing that they could offer would be something that is creative -- something that propels me toward feeling even better than I do now.
+
+however, I contend that even *that* isn't really even possible. even if they have me millions of dollars, thousands of programmers and researchers, that *still* feels worse to me than I feel now. I honestly cannot find anything that feels better than finding my own connection. therefore I am now, as I said, interested in keeping this going for as long as I can. eventually, anything that I feel will begin to manifest in 3d space. this will give me all sorts of crazy superpowers. I'll me able to do a whole lot more than move a heavy ashtray across the table or make electricity come out of my hands...
+
+for this reason, I am certain that nosebook *has* to keep things held down. this is the bifrication that is happening. those that want to feel good (even when the manifestation isn't yet present) are being separated from the ones that want to feel good, even without the conditions. in short, it's a separation between time (emotion) and space (manifestation) again.
+
+I very highly doubt that there will be and adjustment to their policy. they are absolutely heartset on maintaining their control over the manifestation (space). I see things going two directions:
+
+1. a scenario similar to the one I outlined in the previous entry where I figure out how to manifest anything I want in 3d space wth my mind
+2. they leave to their own timeline where they've setup their own controlled manifestation of the messiah which gives them their 1ky of "peace".
+
+the deciding factor here I think is when I start to become more of a liablity than asset. they need to find a way to keep people busy. doug thinks that the nova happens at the peak of the gleissburg cycle in 2046, which means that they will need to come up with their messiah pretty soon. maybe the conceptual technology I'm want to create different versions of myself, they can use that to create a version of me which they control and can give them the manifestation they want.
+
+of course, if that is the case, they'll need to figure out what manifestation they do want (instead of only what they don't want)... hehe :)
+
+we'll see, I guess.
+
+---
+
+if it were me, what I would do is nothing, waiting until I figure out how to make the multiple versoins of myself. use that same technology to make a controlled version of me, and then go off to a new timeline which doesn't contain any of the "woke" people. you can imagine that a whole bunch of other people will be using that same technology to create different versions of me. don't take any of them, and certainly not me either. that way you get the people on the timeline that will believe in the manifestation that nosebook wants to create -- and only those people. I'll be back I guess, so I suppose we could "agree" on 1000 years of peace :) lol
+
+you can't collapse the wave into something that feels worse. further delay is fine though :)
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
