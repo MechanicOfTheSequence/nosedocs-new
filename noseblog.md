@@ -8605,6 +8605,72 @@ everything is going to be mindblowing vivid, so a visual language may kind of ke
 
 last thing that was getting me to think about is that perhaps I was thinking of it backwards. if I conquer air, then I'm going toward a world of manifestation. developing...
 
+
+### 2021-04-20 15:28 - the destruction of ancient sites
+
+@[youtube](https://youtu.be/xElmBqvpGdo?t=580)
+
+I was watching this video here and because I have been finding matthew's discussions very interesting. I have wanted to talk on this subject for quite some time now but I haven't really had a chance to do so easily... they are talking about how the destruction of the ancient sites are a tragedy, which was really weird to me because they mixed this tragedy in with a comment about the separation between the 3d and 5d, almost as if to imply that the 5d people should be concerned with the destruction of these sites. what I'm abuot to say may be a bit of a shock, but I've been thinking about it for a while.
+
+I do think it is a tragedy that these ancient sites are being destroyed, they're not necessary -- not even the great pyramid is necesssary to understand to be able to learn to create our own reality. all of these are physical apparatus that societies of the past have used to attain higher states of consciousness. none of it is necessary, I assure you.
+
+it is ironic because just this morning I was having a discussion on the barbara caves, where I claimed that the caves can be useful to understanding vibrations. I gave it some thought since then and I kind of want to reverse my position on that by saying that I think it's a great thing that these ancient sites are being destroyed.
+
+it all started with a conversation that I was having with jaron about how I wished that beautiful plants were able to grow as easily as weeds are. I noticed that we have cultivated crops by creating ideal conditions for them (this can be analogus to warp periods) and this is fine because we have created the desirable crop/flowers, but they're very fragile and do not handle stresses very easily. I asked jaron which would be easier:
+
+1. teach the hardy plants (weeds) to become beautiful/useful?
+2. subject the beautiful/useful plants to increasingly more and more difficult conditions?
+3. hybridise the beautiful plants with the hardy plants to create a new species that is capable of withstanding harh conditions?
+
+so here's the thing, matthew claims (as do I and many others) that #3 is the story the sumerians. the flood story is a story about #2, where enlil gets angry that the hybridised species is beginning to become more resiliant to harsher conditions. #1 I think is completely impossible. it just won't happen.
+
+I'm reminded of the parable that jesus told when he talked about the time we're entering into now, where he would say that some seed would grow in good conditions, some amongst the weeds, etc. but then he also said that the good crops will grow up right alongside the hardy ones (the weeds), yet when the time comes they will all be harvested and separated, with the hardy ones thrown into the fire to be burned. this is what he called the baptism of fire[^1].
+
+so there is a problem with the symbolism here that I would like to point out which has puzzled me for a while. if weeds are the ones thrown into the fire (going throgh the baptism of fire) are these the "good" ones? I don't know and I never have been able to figure it out.
+
+what I believe is being said there is that the weeds will continue to find a way to survive and so they'll just become more hardy. it's not like throwing the weeds into the fire will make them go away forever. my experience with weeds is that they just transform and find new ways to express theirselves. they are very similar to nosebook. it could be plainly obvious to them that pushing against stuff only makes it worse, and yet they don't stop to push against stuff -- instead, they just try to make it less obvious that they're pushing against stuff, as if the LOA were taking effect based on our perception of their pushing against stuff, not on their negative emotion in response to trying to get rid of so much unwanted stuff. they are very similar to weeds in that sense.
+
+since I asked jaron the question there, I decided that if I had to gamble on which stragegy would be the most successful, I would estimate that #1 would be least effective (or never effective). I would guess that #2 would be successful but only up to a point. at some point, I think the conditions would betcome so harsh that they would just give up and die out. they're not so persistent as weeds are. it would only work up to a point. I think #3 would be successful as well, but you would end up with a lot of weed-like traits expressing at some time as the beautiful/useful ones.
+
+if it were me, I would do a combination of #2 and #3. I would have the good crops grow up amongst difficult conditions and then discard the difficult conditions when they're no longer useful anymore.
+
+I believe this is in fact exactly what is happening on the planet today and if I had to guess I would say that this would be the big-picture of the enki setup. you have to wonder what this master craftsman is doing mixed in with a bunch of angry sky-gods. hu must have some sort of recognition that overcoming difficult circumstances yields a stronger being, rather than ones which are given good conditions.
+
+if I look at all of the sumerian stuff the common story there is the sky-gods are a bunch of guys that don't want difficult conditons so they try and figure out how to get others to do their work for them so that they can just sort of coast on the good conditions. this sounds so similar to the present-day "elites" running the various power structures.
+
+---
+
+in another discussion I was having with jaron a few nights back, I said that there are essentially 3 types of people:
+
+1. the idea
+2. the implementation
+3. the motivation
+
+I claimed that a lot of the sales people are the motivator types. I then went on to define a fourth type:
+
+4. the mechanic or infrastructure maintenance crew
+
+if you know the 7 layer system, you will immediately recognise that the idea is 1-5, the implementation is 3-7 and the motivation is 2-6. this leaves the 4th layer as the one that is left over which almost everyone overlooks. it's very rare that anyone celebrates the mother for keepinvg groceries purchased or any of the other maintenance tasks that are necessary to keep things running smoothly. their job is essentially to reduce friction by maintaining infrastructure (functional conditions).
+
+if you think about the job of the motivator, it is the same thing. they are also trying to reduce friction. you can try very hard to push something, but if it doesn't want to go, it just makes things worse. peopple in sales will tell you that. anyone having to do telemarketing also figures this out too. the way that sales happen is when friction is reduced (when it feels like a "turn-key solution" or whatever) -- so the motivator is also the exact same thing as the mechanic. both are conditional and both reduce resistance.
+
+---
+
+ok, so going back now, when you think about it, the annunaki are all motivators and you can especially see the difference in behaviour between enlil as a motivator and enki. enki is weird because in some places he is portrayed as the idea, the implementation, and also as the guy keeping the infrastructure going. I claim that enki must have learned quite a bit from conflict with his brother (enlil), learning to embrace the difficulty that his brother surely presented. I imagine that he figured that the best thing he could do to his creation (which is a hybrid between the fragile sky-gods and the hardy apes).
+
+I think this is the great reversal which happens, and it'll happen again. I contest that what has happened is that a long time ago, the apes were the weeds (useless, ugly and persistent), and the annunaki were the beautiful/useful (but fragile) ones. that's why there are no more flying annunaki anymore running the show. however, what I believe is happening is that there is an inversion. the guys running the show are the weeds, and they're going to go through the baptism of fire. the ones that survive will be hybridised with the humans (which are now the beautiful/useful ones). I think this process will continue at least 2-4 more cycles (potentially many more) as I'm sure that I can easily take a strain of myself and with slight modifications turn myself into a much more ridiculous tyrant than enlil. I know for sure that other humans are also capable of being real troublemakers too, and it may be a fun thing to keep the process going :) each iteration we'll arrive at an even more resiliant form.
+
+so, yeah... what I'm saying is, I think it's fine that these goons are destroying the conditons that people thought it was necessary to gain consciousness and knowledge of who they really are. if I were running the show, I would ensure that no beneficial conditions were available to the hybrids, maximising the discovery of their own capablity instead of relying on beneficial conditions.
+
+for goodness sake, it snowed last night and the weeds defrosted not even showing the slightest of wilting. truly impressive.
+
+[1]: which could also be a reference to kundalini rising. it's unclear. but the fire in the other parables is a process of consuming the useless part after it has been separated from the useful part (sparating the wheat from the chaff)
+
+what is necessary?
+
+a bit on motivators and frinction reduction
+black jesus
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
