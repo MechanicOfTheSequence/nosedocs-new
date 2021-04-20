@@ -8666,10 +8666,23 @@ for goodness sake, it snowed last night and the weeds defrosted not even showing
 
 [1]: which could also be a reference to kundalini rising. it's unclear. but the fire in the other parables is a process of consuming the useless part after it has been separated from the useful part (sparating the wheat from the chaff)
 
-what is necessary?
+### 2021-04-20 16:56 - two more things...
 
-a bit on motivators and frinction reduction
-black jesus
+I'm continuing on to watch that one video where they're talking about the tragedy of the destruction of these ancient sites... there is no one more interested than myself in these conditions. I love conditions. I find all of this stuff truly fascinating. a few quotes here that I wanted to talk about...
+
+> he who controls the past controls the future and he who controls the present controls the past
+
+maybe so, but I would like to add, "he who controls how they feel, controls the present -- and that's all that matters." if you control the preaent you control the future and you control your perception of the past too. none of that makes any difference. I can't remember the exact quote but I think billy said something like these guys controlling us by keeping us distracted with all of the illusions of free will keeping us running around chasing a carrot (or something like that).
+
+man, I want to say that may be true, but the "elites" are not nearly as elite as they try to make you believe they are. it's a giant illusion. they're not gods. if they were really as high-tech and advanced as they are made out to be, they would have blown up all of those historic sites long long ago. they have (maybe at most) a short glimpse into the future which they're reacting to. they see people waking up to stuff and they try to suppress it, but it's all reactionary.
+
+like bill gates said (I'm paraphrasing), "the real pandemic is how fast information spreads". they're all reacting to these events. sure, they're planning on keeping things buttoned down, but you have to wonder at some point how many of these weeds are put into the field *on purpose* to strengthen the crops, knowing full well that most of the weeds won't survive the next reset. energy will rise really rapidly and I can assure you that quite a few of them will be able to continue on with their resistant perception and not burn. the ones that survive will be the ones capable of sustaining that kind of energy levels, and I will venture a guess that it'll be the ones that figure out that their emotions create their reality. the ones surviving will be the ones that figure out how to control their conditions. they'll want to ensure that we don't have those conditions.
+
+next era, they'll figure out how to finally start giving their attengion to what they want...
+
+oh yeah, so when I said that there would be a great inversion, I think that'll happen not now, but probably in about 2-3 eras (4-6ky) from now. I also want to clarify that the what I meant by the hermaphodite isn't a literal thing, but having access to both time and space principals -- so like a mix of enki and enlil. we take all of this stuff *way* too seriously. there is no good and bad. we're all eternal beings and there are just "good-guys" and "bad-guys" switching off every few eras making each other stronger.
+
+all of the things that they're "doing" -- they're not really "doing" to us. it's *all* attraction. from our etereal (source) perspective, we want to become strong and resiliant yet also beautiful and useful. it's all attraction, I assure you.
 
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
