@@ -8684,6 +8684,33 @@ oh yeah, so when I said that there would be a great inversion, I think that'll h
 
 all of the things that they're "doing" -- they're not really "doing" to us. it's *all* attraction. from our etereal (source) perspective, we want to become strong and resiliant yet also beautiful and useful. it's all attraction, I assure you.
 
+
+### 2021-04-20 21:23 - how huch do I pay attention to people?
+
+I just had an experience which I realised that I will never be the same from. I find it very embarrassing because I didn't think it would affect me so much. I don't really know what to do. I'm going to talk it through a bit here. for me, I have this feedback loop where I need to feel what I'm saying, and if I don't feel what I'm saying or how I'm acting, I stop, go back and try again until what I feel is what I'm saying or doing. I don't like to do things that I don't feel resonance with.
+
+so here's the thing. I analyse *EVERYTHING* I do. I mean everything. I'm super-(self)-conscious about myself. it started out with this my brain haemorrhage. if I didn't feel good, my left side would freeze up and stop working (or start shaking). it made me betcome very conscious about what I was thinking and feeling. as a consequence of becoming so aware of myself I also became hyper aware of others. I found out that I would analyse what others were doing, it would give me groat insight into a lot of things because everyone, deep down has a reason for doing the thnigs they do. I found that analysing this was very beneficial to me, however if I were to analyse what I thought they were thinking about me or how they perceived me, this felt really bad to me.
+
+I'll give an example of this. when I was working at tuenti, I used to like this girl named laura rus. I remember one time as I was walking to the bathroom, I was wondering if she could perceive that I limp when I walk. the more I thought about what she was thinking about me, the more my left-side froze up and by the time I made it to the bathroom, I was limping very very heavily. almost certainly she noticed, and the more I noticed it, the more it happened until it seemed like every time I was around her I was limping. it was a self-reinforcing feedback loop.
+
+the problem worsened when I was in the canaary islands. I would start limping all the time when I felt discomfort. it wasn't until only recently actually that I stopped doing that. I think it was even as recent as 2019, actually. my point is, I had to stop paying attention to what I thought others thought about me and just find a way to feel my body moving the way I wanted it to move. this kind of self-consciousness has helped me to become hyper aware of everything that is happening. I notice anything that feels out of place. things must appear how they feel, or else I notice them and try to correct them.
+
+---
+
+the problem is that I just don't know how much analysis of others I should be doing. for me, I feel bad when I don't feel like how I am behaving. it's impossible for me to have an image. I am in the physical exactly how I feel myself to be. when people are lieing, I often times can sense it pretty easily because there's an incongruence to the way they feel vs. what they're saying.
+
+I find it very pleasurable to pick apart my own behaviour. for the majority of my life I seemed to be doing things (reacting) and I didn't know why I was reacting in that way. I studied myself to figure out why in the world I was behaving (reacting) the way I was. I came up with a lot of reasons and justifications for a lot of my behaviours without still really knowing why I did them. eventually I figured out that everything had to do with the way I felt.
+
+I suppose I would have found it very uncomfortable for people to be analysing me so much back in like 2006-2007 era, for sure, but now I enjoy that so many people are analysing me. I find it to be an ultra rapid feedback loop and I can iterate on myself at such a rapid rate. I really enjoy critisims, jokes, other forms of noticing quirky behaviour in me. I just take it and then determine if it's something that makes me feel bad, and if it is, I just improve on it (if there's something I can do about it, of course). no big deal :)
+
+not everyone has that kind of outlook though so I don't know how much I should pick other people apart. I've noticed pushback from some people as I try to figure them out. I jump to conclusions quickly and also change them just as quickly. I believe that everyone must conform to my expectations of them. however when they don't, it's noticeable to me and I update my expectations. again, no big deal.
+
+---
+
+so maybe this is what I'm wanting to say here: in the past I think it was really good for me to constantly notice the incongruence between how someone feels and their image/behaviour -- however, I think what I'm realising is that I want to become "blind" to the physical in the sense that, I want to feel the person the way I feel them, period. at this point I've noticed that the way I encounter a person in the way I feel them is always so nice and it feels like I just love everyone now. it just doesn't make sense to use some physical conditions (or behaviour) to feel differently than the way I want to feel about them.
+
+I feel pretty embarrassed of this. I really didn't think I would be so oblivious to such an obvious thing... I've got this. you'll see.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
