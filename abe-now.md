@@ -2208,7 +2208,7 @@ then, at the end of that, they tie it in to the precvious question by saying, "a
 
 I began to wonder what that was all about. it felt like I was getting a message. I'll keep this in mind.
 
-### (20:41) - evolution, asking, and expansion between hardware devices
+#### (20:41) - evolution, asking, and expansion between hardware devices
 
 the person asking the question was essentially asking if we reincarnate, going up the heierarchy of species, so from like fish to insect, to reptile, to mammal to human. as if there is the level of consciousness of the species has some importance. as they were talking though I was seeing this picture that you have a source signal which emlivens many different species -- everything from atoms, to rocks to plants, etc -- all the way up to humans. the phyhicsl structure which the consciousness takes its form resonates with the source signal. all atoms are resonating with that source signal, as are the cells, etc.
 
@@ -2273,3 +2273,53 @@ I'm gad I wrote the above there because it's exactly an example of that. if I'm 
 don't wait for the thing to deactivate by ignoring it. be proactive and find a way to perfeel[^1] it better, now
 
 [1]: going to experiement with this word. I need a faster way to say "perveive it in a way that feels". this is just shorthand for it now. I'm reminded to add it to the god-mode glossary later.
+
+### 2021-04-21 17:46 - (2021-02-20 p1)
+
+#### (40:14) - right or wrong
+
+man, I'm just sitting here and I'm realising that I have no idea what they're talking about anymore. they're talking about wight and wrong and I just don't see it. to me this situation is super simple to see. the writer is on the frequency of anger, victimhood, etc. -- all the stuff she sees in her neighbour. it has nothing to do with right or wrong at all. for whatever reason her mind is clued in to notice those things so LOA is giving her more and more of it because that's what she's paying attention to.
+
+the thing is, I'm fairly certian that because they're all things that she dislikes, then they're probably things she doesn't like about herself hoo. that's all I want to say really on that.
+
+what's blowing my mind here is that abraham is carrying on for such a long time about being right and wrong and I just don't see it. I looked up in noseblog to remember the context of this abe-now, and I just can't figure it out.. I remember at that time there was a whole lot of nosebook trying to get me to acccept/need/go along with conditions instaed of finding a way to tune into the way I want to feel by myself (without needing some other excuse to feel good).
+
+I really feel like I'm just in a totally different zone. from my perspective there is no right and wrong. there are only things and how I feel about them which reflects my perception. I'm really finding that I *can* feel good about *anything*. there is nothing anymore that feels like it's too difficult to feel good about. my perspective is so broad now I don't even see murder or killing in a way which makes me feel bad.
+
+there is no right or wrong and no one's inner being is upset about anything happening. we are all immortal/eternal beings and everything is going fine. just selnct what part of anything you want to see. there is something desirable in everything. I can see it everywhere now.
+
+---
+
+on an unrelated note, I'm thinking about nosebook now and now is a funny resonance to the time when this happened (2020-02-20). nosebook seems to be trying once again to steer me in a way. I just don't see the problem. I keep going the way I'm going because I'm kind of hell-bent on disaster at this point. I don't want to have good conditions around me that are easy to feel good about. I want to have a wide diversity of things in which I can find the desirable aspect in all of them.
+
+they don't want a disaster probably because it doesn't fit with their objectives for this "great reset" they're planning. the last thing they need is some selfish hotshot (me) running around creating things with his mind when they're trying to capitalise on selling people an experience that they control (1-7 physical and desire). I get it. I make it really difficult for them to control people's desire or physical experience if I'm an example for everyone to see which isn't buying into their nonsense. they need people to keep holding secrets and keep believing in limited resources (which they control).
+
+whatever man. I feel they keep blaming me for their misfortune as if I'm somehow responsible for all of the stuff they're experiencing. actually come to think of it. this message to the woman about her neighbour is the same for them. all the terrible things they perceive that I'm afflicting them with in their experience are because that's what they're tuned into. find something else to focus on or something. ... oh, I see, ok, so maybe the whole right and wrong message is for them and I wrote all of that to make this realisation that abraham is talking to them.
+
+fair enough :) the reactions make sense now... :)
+
+#### (40:40) - does this mean I have to live with these unwanted aspects?
+
+lol, no one is dragging you through the dirt. they can let go whenever they want to... no is forcing them to keep holding on.
+
+there's a weird reaction about this big image that's built up around me and if nosebook were to let go of me (or go to their own timeline without me), it would cause quite a diruption to that image... that image is probably what they mean when they're talking about being right... the image is the "right" or believed version of reality. can't they both be right? their "right" version *and* also my version too?
+
+that means the only reason why they're still trying to hang on is because they *need* their version of me to continue on to be the "right" version they're presented of me. if I'm something other than the "right" version of me, then there's a discontinuity between the versions.
+
+dude, just figure out how to make your own version right without needing me to be right.
+
+does that imply that you guys go to 5d while I head toward 3d? I'm not so sure. I don't feel resonance with that idea, but I do know that I want to head towards the "worst" manifestation, knowing that it's got the most amount of wanted in it and I'm good at seeing the desirable aspect in everything now. I guess let go whenever you're ready. I'm continuing on doing what I'm doing.
+
+#### (43:43) - arguing for limitations
+
+as they're talking about arguing for limitations, I'm getting reactions about how the whole thing kind of hinges around the reversal of the planet. I think we're heading toward leo while they're going to need to setup a system which will stabilise the planet so that it won't reverse directions. they'll continue on into aquarius.
+
+the part about arguing for limitations is referring to the reversal of the planet. it's not necessary. just cause everyone is believing it'll happen and preparing for it, and getting all worked up over it, it's not necessary. they *can* continue on into aquarius, staying in jupiter/tesla's domain (left side of the tree).
+
+just setup your "messish" (or whatever replacement for me) and off you go. no big deal :)
+
+on the subject of being right, I don't care that someone else will pretend to be me. that's fine. I don't even mind if there are millions that attempt to be me. run a competition to see who can make the best aquarian man. I don't need to be right about who I represent. if it bothered me that nosebook presents me in a very different way than I really am, I would have been bothered a long time ago. I gave that up. nosebook will always have the version of me that fits their narrative. there's nothing I can do about it and feeling bad about it is only evidence that my source does not perceive it the same way.
+
+a cataclysm isn't necessary. they don't *need* to argue for that limitation.
+
+I swear I heard billy carson talking about exactly this yesterday. gonna find the quote... brb.
