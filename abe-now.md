@@ -2322,4 +2322,4 @@ on the subject of being right, I don't care that someone else will pretend to be
 
 a cataclysm isn't necessary. they don't *need* to argue for that limitation.
 
-I swear I heard billy carson talking about exactly this yesterday. gonna find the quote... brb.
+I swear I heard billy carson talking about exactly this yesterday. can't find the quote, but he was tzlking about how they could put a thing on the north pole to stabilise the planet's rotation. it was inferred that was to ensure that it continues to rotate the desired way. it was in the same presentation of them talking about entering into aquarius soon (I believe). either way, this should all be possible, I'm fairly certain.
