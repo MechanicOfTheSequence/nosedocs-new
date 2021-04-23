@@ -8650,7 +8650,7 @@ I claimed that a lot of the sales people are the motivator types. I then went on
 
 4. the mechanic or infrastructure maintenance crew
 
-if you know the 7 layer system, you will immediately recognise that the idea is 1-5, the implementation is 3-7 and the motivation is 2-6. this leaves the 4th layer as the one that is left over which almost everyone overlooks. it's very rare that anyone celebrates the mother for keepinvg groceries purchased or any of the other maintenance tasks that are necessary to keep things running smoothly. their job is essentially to reduce friction by maintaining infrastructure (functional conditions).
+if you know the 7 layer system, you will immediately recognise that the idea is 1-5, the implementation is 3-7 and the motivation is 2-6. this leaves the 4th layer as the one that is left over which almost everyone overlooks. it's very rare that anyone celebrates the mother for keepinvg groceries purchased or any of the other maintenance tasks that are necessary to keep things running smoothly. their job is essentially to reduce friction by maintaining infrastructure (functional conditions)[^2].
 
 if you think about the job of the motivator, it is the same thing. they are also trying to reduce friction. you can try very hard to push something, but if it doesn't want to go, it just makes things worse. peopple in sales will tell you that. anyone having to do telemarketing also figures this out too. the way that sales happen is when friction is reduced (when it feels like a "turn-key solution" or whatever) -- so the motivator is also the exact same thing as the mechanic. both are conditional and both reduce resistance.
 
@@ -8665,6 +8665,8 @@ so, yeah... what I'm saying is, I think it's fine that these goons are destroyin
 for goodness sake, it snowed last night and the weeds defrosted not even showing the slightest of wilting. truly impressive.
 
 [1]: which could also be a reference to kundalini rising. it's unclear. but the fire in the other parables is a process of consuming the useless part after it has been separated from the useful part (sparating the wheat from the chaff)
+
+[2]: I'm not saying that a person is only one of these. in tuenti I participated in all 4 of the aspects at various times, yet I would consider myself to have worn more the idea and implementation hats mostly. a single person can embody more than one of these attraibuts on various subjects. they're mainly meant as a way of reducing the 7 layers further into 4. they can be further reduced into two by seeing 1/3 as real and 2/4 as meta (and other variations thereof)
 
 ### 2021-04-20 16:56 - two more things...
 
@@ -8748,6 +8750,49 @@ it's so unlimited, quite literally anything is possible. all we need to experinc
 man, I just can't describe it easily. step-by-step though. it's the destiny of anyone that wants it.
 
 [1]: hence the origin to my theory that it's a very high frequency carrier signal emitted from the galaxy which sustains the atoms which compose of our physical plane, and the the attraction of these vibrsating spheres (atoms) is what makes gravity.
+
+
+### 2021-04-22 23:02 - the bifrication
+
+I was watching tina and then I felt like I wanted to watch abraham (@[abe-now](2021-02-20 p2)). I'll get back to tina here really soon, but when abraham started talking I then felt like I should be writing this.
+
+I'll be honest, I don't really know what I'm supoosed to be writing as I don't really have much to say. I guess I'll just get started and let it flow.
+
+what happened in the previous abraham (@[abe-now](2021-02-20 p1)) was that they were talking about needing to be right and how everyone dosen't need to all fit into the same thing. both things could be true. I supposed that this version of truth could be about an incongruence between what nosebook presents about me (to some people) and how I really am.
+
+however, as time has continued I noticed that it has to do with more than that. after having proposed that we should go separated ways I started to get a lot of different reactions about people who see things very differently than I do. they fall into a few major categories. I'll enumerate the big ones.
+
+1. belief in dark matter/energy and black holes
+
+seems that some people are quite put off by my insistence that black holes are not necessary. I think it also has a lot to do with how I describe galaxies, planets, and stars as beings with consciousnesses and more capable forms of perception than our own.
+
+2. belief that time is navigated emotionally
+
+I think a lot of things around the idea of emotions is a bit of a touchy subject. I get it. I used to also have my emotions shut down for a while. they want to believe that certain activities or technologies have a larger effect and can be used to navigate toward or direct the wanted aspects of reality toward them.
+
+I think they have a fundamental difficulty with the idea that reality is a relfction of how someone feels. that feels out of control, because they have little control over how they feel, and I'm saying that reality will always be a reflection of something they do not feel they will ever be able to control.
+
+3. I'm making fun of them
+
+I like to make fun of sales and marketing because it's completely ridiculous to me. I don't know how anyone can possibly fall for that nonsense, but I have to remember that they're marketing to what they think people will want, meaning they're marketing to theirselves. perhaps a less informed or deceived version of theirselves, but the way they would perceive their product through the consumer's eyes (which is their own). it's quite likely that many of these guys fall for their own marketing tricks -- or, perhaps they need to convince theirselves that it really is everything they've been sold that it is.
+
+I don't know. I don't really care. I'm not about trying to create illusion or to make something into something that it's not. I value openness, clarity, functionality, usefulness, etc. I don't need an illusion of a product, promise, or agreement to make me feel a certain way. that's my job.
+
+for me, the stuff that works shows that it works because it works. what I do is strive to make the thing more and approachable, easier to use, and functionally more streamlined (useful, economic, etc). things are designed to reduce friction in everyday tasks, not make an illusion. as my life is optimised, I have more capacity to enjoy the real-life HD experience with greater vividness. I don't want a distraction from it. I want things that make everyday reality easier, more approachable, and more vivid. I like new. I like things that blow my mind and transform the way I perceive things. I don't want the security of sameness.
+
+so, to them, it probably sounds like I'm making fun of them. I suppose I find it pretty funny at times, but this perception is only evidence of something they don't like about theirselves, which they perceive in me... not much I can do about that.
+
+---
+
+I have no idea what is being planned on their end, but if I had to guess, they're going to have to make their thing exclusive and super high-tech stuff setup for the elites. what I haven't figured out is what they're going to do to find someone to be superior over. maybe they'll take a large amount of the native population with them which have no knowledge of nosebook and still believe that they are the only ones that can see through their own eyes. they can easily be superior to them, I'm sure.
+
+they're going to have to make it exclusive because they won't want just anyone who wants to be able to join in. if they do that, then they'll need to make a bunch of tiers, and get people to agree to a sort of status, allowing some to be more superior than others.
+
+as for me, don't worry about me. I'm still shooting for total disaster, but I believe I'll be able to transform it into wanted pretty easily. I have a lot of ideas that I'll be sharing soon. I think starting over on this planet is a pretty good idea. andreas always talked about throwing out code and starting over because the next time it always turns out better. I think we should start over.
+
+this kind of paints a picture like the elite man train will be leaving soon and going their way. here, we're gonna head for the disaster and start over. energies are going to rise quickly and things will likely become somewhat chaotic but don't worry, here we'll know that it's all attraction and your reality reflects how you feel. like I mentioned, I'm certain that physical feeling will get confused with emotional feeling as I'm sure that in the future this will likely become quite commercialised. I think that's a good thing. contrast is a good thing. we're heading for disaster afterall.
+
+I guess if you want the ideal conditions, try and hitch a ride on the elite man train -- else, you're comin with me :)
 
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
