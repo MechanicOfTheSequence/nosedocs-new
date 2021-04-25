@@ -8794,6 +8794,67 @@ this kind of paints a picture like the elite man train will be leaving soon and 
 
 I guess if you want the ideal conditions, try and hitch a ride on the elite man train -- else, you're comin with me :)
 
+### 2021-04-24 17:49 - little more on the split n' stuff
+
+again, I don't really know what to say exactly so I'll just start by telling of recent events. yesterday was filled with reactions to what I wrote about the differences that I see and what others see. the main concept there is if we look at it in the symbolic sense, taking a bit right out of the book of matthew, with the symbolism of being cast into the fire as symbolic of the baptism of fire:
+
+> I indeed baptize you with water unto repentance, but He who is coming after me is mightier than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and fire. Whose fan is in his hand, and he will throughly purge his floor, and gather his wheat into the garner; but he will burn up the chaff with unquenchable fire. (Matt 3:11-12)
+
+> Let both grow together until the harvest: and in the time of harvest I will say to the reapers, Gather ye together first the tares, and bind them in bundles to burn them: but gather the wheat into my barn. (Matt 13:10)
+
+```
+II Samuel 23 3-7:
+The God of Israel said, the *Rock* of Israel spake to me, He that ruleth over men must be just, ruling in the fear of God.
+
+And he shall be as the light of the morning, when the sun riseth, even a morning without clouds; as the tender grass springing out of the earth by clear shining after rain.
+
+Although my house be not so with God; yet he hath made with me an everlasting covenant, ordered in all things, and sure: for this is all my salvation, and all my desire, although he make it not to grow.
+
+But the sons of Belial shall be all of them as thorns thrust away, because they cannot be taken with hands:
+
+But the man that shall touch them must be fenced with iron and the staff of a spear; and they shall be utterly burned with fire in the same place.
+```
+
+so there is this weird mixing of symbols between the manchild of rev 12 and this rock of israel mentioned by samuel. the idea is that there is this saviour guy that will baptise with fire. in short, this baptism is allowing the weeds to grow up amongst the wheat until the time of the harvest when the rock of israel, the man who will rule with an iron rod is going to throw all the naughty weeds into the fire.
+
+what this appears to me is a distinction where there is a separation that occurs where one is going to go through tremendous heat and the other is the good harvest which has a just and rightous ruler ruling over the nations with an iron rod.
+
+---
+
+so, I'll just put this plainly. I am the "belial" guy and they need to get rid of my sons because they are a real problem -- a thorn in the side of the rock of israel. I am the "satan" and the deceptive one -- the "shameless one" -- the "anti-christ" (in the sense that I *will not* be a saviour for someone). and we are heading for a baptism by fire.
+
+what this means literally is things are going to start getting more and more energetic to the point where things start to heat up rapidly. I propose that the heat is not actually caused by the sun directly but is actually the biproduct of nosebook neutralising the energy (orgone) in the air. that gives off that "stingy" heat which I postulated is essentially the accumulation of hydrogen (orgone) energy.
+
+they don't want that energy because it increases the speed at which LOA works, which is something they can't control very well. they want to be able to control (rule over) everything justly, so they can't have any surprise manifestations. everything needs to be calculated and expected. everything should follow the laws of probability. nothing exceptional should ever occur.
+
+however, I am just the opposite. I love the unexpected. think about humour. the thing that makes you laugh is the unexpected. the thing that makes a story exciting is the unexpected. what they intend to do is to get all of the conditions so well controlled that "random" no longer exists and everything can be calculated or predicted. I don't believe the opposite of that. instead, I believe that time is navigated by emotion or vibration and if you can feel good, then you can *expect* the conditions to reflect how you feel.
+
+they want conditions to be expected and calculatable so that they can be the cause for how I feel. I want to feel and allow the conditions to reflect that. I don't want to be able to expect or calculate the conditions (variables), knowing that they will all reflect how I feel anyway -- and the fun part of it is experiencing unexpected which gives me evidence of how good I feel.
+
+---
+
+obviously the setup that I want is completely incompatible with the conditional approach. it's also only good for the top half of the emotional scale. if I feel good and unexected things which feel better than how I feel are showing up, then great -- however, if I constantly have unexpetcted things showing which feel worse than how I feel (cause I feel pretty bad to begin with), then it's not very fun. I understand why they want to have everything calculated. I also understand because I love building things, knowing exactly how they work and being able to rely on it operating how I designed it. I understand both perspectives. I just find the feeling approach more fun, is all.
+
+so back to the baptism of fire. you have to think about this as a kind of "trial by fire" sort of thing. as energies rise, LOA will take effect more and more rapidly, essentially burning away all of the bad-feeling bits. if you feel bad and are attracting your reality at near-instant rate, it'll be a bumpy ride.
+
+I actually believe this is the origin of the y-chromosome bottleneck in the genetic record. what I mean is, back during the time of atlantis, I believe energies were much higher and so things manifested much more rapidly and stuff. the men that weren't able to find a way to feel good, essentially died. there were very few males that were capable of surviving the increasing energy levels. the ones that did were the ones that could find ways to feel good. I think there were rules in place to keep people from doing a lot of really bad-feeling things, but in general, I think that a lot of the successful y-chromosomes were quite conditional. they found different conditions that felt good allowing them to survive.
+
+so what I propose here is that we are the weeds, and the ones that need the good conditions are the wheat (the "good harvest") and the sun (and LOA) is the consuming fire. I'm fairly certain that they're super duper earth environment will be *very* exclusive, which means that there will be a large majority with me heading into the fire.
+
+I don't see any problem with that. I am wide open and constantly attempting to find new and more optimised ways of perceivng reality which feels good. none of it is a secret. everyone can find a way to feel the way they want to feel, and as long as they *want* to, they will find it. it's essentially survival of the fittest, but everything is wide open and there are many solutions, with new ones being discovered (at least by me) every day. the only one deciding not to feel good is the person that doesn't actually want to find a way to feel good.
+
+like I said, I belive that the coming deception in the next era after this separation is a confusion between *physically* feeling good, and *emotionally* feeling good. I descirbe (in a general sense) the physical aspect in terms of pleasure and the emotional aspect of feeling good as joy or euphoria.
+
+it's hard to tell the difference between these two, but there are some easy distinctions to make. physical good feeling has a tolerance to it. if something physical makes you feel good, then each successive time has diminishing returns to it. emotional feelings keep amplifying theirselves until you change the trajectory. if you feel joy, later you feel feel more. if you feel depression, later you will feel more. I believe that these will be purposefully confused, as people will find many *conditions* to feel the way they want to. out of this, I'm sure, a huge commercial enterprise will spring up.
+
+you can see now that essentially both sides of the split will result in the same thing of using physical conditions to create the feeling. the difference is the starting point. the super cool elite man train will roll along just fine until something comes along and upsets the controlled environment. I don't know how it'll happen, but with human's ability to get bored and gain a tolerance to physical conditions (good or bad), I figure eventually the fear of disaster will surface at some point. some time after that I believe they'll naturally come to the realisation that you cannot depend on physical conditions for emotional well-being. they'll figure it out their own way. I have certainty.
+
+the other way, my direction will I'm sure start out unconditional, but it'll quickly be realised that controlling the conditions affects the feeling, which does make a better manifestation. after some time, we'll likely abandon the whole idea of perception creating the unexpected manifestation as a reflection of the feeling/perception, and instead of modifying perception, we'll stagnate into directly controlling the physical feeling as a means to create the new "exciting" and unexpected manifestation.
+
+that's my proposed trajectory for the control structure, which is designed to fail in the future. obviously, it'll create an evolution in our perception of the unexpected. I have no idea what it'll be nor can I imagine it. I can only target this as the next area I think we should fail at :)
+
+for me, all of this is the art of failing gracefully and expanding continually. for me failing and "recovering" into something unexpected but much better than I could have imagined -- is *way* more fun than getting the perfect expected thing. so yeah, anyone who doesn't want to do that, try and figure out how to "redeem yourself" to the rock of israel :)
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
