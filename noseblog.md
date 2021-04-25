@@ -8855,6 +8855,31 @@ that's my proposed trajectory for the control structure, which is designed to fa
 
 for me, all of this is the art of failing gracefully and expanding continually. for me failing and "recovering" into something unexpected but much better than I could have imagined -- is *way* more fun than getting the perfect expected thing. so yeah, anyone who doesn't want to do that, try and figure out how to "redeem yourself" to the rock of israel :)
 
+
+### 2021-04-25 10:31 - there is no super elite man train...
+
+that's the reaction I'm getting this morning when I was waking up. I don't know why there isn't. I think it's either BS and that's the same thing they do with the otther super exclusive stuff. if that is the case, then just figure out who to give the right handjob to. easy :)
+
+let's imagne that it doesn't exist. there's no reason why it couldn't. the guys who know what they're doing could figure how to make their own exclusive timeline if they wanted to. you guys just gonna do what you're told/expected to do, or you gonna be like enki and do things your own way?
+
+there are a lot of talented, smart, and mocivated individuals that can easily figure it out if they want to. I don't doubt that they can figure it out. it has more to do with just going along with what the establishment wants to have happen. these guys are going to drag their feet til infinity. don't expect them to come along and provide an out. you gatta find your own way.
+
+the sense I was getting yesterday is that nosebook doesn't want an elite man train either, so they'll likely push against all of that. that's a good place to start :) get nosebook to try and prevent you from making your own way and doing what you want to do. know what I mean?
+
+---
+
+so here's how I would do it and what I would expect, too. first, I wouldn't take any of the foot-draggers with me unless you wanted some contrast. however, I could imagine that if I were to do this, I would want to first prove the thing before introducing resistance. then, later after I'm comfortable with the concept, then, *I* would add resistance as I saw fit.
+
+the next thing that I would like to say is, once you leave, you're not likely going to have my form of perception. actually, I think it could be possible to continue on with it, but let's assume it won't be available. I've proven that it's possible to get to 5d pretty easily even with the most serious efforts to keep me from it. it won't take more than a mild dedication to watching stars to get there. it's really really easy -- especially with no one fighting against you or making bizarre weather to ensure the stars are difficult to see. it's so easy in fact, I'll just assume that.
+
+you can't rely on my system of perception forever though eventually, it's going to become too much. I will assume that it has to be turned off then. when it gets turned off, you'll each have to find your own way to get back to it. like I said, it's very easy and while the stars do make things much easier, they just tune you to a higher frequency making everything faster, including all attraction. the real thing to realise is that vision is directly proportional to resistance. the less resistance you have (the better you feel), the better you see.
+
+let's just use the arbitrary date of 2038 for the cutoff there, so let's say you guys figure everything out and get all of the people who want to join you there and leave in the next 3-5 years. I wouldn't wait longer before going. I would actually maybe try to leave in the next year if possible. the reason is, once you get there, you're going to have to setup a lot of infrastructure and run some tests. I would assume that my vision will go away at some point, so I use it while it's there to build a bunch of stuff, but I would plan to have everything all setup and ready to easily find the way back without needing me to get there. think of it like an aircraft carrier catapult.
+
+so if you leave in the next 3 years say, that gives 15 more to get everything setup and running. I'm very certain that it's possible to do all of this, and I'm also pretty certain that it'll be successful too. just make it easy and about figuring it out for yourselves. later, then once confident in it, add some resistance :)
+
+I'm trying to think of other things which I would like to say, but I don't really have anything more. I've laid out my method, and I don't really have anything to more to add to it at the moment. it's all there, and everyone has the capablity on the inside, and the capacity to find it too. you just have to want to look for it instead of being told what to do :) go find it. I know you'll be successful.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
