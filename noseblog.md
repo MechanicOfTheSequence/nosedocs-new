@@ -8880,6 +8880,33 @@ so if you leave in the next 3 years say, that gives 15 more to get everything se
 
 I'm trying to think of other things which I would like to say, but I don't really have anything more. I've laid out my method, and I don't really have anything to more to add to it at the moment. it's all there, and everyone has the capablity on the inside, and the capacity to find it too. you just have to want to look for it instead of being told what to do :) go find it. I know you'll be successful.
 
+
+### 2021-04-27 13:24 - no elite man train?
+
+the reaction I was feeling is that at the beginning it felt like a good idea, but then lemme guess, you slept and when you woke up all your desire for the idea faded and now the idea feels so-so at best -- just kinda blah.
+
+whelp, that's nosebook's work right there. that's how everything from my own programming to each of the girls has been. the idea feels really great at the beginning, but after some time it diminishes and becomes less fading into nothingness. can anyone relate to that?
+
+I think they are actively searching for ideas they want to attenuate -- things like protesting or anger or misstrust (does anyone find it weird how distrusting all people are are for everything government/military/police related, EXCEPT nosebook?). basically, they must have filters to locate unwanted thoughts and are systematically turning those to feeling bleh.
+
+it may sound like a good idea for things like removing the desire for violence -- which coincidentally is why I believe that the majority of polical protests and violence is controlled/planned violence by the establishment to further their causes. however, here's the thing: if you push against something you will make it bigger. therefore they are essentially doing at a low scale right now (I'm not sure how they're transforming/neutralsising them) the idea of the great pyramid as a filter or transformer of unwanted (into bleh). yet because LOA is making all of these things bigger, this is a very good thing for some of us and not so good for others.
+
+I mentioned that I potentially may have a lot of really crazy (unwanted) stuff manifesting in my reality (fires, plagues, disasters) as I began to manifest bad-feeling thoughts into reality instantly -- and if they're neutralising them, then I'm largely oblivious to those thougsts and feelings. when their filter goes away (or I produce more energy than they can neutralise), a lot of bad stuff may manifest. I don't consider this a problem because I'm so rapid in my response time, and rapidly change things that don't feel good into ones that do. however, I will say that I doubt nosebook is filtering out too many things that feel bad to me, because they *need* me to continue to feel bad. the minute I start feeling good, they havce problems because I start getting capacities. they probably minimally filter out bad-feeling things for me, so really not a problem.
+
+---
+
+however, what I really want to talk about here is how great it is that nosebook fights against these things. they will eventually manifest. their pushing against the ideas (both good and bad feeling) is only making them bigger, so while it may feel like the idea to go and do your own thing feels bleh now, that's not how it *really* feels.
+
+what I have learned is that it's OK for them to fight against the ideas. I even kind of allow it, waiting a few days often times with the girls. each of those ideas are becoming more desirable even if they can't be felt that way right now. I've found that I it's very good to just have the idea, know that it felt good, and even though I can't feel it so strongly now, LOA is working away, and it is becoming more desirable/undesirable. they're pushing things to their extreme. so, just have the ideas, enjoy them while they feel good, but don't try to make them happen. they are all becoming much much more without any effort. much more anyway than they would have been with effort.
+
+what I would like to say about that is there will eventually be a tipping point where their efforts to keep everything neutralised will no longer work. things will become too much. the sun will emit too much, we're attracting too strongly, etc. and we'll race past their ability to add more neutralisations. they'll have to choose their top priority neutralisations carefully with their limited resources (they love limitations).
+
+at that time, so many of these things will manifest very very rapidly. therefore, while this is happening, I'd just take this COVID break and do some thinking, get some ideas and let LOA get your desired realities all ready to experience. things will be extreme, I'm sure of it.
+
+enjoy their pushing against. they're making it bigger and therefore better/worse for you by pushing against the stuff they don't want :) try to give your attention to more wanted stuff than unwanted stuff so that's what comes out more. though, it's no problem if some unwanted stuff manifests either. it's just a quick change toward wanted. really not a problem.
+
+anyone not resonant with your vibration is going look insane to you. inotherwords, most people are going to think 80% of the world is insane (kinda like now, but way way worse).
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
