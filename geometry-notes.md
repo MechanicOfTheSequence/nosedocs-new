@@ -8,7 +8,7 @@ phi = fib(n) / fib(n-1)
 phi + 1 = phi * phi
 phi - 1 = 1 / phi
 phi^3 = (2 * phi) + 1
-phi^2 = (root(5) + 3) / 2 
+phi^2 = (root(5) + 3) / 2
 
 ### lucas numbers
 
