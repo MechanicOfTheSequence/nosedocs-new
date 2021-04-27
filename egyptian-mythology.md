@@ -52,6 +52,7 @@
   - mercury gave her:
     - "a shameless mind and a deceitful nature"
     - the power of speech, putting in her "lies and crafty words"
+- green skinned @[youtube](https://youtu.be/ZrpyM5cEsss?t=352)
 
 - consorts:
   - maia
@@ -242,3 +243,40 @@ I think when the 4th is discovered, then the crown becomes virtual, and the root
 it's worth also noting here that if we apply this back to the nile setup, let's assume that giza will be the top and elephantine is the bottom. there is considerable evidence that this is the case because if you look at the zodiac, if the end of taurus is the top, then the beginning of libra will be the bottom. libra was always associated with elephants. I consider elephantine island to taurus mountain to run the full extent of the spine in this enlightened, all 5 chakras (not 7) enabled man. I would imagine that the macro is simulated in the micro, meaning that there are likely chambers corresponding to these in the great pyramid.
 
 as I was looking at the vitruvian man pyramid configuration (@[youtube](https://youtu.be/yPdnpBSLoJw?t=194)), I keep wondering why there wouldn't be something located at ground level. they went to such extraordinary effort to get the floor tiles just right (ground level -- which is funny because jesod means "foundation"), that either the floor tiles (foundation) is the important part of that layer, or there is something located in the very centre at the same level as the floor and the socket. also it just seems so much to me like there should be a second "kings chamber" for the other side. the whole passage is aligned to the left of the pyramid's centre, the "trial passages" have a second indentaiton on the right side. correspondingly, the scan pyramids project detected a void aroound the area of the right pectoral on the vitruvian man is. additionally, I think this corresponds to the bent pyramid, while the "king's chamber" corresponds to the red pyramid. looking at the plan for dashur, it may be possible that there were actually 4 installations there, not only the red and bent pyramids.
+
+### seth vs horus
+
+watching @[youtube](https://www.youtube.com/watch?v=ZrpyM5cEsss), I just realised when he was talking about the follows of seth in the north (lower) and horus in the south (upper). these fit in with the conflict between space and time. horus, being the rebirth of osiris (saturn) represents the time component and seth is the space component.
+
+he goes on to explain that the myth of osiris may have been created to incorporate the culture of the conquered region (unification of upper and lower egypt). this explaination does seem sound, however, there is missing data here. osiris is killed by set (lower egypt), then isis (sirius) rebuilds osiris as horus, of whom narmer is the embodiment, which then, coming from upper egypt, conquers lower egypt.
+
+so who was osiris then? seth (lower egypt) kills osiris, but we don't know who that is. it has to be referring to a pre-dynastic ruler. isis (sirius) rebuilds osiris (saturn) in the form of horus who revenges the death of osiris (saturn).
+
+
+### egyptus
+
+in the pearl of great price, egyptus is the name of two women, first the wife of ham and also the daughter of ham and egyptus. this reminds me of khnum, specifically the statue of "menkaure" with his wife and daughter, which I think, because the writings are scratched in, this is originally a statue of khnum and his wife and daughter -- or, perhaps ham, egyptus and egyptus.
+
+the khemet lands (black lands) may also be a veiled reference to the black (khemet) madonna, or the daughter egyptus as she (the daughter of sekhmet) will return to rule over egypt some time in the future. this may be encoded partially into the lion goddess symbolism of the sphinx (TODO: johanna has a video on this).
+
+### reversal of the nile
+
+there are some interesting proportions to the nile which I see. depending if you look at the water flowing up or down the nile. the reason why I say this is because if we assume that elephantine is the regenative centre of the nile and giza is the pineal, if looked at like a tesla coil, giza will *receive* the electricity from the air (land of thoth) and flow up the nile toward elephantine which is the ground. along the way, I'm not super certain of all of the others, but the only other I feel pretty certain about is the bent pyramid being the centre (heart).
+
+I find it interesting that the sirians list the males of second triad (pre-atlantian gods) as ra (-3, so he was a throat manifester) which could thought of here as set/space, and osiris (-6) as the time component. these later transform into the alantian triad of saturn (-4) as time and thoth (-7) as space. finally, the last triad is zeus (-7) as space and vulcan (-5) as time. these correspond, I think to different places on the nile as humans pass through different initiations.
+
+### wepwawet
+
+seems to me like the rebirth of the god ra into a military form. he is symbloised as a wolf (wild dog), probably as a kind of opposite to the lioness (wild cat) and the enemy of the shepherder[^1]. there's also an interesting reversal where the upper egypt (smooth, rounded, feminine) makes a sudden transition into military horus kings. if horus was really a chill guy then I wonder why his reborn (horus) self would suddenly become so militaristic.
+
+why would a military god be called "opener of ways"? it may be referring to the a forced evolution, where some change occcurs, forcing an evolution and "opening new ways". not sure.
+
+[1]: this also happened at a time when civilsation started to become aggricultural more than hunter/gatherer (aka shepherds).
+
+### consideration of what green skin could symbolise
+
+one idea that came to me is that different skin colours represented mean the type of person that it is. kind of like a racial denotation of ancient history. there are the red-skinned phnecians/etc, then there are also talk of blue skinned beings as well. I think there are also yellow skinned references as well (asians).
+
+so, imagine that what they're trying to denote is a "ray". in my system red would be the physical and purple would be desire, making green the centre or heart. yellow would be emotion, and blue would be mind. there may be something here in reference to different primordial culture groups and their affinites. this may be a piece to the exodia human puzzle, too.
+
+I find it interesting that ptah, osiris, and khnum are all depicted as green-skinned, usually in association with the centre (memphis, etc).

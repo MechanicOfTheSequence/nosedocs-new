@@ -445,3 +445,114 @@ when I had the brain haemorrhage, I clearly identified jesus entering my body. a
 clearly, the twins are the divided halves and the point is to get them to come together so that all 7 layers become functional. I have postulated that there may be an intermediary phase before this happens. this is the fully "connected" version of yourself -- the one that would appear to the custodians as "uncontrolable". I postulate that the intermediary stage is one where we're all *kinda* connected.. only 5 of the layers will be available to us. I talk about this further in @[noseblog](2021-04-08 20:04)
 
 I would also say that 1/7 work well together. there are some traps which I will outline here as well.
+
+# bardcast #17
+
+@[youtube](https://www.youtube.com/watch?v=gcNnsDoPsM8)
+peter dawkins
+
+### gemini twins
+
+I like this story that peter is relating about the gemini twins. one of the twins is immortal and the other is immortal. the twins loved eachother very much and were good friends. however, the mortal one died from a mistake (this reminds me of the "fall"), and so the immortal one went to zeus brokenhearted and said that he wanted to give up his own immortality so thst his brother could come back to life. zeus responds by saying, "why don't I just give both of you the gift of being immortal mortals" -- and so his brother was saved.
+
+this is kinda like the alpha is the mortal, he dies then the immortal twin petitions the mortal twin's ressurection with his own mortality and they both become immortal, the omega.
+
+similar he relates to the dual title of "son of Man" and "son of God". I've always wondered about this, and I suppose it may be referring to a genetic thing where some part of him is born from immortal blood of the "gods" and the other part of him is born of human blood. I think the human bloodline eventually turned out to be better than the royal god blood...
+
+anyway, the dual title reminds me of my father who, when he named me, named me "kenneth" because he would always have struggle between being "fair in the sight of God, and being fair in the sight of Man". I always took that to heart, taking the obvious infrence there to alert me to not putting too much effort into being fair in the sight of men, but to keep myself concerned spiritual fairness instead.
+
+I've always seen myself as dual in aspects. I believe that EVERYONE is bipolar actually, and has not only two sides to them but two gender roles to both sides too, which perfectly matches the two twins, immortal and mortal, each of which are both male and female. I believe this is largely neglected, and people (mostly men) underrate the importance of their opposite side.
+
+---
+
+gemini = AA = 11
+
+---
+
+### john anthony's work
+
+I've been watching your videos from start to finish here and I think I'm ready to comment now. while I think that there are a lot of de vere references, it seems to me like this period of time seems to mark a sort of temporal resonance. just go with what I'm about to say here, though it may sound a bit crazy, I'm going to try and present it as best as possible.
+
+like I said, I believe the royalty debacle is a sort of temporal forshadowing in the form of comedy and tragedy (he's not king and the 18th earl isn't his son either). let's begin with this verse here with the burnt offering with a dot below it. clearly, the verse is talking about the zodiac. this verse in job clearly is talking about the zodiac, because it says to bring 7 castrated bulls, and 7 rams, and then to make a burnt offering. following the biblical narrative, noah would be the bringer of the taurus/ox era, moses the mars/aries era, and jesus the fish.
+
+I believe the play hamlet is talking about the next era of the zodiac as well (though I have not read it yet). I believe the writers of shakespeare had tapped into a form of temporal perception (I have a lot to say about this, but it involves increasing the amount of DMT your brain produces, likely accomplished with the MAOI technique, which non-ironically is also a monoamine oxidase inhibitor, allowing DMT to pass the blood brain barrier -- like harmaline, one of the ingredients for ayahuasca). point is, they clearly are are able to have a shared temporal perception. this can belikened to 5D... I can explain more if you want to, but it allows for things to be perceived conceptually. you can literally behold things, perceiving them all around and in different moments of time -- which is just how something feels slightly different in the future or past. I'll come back to this.
+
+noah, had 3 sons, shem, ham, and japheth. shem is the semites (phonecians, hebrews, later isrealites), ham is the black guys, and japheth is the white guys. it's a very egyptian perspective on the matter. considering that the torah was written by moses who grew up in egyptian palace, it's not surprising. also, the egyptian flag contains these three colours as well: red (shem), black (ham), and white (japheth). in the story of hamet, the polonius guy being called japheth is the white guy. I have to look it up, but I think this polonius guy is one of the pen names for gaius calpurnius piso, which may have some refrence there (which is why it feels to me like these events are symbolic, which when people focus their attention on these temporal concepts, perceived as symgbols, it shapes the trajectory through time, making time resonances).
+
+there are a lot of references to saturn that I'm noticing, and the other place where there is a dot is eclipses and times. "times" is a really weird because it uses the normal "s". eclipses uses both the normal "s" and the functional "s" -- eclpfes. so you know these, besides just the dot are important.
+
+in a prior video you refrenced the 5 autumns and a titan. you made the connection between rich and rhea (venus). what I took away from that video is that devere perceives himself as adonis (consort to venus), but he had to share her with mars (aries). going through the mythology, things get muddy, but venus was the consort of vulcan. vulcan was born from hera (tiamat?), while athena/venus was born from zeus. I think saturn was the original "el" the primary sun god. in egypt, he's osiris opposite to ra who I think is more similar to jupiter called in that time as "ba-el". adonis and saturn seem to be the same guy (archetypically speaking).
+
+to me it looks like there are 2 sets of archetypes here. I'll call them saturn/vulcan/enki/adonis and jupiter/ra/thoth/enlil. their female counterparts are let's say hera and venus. venus was born of zeus yet is the consort to vulcan. there are a lot of weird crossovers and a lot of blurry lines between the gods and goddesses, but they fall into variations (or mixes with humans) of these two archetyes of time and space. I believe hera is feminine time, giving birth to vulcan. venus/aphrodite represents the physical, being born of zeus. look carefully and you see there are two sets of twins here. two male and two female. as the gemini story goes, one is mortal and the other is immortal. one is god and one is human. son of god and son of man.
+
+it's woth noting that en-ki/saturn/serpent symbol is associated with earth and also time, while the jupiter/eagle symbol with air or physical/space/matter. so earth/time vs air/matter. I think each ruling over their opposite domains is intentional.
+
+it's also worth noting (cause I haven't read it), that it may be "the two gentlemen of uranus" veronus as a funny v/u letter swap to encode unanus' sons (saturn and jupiter). I also see these two (space and time) potentially being the separated twins (the gemini), who's embodiment of the alpha and omega during the traversal of space and time -- each taking turns being good a part of the duality (as perceived good/bad in the corresponding zodical era).
+
+as an example, in the sonnet 116/119, "time" is capitalised. I read that as saturn. there are other places where I would read the word time as saturn as well. considering the context of sonnet 116, it seems to clearly describe the saturnian picture. I believe this is a masonic refrence to "father time" and the broken corinthian column. the corinthian column is the maiden and its broken state seems to be this message. when I look at sonnet 119, it really gives that impression to me.
+
+---
+
+ok so that's the background to where I'm coming from. it's gonna start to get wierd now. this whole thing shows me the way toward the perfection of mankind. there is a raising up to the next level. "I" (eye/yo) splits into I/J, so L/el (11) moves from 11 an imperfected state, into the perfected 12 state. k(10) now moves to 11. "V" (you) splits into U and V. moving v(20) to 22.
+
+I don't really know how to explain this next part easily so just ask if you have questions... I contend that the zodiac can be considered as the world tree or the tree of life. the serpent is associated with the earth (ki) and the eagle with the air (prana). en-ki (prince of the earth, the original IAM, labeled in the king james folio as dedicated to the prince IAM(ES)). I believe this is the serpent energy (kundalini) that rises up the spine and is a reference to saturn. jesus would be the king (or the other way around, dunno).
+
+it seems that these guys (saturn and jupiter) are very strongly tied together. they are time and space -- the two twins that cannot be separated. even in modern measurements, we define distance with a measurement of time, and the measurement of time is done with matter (cesium-137 atom). or, from a metaphsical standpoint, you get the serpent (earth) energy by breathing air, and love/sex (earth) energy can also produce massive amounts of prana (air) energy and can cause tragedy. this is likely what vere was talking about in sonnet 116/119.
+
+so anyway, what I contend is that time is conceptual. your memories are your brain's ability to tune into that moment in time. *all* memories and experiences exist in a common place and you can tune into your own memories easier than others, but you can tune into any experience in any moment of time. the further away in "time" the signal is, the less physical it is, which is why our brain translates them symbolically.
+
+I believe that what vere was kind of realising is that he is kind of like a living symbol of man's trajectory through time. I believe that our planet has passed through three of the quadrants of the zodiac, with one still remaining. we know that at some time venus was "born" and in all of the symbolism she holds power over the lion or is depicted as a fearsome cat. the "flood myth" with gilgamesh, he and enkidu defeat the heavanly bull. it seems that this zodiac cross has to do with these four points: man, eagle, ox, lion.
+
+there is promise that the "lion of judah" will happen. the problem is the lion is exactly opposite the man (sounds like the sphinx). the other strange thing is that there is so much effort to encode two symbols.. the gemini and the tau-rose (taurus) symbols into the works.
+
+let's just assume that the "burnt offering" has to do with the sun (the literal one in our solar system) and this has to do with the baptism of fire (matt 3:11-12, matt 13:10, II sam 23 3-7), that saturn is satan, (or the 7-headed dragon with 10 horns in rev 12), which makes him the belial guy mentioned there in II sam 23 in connection to the burnt offering, thorns, and the speare.
+
+> But the sons of Belial shall be all of them as thorns thrust away, because they cannot be taken with hands: But the man that shall touch them must be fenced with iron and the staff of a spear; and they shall be utterly burned with fire in the same place.
+
+what I'm seeing in the work here is that "de vere" considers himself to be a symbol of the perfected man -- the man that will result after the completion of the 4th tau. like I said, we've gone through 3 of the T's in the cross there, so it's time to ge through the 4th T. the fourth T I believe starts in leo and ends in gemini, upon which we will arrive back to tau-ros.
+
+jesus says (mat 6:22) that the light of the body is the I, therefore when thine II's become single, the whole body will be full of the light (FIAT LVX).
+
+in the story of noah the major event that transitioned them from one world age to another, lasted 4T days and 4T nights. jesus fasted for 4T days, moses spent 4T years in the wilderness... etc. it's a code :)
+
+tl;dr: the authors of shakespeare are manipulating time with symbols and concepts presented in the works of shakespeare as a method to alter the trajectory of time through more of the symbols in the comedies and tragedies. some of these events may be literal, I grant you that but I think it more likely that the "vere" symbol may have more to do with the man (vir) being perfected in preparation for the full kundalini rising initiation (the fourth T).
+
+====
+
+two corrections:
+
+first, I'm not sure why it reminded me of gaius calpurnius piso. there's a guy that suggests (somewhat convincingly) that piso is plutarch. for some reason I got that mixed up with polonius.... oh well.
+
+most importantly,  I immediately assumed that the feminine form of saturn would be he hera because vulcan came from her. however, upon further thought, I realise that hera is very much like zeus with shapeshifting and other physical-like characteristics. she's not very conceptual. what I'm looking for is a goddess that's very symbolic/conceptual in nature. I tried hard to think of one and I can't figure any out off of the top of my head, though it's quite possible that what I'm looking for is demeter/persephone. I find that interesting because every time you said penelope (rich), my brain interpreted it as persephone (of the underworld). it's quite possible that this feminine characteristic is the creative desire of the fourth T. I don't know.
+
+### sonnet 116 & 55
+
+these seem to be talking about the end of the world, both containing the words, "edge of doom". 116 speaks of time in relation to love,
+
+"Lou's not Times foole though rosie lips and cheeks"
+"Loue alters not with his(Time's) brief houres and weekes"
+"but bears it out euen to the edge of doome"
+
+so love, though rosie lips and cheeks doesn't alter with time it continues on till the very bitter end (edge of doome).
+
+55 takes a different look at it.
+
+"you will shine more bright in these contents than unswept stone, besmeared with sluttish time" (I think time here is a refrence to saturn and physical/sluttish love)
+
+it goes on for a bit about mars (aries), war, death, but it sounds like you (the reader/humans?) will continue on to wear the world out until to the ending doome followed by a very LOAesque phrase:
+
+"so, till the judgement that your selfe arise"
+"you live in this [judgment] and dwell in lovers eyes"
+
+... but remember that love alters not with time's hours and weeks (it's eternal/immortal). it bears it out even till the edge of doome. bears what out? the wars, death, and of mars (aries) and his sword -- till judgement of yourself arise
+
+---
+
+so, all of this should be put in the context of job 41 (the leviathan). it's describing something pretty scary sounding (scales, breathes fire, strong, etc.), but then the final verses are very telling:
+
+33 upon earth there is not his like, who is made without fear.
+34 he beholdeth all high things: he is a king over all the children of pride.
+
+so, he's unlike anyone else on the earth (set apart), he's fearless, and is king of all children of pride. this sounds very de vere :) however, it's describing a sea dragon. the sea dragon beholds all high things, not sure if high means lofty or high means perspective (like an eagle).
+
+anyway, the sumerians have the earth (ki) coming from an a very chatic sea dragon (tiamat). she may not be a dragon herself, but she gives birth to dragons and snakes. being a sea dragon, she also qualifies for the underworld (like persephone).

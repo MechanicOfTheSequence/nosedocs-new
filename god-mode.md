@@ -42,8 +42,8 @@ I have noticed that *all reality* is a program. it's a conceptual program though
 these are some ideas that I have found useful and also things I would have wanted to know early on to get me started, too.
 
 I will use a few different ideas interchangably:
-- emotion = code = reality
-- thought = data structures (with data) = details
+- emotion = code = reality = consciousness
+- thought = data structures = details
 
 when contemplating the idea that reality is an emotion and also code, consider the practical task of searching your brain for data. it's impossible to consider all data that you have ever noticed in the form of individual thoughts, so what I do is I writo some code (which is an emotion) that feels like what I'm looking for. I then let it work in the background while I'm doing other stuff. when the results have come back, I will feel the answer. I then have to speak it or think it (translate it into physical reality with words) to be able to retrieve the contents of the search. I like to think of my brain not as physical memory. I memorise almost nothing. instead, I just remember how to find what I'm looking for.
 
@@ -65,12 +65,23 @@ contemplate that idea because I'm saying that you are generating your own time w
 
 imagine you are at one concept in space. that program runs, and it causes you to feel the same (but slightly more intense) so another very similar program (or the same one) will run right after that. to avoid infinite loops, you have extra code to break you out of the loops (distractions, etc), but in general you will find yourelf continuing to run (over and over) similar programs that exist in that address space. you can design programs (I call them interrupts) which will break this loop or even alter or recognise undesireable parts of the address space. each time a program is run it increases the intensity of the present. I think we need 3d addreass space. I'll come back to this.
 
-the best programs move you to another part of the address space. there's no sense in continuing to keep running the same program unless you *want* it to intensify. diversity of programs creates for a richer experience. 
+the best programs move you to another part of the address space. there's no sense in continuing to keep running the same program unless you *want* it to intensify. diversity of programs creates for a richer experience.
 
 [1]: anyone familiar with the demo scene will recognise this technique as a way to generate vast ammounts of data using a very small amount of code.
 
 [TODO: explain that later, this faculty transforms and intentional feeling (input) can produce thoughts as (output). for example, if you can convince yourself that you are able to figure anything out, then in any moment when you don't feel that way don't dispair, it'll come back and you will figure it out. thoughts and emotions are both inputs and outputs]
 
+locality and non-locality of conncepts:
+- they exist in 3d space as time
+  - more concepts running increases intensity
+  - each concept has its own code and ip
+    - code breeds more code
+    - reactions from other consciousnesses (code) also makes more code
+    - everything is always replicating adding making more
+      - there is no limit, and in fact it's opposite from finite computers
+        - more things running = more results
+        - more data = faster results
+- the feel the same no matter the time (sadness feels the same today as it did 5kya)
 
 --------------------------------------------------------------------------------
 ## it's easier to recognise things you don't like about yourself in other people
@@ -105,3 +116,7 @@ feel your importance in the moment
 
 
 really, take it to the limit... only people who are douchbags will perceive you as a douchebag. they ca
+
+### glossary
+
+perfeel: short for "perveive it in a way that feels". sounds like "perfil" in spanish.
