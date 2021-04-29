@@ -8936,7 +8936,7 @@ though, when I started to think about it, back when I was trowing the coin, thin
 
 this made me think that maybe I'll go back to using the coin to make decisions. I had a dream this morning where when I woke up, the idea was that we should just continue on without a manifestation for as long as possible for the rest of the time. I'm down with that, I guess. maybe I'll lean into the lottocracy and start making my decisions based on "random" again -- what could go wrong?
 
-the last thing I want to talk about is that I came to the conclusion that the probability management group tries to affect random with beliefs becasue I noticed that when I was playing hearthstone, after getting an 8 game winning streak, I remember I queued into a game and the first thing I thougt was, "I'm not going to win this one." it was a very foreign thought to me, and sure enough I didn't. I almost did though.
+the last thing I want to talk about is that I came to the conclusion that the probability management group tries to affect random with beliefs becasue I noticed that when I was playing hearthstone, after getting an 11 game winning streak[^2], I remember I queued into a game and the first thing I thougt was, "I'm not going to win this one." it was a very foreign thought to me, and sure enough I didn't. I almost did though.
 
 I noticed that these minute changes to the probabilities seem to have to do with a small voice and the way things feel. when I was throwing a coin I also noticed the small voice, and it's discord with me is what eventually made me come to the conclusion that my "random" coin flip was reflecting my belief, and that belief was in some ways predicted.
 
@@ -8947,6 +8947,8 @@ however, what I was suggesting above is, to follow the coin anyway -- even if it
 you know, like what if I just went full disaster and decided to follow all of nosebook's directions? what I'm thining is that has a funny outcome to it because first, I don't think even they know what they want sometimes, so that means they'll have to come to an agreement -- or, at least mr. motor will need to agree with the PMG.
 
 [1]: it may also create a new type of belief-based religion with people blessing "RNGesus" for a beneficial outcome. I mean it's practically the same as offering sacrifices to a god for good fortune, right?
+
+[2]: for some reason, I thought it was an 8 game streak. I got the reaction that data was wrong, so I looked up the achivement, because I remembered I had an achivement. turns out it was 11 games streak.. wow. I honestly didn't know I did that well.. sweet :)
 
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
