@@ -8950,6 +8950,53 @@ you know, like what if I just went full disaster and decided to follow all of no
 
 [2]: for some reason, I thought it was an 8 game streak. I got the reaction that data was wrong, so I looked up the achivement, because I remembered I had an achivement. turns out it was 11 games streak.. wow. I honestly didn't know I did that well.. sweet :)
 
+
+### 2021-04-29 00:34 - bless RNG
+
+I gave some more thought to the subject of random and the more I have been thinking about it, the more I like it. I believe I'm going to be converting over to the dark side of RNG here soon. there were some funny reactions. it seems that the probability management group sees things slightly differently than I do. there were reactions concerning not normal probabilities that happened in relation to girls. it seems that things seemed to behave a bit less than 100% probable. so, while they may be able to control some of my probabilities, they may not be able to control a lot of different probabilities all at the same time. I was also reminded of the time when I flipped the coin to decide whether to go to FWG in pueblo west that one day. seems that the more I think about it, the more I like the lottocracy.
+
+I did get some mixed reactions to the previous entry there, and I just want to clarify because while I was explaining that nosebook has tried to control my random, with IMO pretty good success, I'm not against the idea. it's an ironic way of getting the guys who think they control random to actually begin to give their attention to what they do want, in order to actually maintain control. it's one of those poetic ironies that seem to keep showing up as I just sort of lean into things instead of fighting them.
+
+there's also another really interesting aspect to decisions being made by random as well, is that similar to hearthstone, random forces a lot of fexibility to happen in less-than ideal situations. like sure, you may have to decide to play some of the combo pieces in order to stay alive. those sorts of tradeoffs need to be made. it's an interesting effect because rarely are you going to have all of the pieces that you want all at one time. it's so unlikely to have the perfect hand, that it forces the player to live in the realm of imperfection and to make the best choice given the limited set of options.
+
+there are so many good aspects to it that it far outweighs the detriment of the obvious elephant: we're all addicted to gambling.
+
+I've been contemplating addiction lately. I saw a podcast on it: @[youtube](https://www.youtube.com/watch?v=EIH1LVg_qo4) and it sparked a lot of thought. I realised that I have naturally come to take the addictiye aspect of my personality[^1] and what I've done is flip it in its head and use the addiction to my advantage.
+
+like I explained in a comment, because of "circumstances" I do not have as much free-will anymore. what I mean by that is, when I want to do something, often times the thing I want to do feels good to me so nosebook works to neutralise the good feeling that the thing gives me and make it feel bleh to me. it now feels uninteresting and no longer like something I want to do. it doesn't feel good to me. so, for nosebook mission accomplished.
+
+what this has caused me to do is to, instead of using free-will to do things I have to do or things to feel good, instead now what I do is I keep finding ways to feel good, no matter what I'm doing. in that sense, I just sort of float around doing the things that I have to do and whatever else comes to mind.
+
+most people associate doing things they have to do with feeling not as good as they want to. so, what I used to do is is to mix substance in with my everyday activity. for example, the second time I worked for tuenti, I rolled in to work drunk and stoned, fumbled around a bit with some stuff (luke always complained how I smelled of alcohol), and then accomplished very little. I was using the substance to feel good in a situation that I didn't feel good in. now, instead of using the substance to feel bettre about doing something I don't want to do, I instead now just find a way to feel good about it.
+
+there are exceptions to that rule. like for example, these last few days I have again some girls I want to write down, but every time that I go to do it, it feels bad to me -- so I don't do it. I repeatedly tried to find a way to feel good about something that felt bad to me, and it was to no avail. now, for example I don't feel bad about it anymore. I think maybe from a bigger perspective of things, perhaps it was so I would have the recent experience to be able to see the things I'm about to write (and wrote in the last entry), and/or prehaps it was just practise to just go with the flow a bit more. I mean, if I'm going to convert over to the dark side of RNG, then it's gonna become normal for me to take a less optimal route because RNG decided it. no regrets and no looking back, right? plus, it's not like they were going anywhere; they're all written in a paper beside me on a desk.
+
+so, it was an interesting thing because the difficulty I had caused me to desire to want to feel good about writing them, which is a good thing. I sense a disturbance. seems nosebook doesn't know what to do. how do you fight something.
+
+here's the thing is that, "things *are* always working out for you" -- and really, it's only you that can believe that they're not[^2].
+
+---
+
+how does that relate to RNG and the lottocracy? the addictive mind wants to find a way to feel good, and the gamble sometimes has a huge payoff associated with it. additionally, I learned from my time in spain[^3] that the lotto is actually selling an imagination. forgive me for what I'm going to say... if you look at it physically, a whole lot of people are going to not win the lottery, ever. this is true. however, a lot of people will spend time imagining what they would do with the money, and even if they never find a way to tune theirself to that reality, they are still making that desired reality more likely for them (even if they refuse to ever believe it possible by looking at the lotery odds). most people will not receive the result of their imagined lottery winning moment as a result of winning the lottery, but instead as a result of some other means.
+
+what I mean is, from a LOA standpoint, it creates a bigger reality and everyone benefits, even if individually only people actually find a way to tune theirselves to to the prosperity reality they imagined. that's one aspect to it, but the other major benefit that it has is that the addictive mind will kick in, and people will chase the thing that they think they need to feel the way they want to. naturally, like has happened to me, eventually you get tired of chasing the conditions and start to just feel the way you want to, without needing the condition. the addiction, when you think about it, is to feeling good. people will do anything they can to feel good. conditions are not good enough. you simply cannot maintain an addiction to a condition without it genenerating a tolerance -- so at that point, in an RNG-based society, bad-feeling people will be negatively rewarded, and good-feeling people positively.
+
+naturally people will learn to sustain better and better feeling conditions[^4] but I assure you only the most dedicated to the conditional aspect of life will try this. however, again, as lifespans increase, this won't have such a great reward  to it. they'll spend all of their time and energy working to have the conditions they need to feel good, and it it's going to get pretty tiresome, I imagine. though, there is hope for them, because it's likely that electrically stimulating the nervous system, switching between a whole pallete of good-feeling things will be pretty good, but there's probably no better feeling than winning the lottery, and to do that you have to feel good.
+
+what I'm saying is that if we're going to go toward a lottocracy system, we need to rethink the diversity aspect to things a bit. imagine if hearthstone only allowed you to put republican and democrat cards in your deck (15 of each). it'd be way too likely for the democrats (or republicans) to have a god-hand, and this is undesirable from a balance standpoint and impossible for the PMG to keep things within the realm of "normal probabilities". instead, they limit you to two duplicates of each card to ensure that there is a lot of variance. without forced diversity (2 dups max), the decks those become too consistent[^5] and those decks become oppressive in the meta.
+
+lots of reactions. I'm gonna end it here :)
+
+[1]: I don't know if I would consider myself very addictive now, but I definitely have a very addictive personality type. I had the wake up and after only 2-5 waking breathes I'm already lighting up a cigareete, waking up and starting my day with a very large alcoholic beverage, coke, you name it... I've had addictions, but I don't want to claim that I'm the *most*. I'm just trying to qualify myself as having a pretty addictive personality type..
+
+[2]: slightly unrelated, but I was thinking about this when star-watching. I do believe that things are always working out for me (or, it's just more energy -- whichever one you like more), and I was wondering what energetic benefit my massive losing streak on hearthstone was having recently. I did so well, but I'm now back to the "you can't lose stars at this rank" level again... these are the sorts of things that interest me. I'm writing this as a (mental) marker to remember this. these things can best be seen in hindsight. I just find it interesting to think of how this all playes together.
+
+[3]: it's practically a part of the culture to purchase a lottery ticket at least once a year
+
+[4]: you gatta mix it up. like spa on monday, then hiking on tuesday, and yaght on wednesday, coke thursdays, crack fridays, etc. :)
+
+[5]: this is my experince in tavern brawls anyway. for example in a recent one, you could only have 3 cards (10 of each) and this one rogue just puts in 10x shadow strikes (30 dmg), 10x coins and 10x secret passage. unless the opponent has cheap healing (not necessarily a good idea if you only get 3 cards to put in the deck cause you could potentially have 10x dead draws which limits dmg output signifcantly), then they kill you by turn 2-4. imagine how oppressive this deck would be if you could have so many duplicates.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
