@@ -8907,6 +8907,47 @@ enjoy their pushing against. they're making it bigger and therefore better/worse
 
 anyone not resonant with your vibration is going look insane to you. inotherwords, most people are going to think 80% of the world is insane (kinda like now, but way way worse).
 
+
+### 2021-04-28 18:32 - he controls random controls the future
+
+@[youtube](https://www.youtube.com/watch?v=_ArVh3Cj9rw)
+
+I just had one of those, "things are never going to be the same again" sort of realisations. in the video there, there is this undertone where people are not designed to follow reason, and therefore cannot be directed by reason alone. there was the familiar "problem" of communication, explained as the definition of our "mind", yet the problem with the internet is that *anyone* can put *any* idea they want on the internet and make it look as appealing as any of the other supposedly more correct ideas. inotherwords, it's an look into how to control the spread of ideas with information so many ways to communicate.
+
+the proposal at the end was to make a "lottocracy" -- where things are decided at "random" -- cept random doesn't exist. if you've been listening to robert edward grant any amount, you will know that humans are becoming more and more capable of understanding all of the variables involved in any event, so "random" is becoming less and less, and actually he postulates that random does not even exist -- just appears random because we don't have enough data. I too believe like he does. random does not exist.
+
+now there was a time a while back when I believed that random was affected by desire and belief, which was the basis for the program I was working to create which utilised patterns in random to send commands to my computer. it was called, "meaningful-chaos". anyway, when I didn't know what I wanted to do -- when I was sort of "on the fence" about it, I threw a coin to decide for me what to do. I used to use a lottocracy to decide for me what to do.
+
+at first, it seemed like the coin would show up my desire, and when I saw the result I often times felt good about the decision. however, I later began to notice that noabook couldn't control me if I let something random like a coin decide for me. they had to figure out how to control random to get me to do what they want.
+
+later, I had an experience where I was playing hearthstone and every time I would start winning, I would start to feel good, and so the more I felt good the more I would win. again, I felt like nosebook does not want me to feel good, so they had to figure out how to control random again.
+
+my point is, I think they have made some signifcant advances in understanding random and learning how to control it. I'm certain of it actually. random is very strongly weighted by what you believe, and a belief is just a thought you keep thinking, so if they put subconscious thoughts into your head, then they will shape what you believe, thereby affecting the odds of things. I jokingly called this the "probabilities management group" -- they're there to make sure no one manifests anything that is outside of the acceptable odds. they definitely don't want anything extra-ordinary happening -- ever. extraordinary = unplanned and not expected -- aka not controlled.
+
+---
+
+so I was thinking about this after watching the video, because they feel they need a controllable decision-making thing that can be directed -- a hidden hand. that is, of course, random. instead of using random to control my computer, the technology will instead be used to direct people. it's harder to be mad at something if it appears random, so it absolves those controlling the random. they get to say, "unlucky" instead of being blamed for the decision[^1].
+
+continuing my story, I have to say that as I figured out that my coin wasn't helping my to make my decision, but instead was just showing the decision that nosebook wanted me to make. I stopped throwing the coin because I realised that instead of letting "random" decide for me what I should do, instead I"ll just do something and then change my mind later if I don't like it. no big deal.
+
+though, when I started to think about it, back when I was trowing the coin, things were much more intense than they are now. back then, there was significantly more conflict than there is now when I just do what I want to do. I think it was because I was forcing nosebook to figure out what they wanted -- by figuring out what they wanted the coin to land on. however, they don't really make a decision based on what they want, but instead on what they don't want. that extra amont of decisions being made becsause of knowledge (and attention) on unwanted made things way way way more chaotic.
+
+---
+
+this made me think that maybe I'll go back to using the coin to make decisions. I had a dream this morning where when I woke up, the idea was that we should just continue on without a manifestation for as long as possible for the rest of the time. I'm down with that, I guess. maybe I'll lean into the lottocracy and start making my decisions based on "random" again -- what could go wrong?
+
+the last thing I want to talk about is that I came to the conclusion that the probability management group tries to affect random with beliefs becasue I noticed that when I was playing hearthstone, after getting an 8 game winning streak, I remember I queued into a game and the first thing I thougt was, "I'm not going to win this one." it was a very foreign thought to me, and sure enough I didn't. I almost did though.
+
+I noticed that these minute changes to the probabilities seem to have to do with a small voice and the way things feel. when I was throwing a coin I also noticed the small voice, and it's discord with me is what eventually made me come to the conclusion that my "random" coin flip was reflecting my belief, and that belief was in some ways predicted.
+
+so I was thinking about what happens when I feel the discord in my thoughts while random is decided for me, and I mean, I dunno... I guess we'll have to find out. I know now that I don't ever want to do something that I don't want to do, so if the coin feels bad to me, I stop following the coin.
+
+however, what I was suggesting above is, to follow the coin anyway -- even if it feels bad to me. that way nosebook can direct me and we can make the biggest disaster possible.
+
+you know, like what if I just went full disaster and decided to follow all of nosebook's directions? what I'm thining is that has a funny outcome to it because first, I don't think even they know what they want sometimes, so that means they'll have to come to an agreement -- or, at least mr. motor will need to agree with the PMG.
+
+[1]: it may also create a new type of belief-based religion with people blessing "RNGesus" for a beneficial outcome. I mean it's practically the same as offering sacrifices to a god for good fortune, right?
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
