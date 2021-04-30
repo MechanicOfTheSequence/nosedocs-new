@@ -9078,6 +9078,28 @@ ok, try again: imagine an AC wakeform 100V peak to peak. if we take the movement
 
 so, when I say I'm going for max disaster, I'm talking about the peak to peak voltage, not the part of the wave that I perceive. that's up to everyone to perceive what they want out of it. I'm just trying to get the voltage as high as possible. tesla liked to measure his discharge lenght. I like to create max potential :) consider him distance and me time. they're very much linked; practically the same thing, depending on your perspective.
 
+
+### 2021-04-30 15:29 - going in circles explaining myself
+
+ok perceive these concepts at the same time:
+
+- I'm shooting for the worst (feeling) manifestation
+- the worst feeling manifestation is also the best feeling manifestation
+- I'm shooting for most potential
+- everyone gets to perceive whichever part of the wave that they want to look at.
+  -> it can be everything from max wanted, max unwanted, max disaster, or max recovery.
+- if I can still feel good about the worst feeling manifestation, then all other manifestations feel better
+- if there's no other timeline of myself that feels worse than the one I'm on now, I feel good about all possible identities of myself
+  - therrfore, I perceive myself from the perspective of who I really am. I am connected and perceiving things fwom the perspective of my source.
+
+so then, you may wonder, "ok, well why not just let it manifest now? why wait until it keeps going toward max potential?"
+
+I've suggested that they let me get connected a few times now, but they can't allow that to happen. so, obviously it's an incompatible reality. they need to keep their secrets and I must find a way to get connected. so, it'll be a while. it'll take exactly as long as they can keep me away from getting connected. along the way, it'll continue to expand becoming both more and more wanted and more and more unwanted. you get to decide what you want to perceive. I'm just the thickheaded guy that is hellbent on going toward the "worst" manifehtation because it's the only way for me to get connected.
+
+it could also be perceived as the "best" manifestation, but that's hard for people to wrap their heads around. it's way easier for people to imagine/believe the worst thing is about to happen, than is is for them to perveive than we're right on the cusp of the most awesome transition into the most amazing you are right about everything and your thoughts and feelings become manifest very rapidly (or instantly) reality.
+
+again, incompabile realities with nosebook. so, I keep talking about the disaster and choose to perceive what I want :) don't take me too seriously...
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
