@@ -8936,7 +8936,7 @@ though, when I started to think about it, back when I was trowing the coin, thin
 
 this made me think that maybe I'll go back to using the coin to make decisions. I had a dream this morning where when I woke up, the idea was that we should just continue on without a manifestation for as long as possible for the rest of the time. I'm down with that, I guess. maybe I'll lean into the lottocracy and start making my decisions based on "random" again -- what could go wrong?
 
-the last thing I want to talk about is that I came to the conclusion that the probability management group tries to affect random with beliefs becasue I noticed that when I was playing hearthstone, after getting an 11 game winning streak[^2], I remember I queued into a game and the first thing I thougt was, "I'm not going to win this one." it was a very foreign thought to me, and sure enough I didn't. I almost did though.
+the last thing I want to talk about is that I came to the conclusion that the probability management group tries to affect random with beliefs becasue I noticed that when I was playing hearthstone, after getting an 6-8 game winning streak[^2], I remember I queued into a game and the first thing I thougt was, "I'm not going to win this one." it was a very foreign thought to me, and sure enough I didn't. I almost did though.
 
 I noticed that these minute changes to the probabilities seem to have to do with a small voice and the way things feel. when I was throwing a coin I also noticed the small voice, and it's discord with me is what eventually made me come to the conclusion that my "random" coin flip was reflecting my belief, and that belief was in some ways predicted.
 
@@ -8948,7 +8948,7 @@ you know, like what if I just went full disaster and decided to follow all of no
 
 [1]: it may also create a new type of belief-based religion with people blessing "RNGesus" for a beneficial outcome. I mean it's practically the same as offering sacrifices to a god for good fortune, right?
 
-[2]: for some reason, I thought it was an 8 game streak. I got the reaction that data was wrong, so I looked up the achivement, because I remembered I had an achivement. turns out it was 11 games streak.. wow. I honestly didn't know I did that well.. sweet :)
+[2]: for some reason, I thought it was an 8 game streak. I got the reaction that data was wrong, so I looked up the achivement, because I remembered I had an achivement. turns out it was 11 games streak.. wow. I honestly didn't know I did that well.. sweet :) EDIT: ok, I guess that was a few months ago. so maybe it wasn't 8. I don't remember (or care) how many it was.. just, it was a winning streak of enough proportion that it felt like measures needed to be taken to ensure I wasn't too lucky.
 
 
 ### 2021-04-29 00:34 - bless RNG
@@ -9023,6 +9023,32 @@ this is what I'm saying: it appears like you need to win the lottery (or have fa
 this may be an integral component to the bifrication process... you gonna find a way to feel how you want, or not?
 
 [1]: think about it. if you have an addiction, then what you're wanting to do is to feel good and not be controlled by conditions (substance, social media, whatever). so, even if you give up the addiction, the underlying part of yourself (the identity) which dosn't feel good to still remains. what you want is to feel good and not have the condition control you. you want to feel the way you want to feel, without needing the condition to do it. otherwise you just go from one addiction to another.
+
+### 2021-04-30 13:06 - power of expectation/identity
+
+I had some reactions to what I wrote yesterday where I said that I said, "most dudes are either deadbeats or douchebags". I will admit I definitely worded it poorly. I was talking about the lottery reactions, and so the reaction I was feeling is that most women thought that "most dudes are either deadbeats or douchebags" -- yet since I came around, there suddenly appeared to have hope there. the same way as a lottery gives hope to a bunch of poor people, selling them the imagination of having a lot of money from winning the lottery. like I said, even though it's unlikely for many people to actually line up with actually beieving they can have a lot of money (most will continue to believe theirselves to be poor -- often times even after winning the lottery as well), so what happens is, usually the poor stay poor because even if they win the lottery, they can't break the hold their own identity has on them.
+
+so what I'm saying is that if you believe that "most dudes are either deadbeats or douchebags" then that's what you expect and that's what you'll see everywhere. I had a situation where raquel thought that all dudes were machistas. I don't believe myself to be a machista, but it didn't matter. apparently, I'm capable of behaving in ways that validated her views that I too was machista because that's what essentially happened.
+
+no matter what, unless the person is willing to admit, "ok, guys are capable of being douchebags, deadbeats, insightful or charming -- and it more has to do with what I am attracting from them than who they *are*".
+
+this is precisely the reason why I sorta gave this whole thing up. I found that no matter what, I seemed to somehow always conform to their expectation of me, and often that expectation wasn't how I wanted to behave. I don't have the skills to constantly maintain an illusion about myself like some guys do to try and keep her believing nice things about me. it's was just way easier to say, "forget it. I like doing me. I'm going to do me no matter what." -- but like I said, that, apparently makes a person very attractive.
+
+---
+
+when it comes to all of this, I feel like I'm more schizophrenic about it than ever. one moment I could feel good about it, and then the other I feel like I just don't want anything to do with it. it has to do with expectations. I don't really have much interest in meeting people's expectations. that's not what I'm about. many people believe a lot of really far-out stuff, and the lower resistance I become, I will continue becoming more and more capable of conforming to others' expectations of me.
+
+if you believe whatever about whatever, and that's desirable, then great it turns out in a desirable way. however, if someone I'm interacting with believes I will behave in a more undesirable way, then that too will happen. I don't have much choice about it. reality will start to be created quicker and quicker so all of those expectations will become manifest more and more rapidly. the solution I suppose will be to not spend too much time with any one person, or maybe just follow my feelings better and better.
+
+I was writing a thing to bucky about this feeling response. it kinda also ties into the latest vsauce episode about the future of reason. I was telling bucky that the truth/rightness/reason that our brain uses to determine things is a *feeling* response, and it's programmable. from a very young age, you receive feeling responses from the people around you in response to things, so whether that's nosebook or your mom imparting a feeling response to things, you grow up with a programmed set of concepts which determine for you what is the rightness of something. if you're addicted to alcohol, drinking feels good, yet for a past alcoholic this could be a traumatic feeling, a destruction of their life so tremendous that they would never want to repeat it again.
+
+so, what I'm saying is, it is unfortunate that you grow up with a lot of these feeling responses programmed in from your environment, but no matter how much you try to repress something, the true feeling eventually shows through. I keep getting these weird ideas that nosebook is trying to essentially modulate our addiction to cortain concepts by programming them to feel bad or good for you since you're young. it'll only work for a little bit. eventually, the internal desire to believe yourself to be a magnificent craetor will be so much stronger thzn the negstive feeling response they'll surely program to that idea. it probably won't be that blatent -- instead much more earthly things like giving people a natural aversion to correct scientific concepts and an affinity to broken ones. again, not a problem because either we'll come to new ways of perceiving those same things or the desire for the correct concept will outweigh the bad-feeling programming.
+
+personally, I believe it'll be the former. my experience has shown me that it's true that they can make all forms of actions (programming or whatever) no longer feel good to me, but they can't make the way I feel (emotionally), feel bad to me. better said, there are only a finite number of things which can do to feel good (gym, etc.) and there can control those finite things, but there are an infinite number of ways I can feel about a thing, and there's *always* a better way to feel about something.
+
+so, even if they can control science and physical good-feeling conditions in their new age of reasoning -- behaving essentially as a global addiction regulator, they can't change the way you feel about stuff. I think all people will eventually figure out how to feel the way they want, so that the perpetual addiction is no loger doing the directing. whether you believe it's nosebook or social media or any other stimulatnt capable of coaxing the brain to produce various neurotransmitters, addiction is here to stay and it's going to get WAAYY WORSE.
+
+it's crazy how addiction is so directly linked to reason/rightness, identity, expectation, and desire.. it's been weird how all of these topics intertwine so well.
 
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
