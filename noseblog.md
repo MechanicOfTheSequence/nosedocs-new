@@ -9100,6 +9100,27 @@ it could also be perceived as the "best" manifestation, but that's hard for peop
 
 again, incompabile realities with nosebook. so, I keep talking about the disaster and choose to perceive what I want :) don't take me too seriously...
 
+
+### 2021-04-30 16:01 - battle of the titans
+
+I believe this bsck and fourth is happening because of something that happened this morning. I woke up and it was feeling to me like I should be choosing a camp -- as in like I should be considering colorado my only place of interacting. that whole thing feels bad to me. it feels like I have to decide to do one thing and one thing only.
+
+I don't know all of the details, but it feels like they're trying to setup some stupid thing that they control and can limit my influence. I'm glad they think that. I don't really have a response to them other than "bro, I'm going until I'm connected -- however long that is." it may be a while. I don't know really and I don't really mind so much anymore what that could possibly mean. from a connected state, I'm literally seeing the world basically in the same way my source sees it. that means everything feels good to me. I'm in a reciprocation with my environment and there appears to be no passage of time (from my perspective). I just am and things interact with that. it's zero resistance. so hard to explain. I also don't know how I know what it's like. it's sort of like I've done it before -- lots.
+
+---
+
+anyway, what I'm trying to say here is that from my perspective I don't need to choose any of these and they're fighting against it because that probably feels uncontrollable to them. there's a pretty serious disparity between our definitions. let me explain.
+
+so, when I say that there is max wanted. could one imagine that starting the earth over and rebuilding in a way that we want it to be built is a wanted thing? I would say so. it's also max disaster. what about the idea of nosebook manipulating people's feeling responses to things like a giant addiction that can't be quit with willpower? I would say that is max (perceived) unwanted yet at the same time, when people figure it out (like I have), they become invincible. completely unstoppable. what will nosebook have to do then? they'll have to separate out the unstoppable ones into their own timeline and fill their life with max unwanted. if they got that far, they're going to figure out how to feel good about anything. this means that they too will be able to feel good about the most unwanted, which means that there will be a steady stream of people finding a way to perceive theirselves through the eyes of source.
+
+sure, it's max unwanted but it's also max wanted too. the person gets to decide what part they want to look at, and it's literally guaranteed with those circumstances that ALL will find a way to perceive through the eyes of their source. this is certain because no matter what when you look out, there are millions of galaxies with millions of stars. it's a big place out there. if there was more focus being placed on unwanted/destruction/disaster, the universe would be pretty empty, so we know that at least more than 50% of focus is on wanted. no matter how it works out or how many setbacks happen, there is always way more expansion than destruction. to further my point, now we consider that all impacts create double the energy. some physical matter annihilates, but double the energy is created -- so even with a large amount of disaster, much much more is coming out than is going away.
+
+it just takes time to turn all of that energy into wanted. I'm not claiming that disaster is the best, but it does contain the most amount of wanted and unwanted. it also takes time to convert that extra energy back into wanted physical manifestations, but I still think that the energetic effort (it's really resonance) required to manifest things will continue to become less and less[^1] till it becomes effortless and nosebook isn't needed, and we're designing our own contrast.
+
+I just keep doing what I'm doing :)
+
+[1]: there may be less resonant energy available becsuse there potentizlly could be less humans alive -- both from after the disaster or humans manifesting too fast are separated out to exist on timelines with less vibrationally similar co-creators -- or none at all. however, even still, the energetic effort required for manifestation will montinue to decrease with time.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
