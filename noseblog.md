@@ -9050,6 +9050,25 @@ so, even if they can control science and physical good-feeling conditions in the
 
 it's crazy how addiction is so directly linked to reason/rightness, identity, expectation, and desire.. it's been weird how all of these topics intertwine so well.
 
+
+### 2021-04-30 14:26 - why does rightness create reality?
+
+... because it's a feeling response, and reality is designed to reflect how you feel. reality is designed so that you're always going to be right. you are the centre of your universe and you attract everything that you feel strongly about.
+
+---
+
+so then, if everyone is right, then how do we get along? whatever we hamonise with, we come together on. those things we harmonise with can either feel good or feel bad. everyone and everything is capable of expressing a little bit of either, therefore it's our responsiblity to feel the way we want no matter what.
+
+this is going to sound a bit weird but I had to realise I am not the thingh that others expect me to be. just cause raquel expected me to behave like a machista, and ahe did prove herself right a few times, that's *still* not my identity. I'm not a machista just because I behaved in a way which reflected how she feels on certain things.
+
+it's a really weird kind of douchbag get-out-of-jail-free card in a way, but this is kinda what I was saying a while back. it's possible that when I reach zero-resistance, I'm capable of anything. I can experience all of the timelines that feel good or bad and not need them to be a certain way because none of those timelines are me. they're kind of like characters or identities -- a sort of derivitive of myself. each of us are. all timelines of you exist and you are experiencing the one that you identify with the most. or, in this terminology, the one you feel you're the most right about.
+
+therefore, nosebook could, once I reach non-resistant state, essentially drag me through all of the worst timelines possible, and in oreder to maintain non-resistance, I just find a way to feel good anyway. the thing is, those timelines exist right now, I'm just not aware of them, because I still have resistance to those timelines. if I could feel good even while experiencing the "worst" timeline, knowing that physical version (no matter how much it hurts or whatever), isn't me. that guy in all the pain and suffereing, experiencing the worst manifestation isn't me. I'm so much more than that.
+
+---
+
+I like this subject because it helps me to explain the whole thing about being hellbent on disaster. if I can experience the worst timeline possible and still feel good about it, that means there are only better feeling timelines available and I get connected. notihng nosebook can do because there's no worse way to feel :P brilliant huh?
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
