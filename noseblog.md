@@ -9069,6 +9069,15 @@ therefore, nosebook could, once I reach non-resistant state, essentially drag me
 
 I like this subject because it helps me to explain the whole thing about being hellbent on disaster. if I can experience the worst timeline possible and still feel good about it, that means there are only better feeling timelines available and I get connected. notihng nosebook can do because there's no worse way to feel :P brilliant huh?
 
+
+### 2021-04-30 14:56 - huh, why the worst?
+
+think of an AC wave, the maximum it goes toward desired, the maximum it also goes away from desire. so, the worst is also the best. it's a matter of perception. better in who's opinion? not mine, that's for sure. I shouldn't raelly use the word, "worst" because it's opposite is "best" and there is no worst or best just like there is no right or wrong. what I should say is least energetic or most energetic. -- it's not really that either. ok, think about it like a swing. we enjoy the feeling of going toward wanted. going away from wanted also exists, but there are not many that consciously choose to only experience more going away from wanted.
+
+ok, try again: imagine an AC wakeform 100V peak to peak. if we take the movement from 0V -> -100V that is the maximum amount of unwanted, cept exactly 180(degrees) out of phase from that is maximum going toward wanted (0V -> 100V). there's also the max revcovery phase (-100V -> 0V) and the max crash phase too (100V -> 0V). these all three exist in the same amount of time, however just perceiving a different part of the waveform.
+
+so, when I say I'm going for max disaster, I'm talking about the peak to peak voltage, not the part of the wave that I perceive. that's up to everyone to perceive what they want out of it. I'm just trying to get the voltage as high as possible. tesla liked to measure his discharge lenght. I like to create max potential :) consider him distance and me time. they're very much linked; practically the same thing, depending on your perspective.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
