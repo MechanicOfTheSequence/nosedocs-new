@@ -8997,6 +8997,33 @@ lots of reactions. I'm gonna end it here :)
 
 [5]: this is my experince in tavern brawls anyway. for example in a recent one, you could only have 3 cards (10 of each) and this one rogue just puts in 10x shadow strikes (30 dmg), 10x coins and 10x secret passage. unless the opponent has cheap healing (not necessarily a good idea if you only get 3 cards to put in the deck cause you could potentially have 10x dead draws which limits dmg output signifcantly), then they kill you by turn 2-4. imagine how oppressive this deck would be if you could have so many duplicates.
 
+
+### 2021-04-29 17:53 - lottery reactions
+
+one of the strongest reactions I got from last entry was in regards to the part where I was saying that from a LOA standpoint, a lottery is quite effective in creating a larger "vowtex". the underlying sense was on the emphasis that in physical reality only one person can win each lottery, so while teere are a lot of people hoping to win, it doesn't feel like there will be that many winners.
+
+there may be none. I don't rule out that idea at all. here's the thing: if I fight against nosebook and say, "no there will be whatever and try to make it happen", then my fighting them is only making things worse. by fighting it, I'm attracting the very thing that I'm fighting. this idea of embracing the thing that is perceived as bad, is actually a subject I have been talking about a lot but, recently in the context of addictions, I think it makes the most sense[^1]. however, in this context, it seems to me that what is happening is prior to my broadcast, I think it was the general opinion that most dudes are either deadbeats or douchebags. any time anyone shows up, which is capable of finding a way to feel the way they want to without needing the condition to feel good, then that person is extremely attractive. most people put so many conditions.. you have to be this way, buy me these things, be financially independent, etc. and then I can like you -- all the while, these are almost all qualities that they perceive that they lack, which makes them look for it in someone else.
+
+it makes sense, right? if I have XYZ qualities and you have ABC, then if we work together, I don't need to have all ABCXYZ qualities. this may seem valid in a physical sense (like for factories and construction crews -- stuff like that). however, this isn't so necessary in a LOA based universe. all you need to do is to go toward what feels good to you (this means you're going in the direction of your desire), and then the things that compliment that naturally fall into place. I know that so many people don't believe it, and that's fine. they still want the condition to make them feel good. there's just no control there at all. you don't create your reality; the conditions create your reality.
+
+---
+
+so here's what I'm trying to say here: the lottery thing feels bad because it takes away all of your power to create your own reality. you now believe there are a finite number of manifestaitions (however many prize blackets there are), and you can only get one of them. it feels terrible because it's not that way at all. you don't need the lottery to have a lot of money. it's so much more fun anyway to make the money with the power of your own mind, than to just have someone hand you the money.
+
+from my perspective, I think that minning the lottery is the lowest payoff ever. I would much rather know that I can focus the way I feel, and get any reality to match that. as I improve upon that quality, I can have many more than one lottery's worth of payoffs, and I actually feel good about myself along the way. the better I get at it, then I can just do it again. each time it'll get easier and more optimised as I hone my skill.
+
+---
+
+the way all of this pertains to each of us is really only how much we think it has an effect on things. the guys trying to run the show need us to constantly be living in a world of limitation. if they could have it their way, there would be no "created by" meta and you would get only 1 card per turn, and things would be really easy to manage, really slow, and not very much fun at all. interesting reactions there :)
+
+what I'm saying is their intention to impose limitations doesn't actually limit you. I learned this when I played hearthstone recently, because I believed at the beginning that I had to be winning the game to allow myself to feel good. that's just not true. I can feel good no matter if I'm winning or not. that's the thing that I had to learn. it was really crazy to have such a stupidly simple realisation. thijs always said, "most importantly you have to have fun" -- but I seemed to have forgot that. I totally got sucked into the competition, lol...
+
+this is what I'm saying: it appears like you need to win the lottery (or have favourable RNG) to have the reality you want created for you, but it just isn't necessary. it's completely possible to still have the reality you want, *without* winning the lottery. it's an illusion though. none of that matters :)
+
+this may be an integral component to the bifrication process... you gonna find a way to feel how you want, or not?
+
+[1]: think about it. if you have an addiction, then what you're wanting to do is to feel good and not be controlled by conditions (substance, social media, whatever). so, even if you give up the addiction, the underlying part of yourself (the identity) which dosn't feel good to still remains. what you want is to feel good and not have the condition control you. you want to feel the way you want to feel, without needing the condition to do it. otherwise you just go from one addiction to another.
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
