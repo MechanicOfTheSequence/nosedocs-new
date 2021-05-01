@@ -653,3 +653,23 @@ I'd also like to invite [bec](https://www.youtube.com/channel/UC5_iLVNOt2i0fX57v
 ok, finally here, as I was listening to the last abe-now broadcast, a mother of two daughters, 18 and 20(?) hate her guts (so she claims in the letter anyway), and as I was listening in my initial idea was just to skip over them as I didn't even consider it. I did however feel attraction though, so I thought about it and really I don't have any resistance to it. I'm kinda like neutral on it. I'd say it could go either way, but I don't believe I have much resistance anymore, so it would only go the way of saying yes. I'd like to invite either of them to join in too if they want to :)
 
 that's good for now...
+
+### 2021-05-01 11:50
+
+ok, first I'd like to say that I was feelig some reactions to the entry yesterday (@[noseblog](2021-04-30 13:06)) where I was talking about raquel and expectation. well, it doesn't feel that way anymore, but there was some confusion. I didn't have a better example of it, and I don't feel bad about it at all. I'd say that from my perspective now, I would guess that we more than likely planned it to be that way. it seems pretty likely that was the fastest way to get me to where I am now -- and I simply cannot describe how valueable what I know now is, in comparison. I don't perceive that anything bad happened at all -- and anyway, the same power of expectation can be used in a positive way just as easily.
+
+so, as I was thinking about this last night while watching stars, I realised that there was still belief that I didn't want raquel to be able to join in. that's not true at all. I've released a lot of my resistance to a lot of things (maybe I should write somethting about it) and I don't really see it as a problem anymore. further, I could see how it fits in to the whole bigger picture. anyway, some time after that I was reminded of her sister. I'd also like to invite her to join in if she wants to.
+
+yestrerday when I was outside there was a girl squealing down the street. I realised she was trying to get my attention. I'd like to invite her to join in too if she wants to :)
+
+additionally, yesterday when I was going out to star-watch, jaron had a program on the screen. when I woke up this morning I was being reminded of the girl with brown hair. kinda weird, but yeah she feels really good. I'd like to invite her to join too if she wants.
+
+now, we come to a recent hearthstone opponent, bastardiosa. when I played against her, I could feel her, but the desire wasn't very strong. however, later that night when I was watching stars, I kept remembering her and she could feel good. I decided I wanted to invite her to join in if she wants to.
+
+at the same time as I was noticing bastardiosa, I kept getting reminded of irene, daniel's ex-wife. I could also feel her as well. this time she felt good to me. anyway, I'd like to invite her to join in too if she wants to.
+
+another hearthstone opponent that I didn't feel so much during the match but then later I started to feel more and more -- there still is perhaps a slight bit of resistance remaining even still, so we'll see -- however, I think it's probably ok. when I saw the name, ReadyTaPlow, I laughted and the first thing I was thinking was, "they're probably not referring to agriculture", lol. man, I still feel resistance on the thing though. a few times it's felt better, so let's just see as things go forward. expectation is a powerful thing. it's going to be OK :) I'd like to invite her to join in if she wants to.
+
+ok, final hearthstone opponent I'd like to invite to join in (if she wants to) is ellylion. not much to say here. I felt her, it wasn't strong but there wasn't much resistance so she stayed in my mind.
+
+ok, maybe one more here. as I was writing the last one, I was feeling the previous opponent, Orchideya as well. I'd like to invite her to join in too, if she wants to. nice, you did it! proud of you :)
