@@ -2323,3 +2323,19 @@ on the subject of being right, I don't care that someone else will pretend to be
 a cataclysm isn't necessary. they don't *need* to argue for that limitation.
 
 I swear I heard billy carson talking about exactly this yesterday. can't find the quote, but he was tzlking about how they could put a thing on the north pole to stabilise the planet's rotation. it was inferred that was to ensure that it continues to rotate the desired way. it was in the same presentation of them talking about entering into aquarius soon (I believe). either way, this should all be possible, I'm fairly certain.
+
+### 2021-04-30 03:28 - (2021-02-27 p1)
+
+#### 20:04 - marketing mr. motor
+
+they said ssomething at the end there which I found to be true in my own life. they said something like, "it's not the noise that's bothering you. they're at a different frequency and when you hear the noise, you're tuning into their frequency" .. very paraphase. I feel I ron't want to go back for an exact quote. what I want to say is that I found that I used to hear mr. motorcycle, mr. venting, or disapproval dawg making noise all the time. I would hear that noise and that would essentially tune me to the same frequency as mr. motor. back when he was hanging out on the field with me, he didn't even need to make noise; all I had to do was to look at the car parked across the way and I would feel terrible.
+
+essentially I was tuning into mr motor by obseriving the same thing. the common subject is like a focal point for people to find theirselves in the same emotional space. like, think about how much more vivid music is when listening to the same song with someone you like -- ow watching the same movie. don't you notice that the shared emotion is so much graeter when observing the same thing?
+
+this used to really bother me, and mr. motor's sounds used to make me feel really pissed off -- like irrationally. I live in a part of pueblo where there are no train tracks for miles, yet it sounds like there's a train lurking behind the house next door. it's clearly fake. there are also not ridiculously loud motors driving down the highway either. I even called the fire department a few times I was so pissed off. thing is, there's just nothing that can be done about it. there is no way for me to make those sounds go away.
+
+realising that those sounds can only piss me off if there's still a part of me that resonates with pissed off. eventually, as I cleaned up my perception, less and less things bothered me and those sounds stopped pissing me off. I literally don't even notice them anymore -- or if I do, I often times find them funny. they don't bother me at all anymore. sometimes I even go out and try to stir up some trouble cause it feels too quiet and it's weird not to have obnoxious motor sounds in the background...
+
+kinda weird I can say that now -- as I would never expect to find those things funny or even encourage them cause they used to piss me off so much. I know now that they're super good because they illustrate for me places where I'm still resonant with anger, frustration etc. those sounds won't bother you, or you may not even hear them, when your brain no longer find that frequency alarming.
+
+it's really good practise. I'm glad mr. motor is spreading his wings a bit.
