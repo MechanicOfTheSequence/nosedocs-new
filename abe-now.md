@@ -2339,3 +2339,35 @@ realising that those sounds can only piss me off if there's still a part of me t
 kinda weird I can say that now -- as I would never expect to find those things funny or even encourage them cause they used to piss me off so much. I know now that they're super good because they illustrate for me places where I'm still resonant with anger, frustration etc. those sounds won't bother you, or you may not even hear them, when your brain no longer find that frequency alarming.
 
 it's really good practise. I'm glad mr. motor is spreading his wings a bit.
+
+### 2021-05-01 23:16 - (2021-02-27 p2)
+
+#### (42:11) - replacing my inner being with someone else
+
+they said something and it didn't make much sense to me. this is usually the signal for me to try and figure out what I think about it. you see, for me, this whole replacing of the inner being is a weird way of saying it. for me, it's easier to say, "why do I feel good?" or "who is responsible for how I feel?".
+
+simply put, if I am able to say, "I am the reason why I feel good", then that means I'm in alignment with my source. it's that simple. if I say "you are the reason why I feel good" (or bad), then that doesn't necessarily mean I've found that resonance with my source. for me, I have to be the reason why I feel good. sure others can contribute to it or enhance it, but I really enjoy the idea that I'm solely responsible for how I feel.
+
+---
+
+side note here: it's so weird some of the terminology they use. I had to take some time to really think about what they're saying sometimes to figure it out. in my opinion, the weird way that they say things really obfuscates the thing. I really had to give it a bit of effort to figure out what "let them replace my inner being means"... OH, I just got it, actually. they mean, am I trying to resonate in harmony with them so I feel good, or with my inner being so that I feel good. ok, but still... it totally obfuscates the thing for me because when it comes to feeling, I'm very strange because I think of most things as resonating or hamony with something, cept for how I feel. I don't see the way I feel being a property of resonating with my source or with someone else. it *is* that way though that's not how I immediately see it.
+
+I see it like I have a system of pertception where I definie things symbolically, and then I see at the symbols interacting with each other and that creates a feeling reaponse. it's very simple and mechanical. there's not even a reason for needing resonance, even though it's the underlying mechanism.
+
+I see symbols interacting and that doesn't feel good, feels good ow is neuttral (not consequential). obviously, if it doesn't feel good, then I just find a way to perceive the interaction in a way which does feel good. see [god mode](!god-mode) for more ideas on that. I'm still feel confused about the thing. I'll come back to this later maybe... dunno.
+
+#### (57:32) - the intensity of contrast
+
+they keep repeating the part about how the writer genuinely feels good during the day, but then at night, they experience terrors. what they are saying is that that the writer does feel good during the day but still at the same time they still perceive these different scenarios in a way which doesn't feel good...
+
+the scenarios were, "love interest getting married", "getting left behind", and ... csan't remember the last one. anyway, the subjects are all conditional in the way where the writer appears not to believe they are the creator of their reality. it should be something more like, "love interest getting married. no worries there's always another. reality reflcets how I feel" <-- brb there.
+
+"getting left behind" feels to me like, "people are doing things or have things which I am being excluded from" -- and so therefore, it feels to me like without those things, it sounds impossible to feel good.
+
+I mean obviously neither of those are true. I like to explain that reality is a reflection of how one feels but I had not considered this case of isolation where so many of the unwanted things are excluded from their life. I need to rework my ideas because I had not considered this. I need more time to think on this because I had not considered the scenario where the physical conditions feel good (nothing bad-feeling in the experience), yet there are still some perceptions lingering which don't feel good. I want to think on this more.
+
+---
+
+however, it seems so plainly obvious to me that the dream terrors are happening because of good conditions. the good-feeling conditions are intensifying how bad the perceptions feel in the dream state. if everyday life was ho-hum, then a dream about being left behind wouldn't feel so bad. if life were miserable, it would feel pretty normal. it's the same thing, but it's the genuinely feeling so good during the day which is intensifying the ho-hum to feel like terror. they're probably not as bad as imagined -- just feel really bad in contrast. I owouldn't worry too much about it.
+
+simple changes in perception will turn those into really good feeling dreams (or maybe reality). intensity levels of perceived terror are the same exact signal for extremely good-feeling ones too -- it jsut depends on which part of the wave you're looking at. I talk about this a bit more here: @[noseblog](2021-04-30 14:56). I'll come back to this. I feel there is more here...
