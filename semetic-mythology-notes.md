@@ -11,7 +11,7 @@ this story is a weird mix of elements. the tree part is a mix of symbols. it has
 
 #### cain and able
 
-at the core, this is a conflict between shepherd and farmer. in sumerian mythology, dumuzid is the shepherd, and enlil is patdon of agriculture. dumuzid/tammuz is also a reborn diety which also associates him with saturn.
+at the core, this is a conflict between shepherd and farmer. in sumerian mythology, dumuzid is the shepherd, and enlil is patdon of agriculture. dumuzid/tammuz is also a reborn deity which also associates him with saturn.
 
 there's another weird thing that happens where saturian imagery begins to shift from saturn being associater with sheep herding, and then begins to have agriculture symbolism including the "reaper's sythe" (you reap what you sow). there's
 

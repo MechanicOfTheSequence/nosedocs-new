@@ -133,7 +133,7 @@ https://www.youtube.com/watch?v=gy72sPtBAJg
   - the symbols don't quite fit into the bigger picture but there is a deeper meaning here
     - ham (saturn) castrates noah (uranus), so he curses him.
     - osiris (saturn) gets murdered by his brother set (mercury)
-      - isis (sirius) pieces together the pieces of saturn and gives birth to horus (the [reborn diety](!reborn-diety))
+      - isis (sirius) pieces together the pieces of saturn and gives birth to horus (the [reborn deity](!reborn-deity))
       - this may refer to the first destruction of humankind, when the dinosaurs went extinct
         - the sirians say that the humans at that time were really stupid and so they were aborted
         - this ancient reference to isis rebuilding saturn and making him as a man which "returns back to the father" is a fortelling of the future humans, neither eagle or serpent which come about as the "capstone" on the pyramid, when the ages when the male and female pyramids are first beginning to touch again (end of kali yuga)
@@ -154,8 +154,8 @@ https://www.youtube.com/watch?v=gy72sPtBAJg
                 - eg. the more they feared, the more the great pyramid turned this energy into DMT
                 - this sense of good feeling and well-being produced by the pyramid gave them the confidence to take action on something that would result in the manifestation of how they really felt, which was fear and attracting a cataclysm
           - so, then if you look at the pyramid as set, he murdered his brother saturn
-          - the return back to this connected state was said to come from the [reborn deity](!reborn-diety), which was rebuilt by sirius (isis) form the recollected parts of saturn (osiris)
-          - this reborn diety was to come out of the hamites, but they rejected him as their capstone (or moment of reconnection), and so then a (self-sabotage) stone was placed instead (peter)
+          - the return back to this connected state was said to come from the [reborn deity](!reborn-deity), which was rebuilt by sirius (isis) form the recollected parts of saturn (osiris)
+          - this reborn deity was to come out of the hamites, but they rejected him as their capstone (or moment of reconnection), and so then a (self-sabotage) stone was placed instead (peter)
             - therefore, the traditional egyptian myth was instead used to be that the appearance of horus was connected to the sphinx, with aquarius in front and the lion in back.
 
 #### capstone

@@ -231,7 +231,7 @@ garden of eden tree (zodiac) has
   - (half-moon symbol) aya on the right
   - with a serpent coming down the middle.
 
-utu (shamash) is the primary solar diety and husband of aya. utu is also innana's twin brother.
+utu (shamash) is the primary solar deity and husband of aya. utu is also innana's twin brother.
 
 a composite being is beginning to emerge, which represent the two sides of the tree:
 

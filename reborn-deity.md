@@ -45,6 +45,6 @@ interestingly enough the story of lucifer is said that he surmised that he shall
 this entity, symbolic of the phoenix will go from the height of desire down to the depths of physicality to work out the true manifestation (light) of that desire.
 
 
-[1]: or the 7 rays associated with the phoenix or solar diety
+[1]: or the 7 rays associated with the phoenix or solar deity
 
 [2]: this is a very common theme in magic mushroom experiences, and other drugs perhaps as well. I have no scientific proof to back this up, but it seems to be activated when the person has high levels of DMT (and perhaps oxytocin enhances the effect) at the same time.
