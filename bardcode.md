@@ -655,6 +655,16 @@ they have to maintain their general evel and ensure that all men continue to bel
 
 you are not evil. you are divinity! you are source! you are pure positive energy. it's only these guys that that have tried to convince you otherwise. lol...
 
+---
+
+now, having written the below stuff, I want to return to this sonnet, because I see it differently now. when I had my experience in the hospital, I recognised and made an agreement with a very luminous being I identified as jesus. there's no doubt in my mind now that this was TTT/jupiter. the weird thing is that as I got to know this personality embedded into my left-side, I discovered that it was a young girl, someone I would positively identify as venus -- which means lucifer -- the queen of heaven.
+
+that makes my left-side (right brain) the jupiter/tesla/aquarian side -- and, the right-side (left brain) then saturnian side. so, imagine for a moment that sonnet being written by me, as I interpretted it above. I clearly show the saturnian side and also the jupiterian side at the same time. I've basically ripped off all of the jupiter stuff I liked and used it for my advantage.
+
+I posess both qualities -- which is a weird thing because I just noticed jesus says, "when thy eye (I) becometh single" -- which means they need agreement. they need to be on the same frequency and then things will work well. in my present situation I don't have that luxury, so what I do is I just define myself in an infinite number of ways and it's unstoppable.
+
+I believe that shakespeare was writing from a future perspective of having attained the 4T (see below), which is why it's encoded with the FIAT LVX symbolism. in short, "let there be light" must have been the beginning of a very high state of consciousness on the earth. they were not singular. they were the el-ohim (el = saturn = lord shiva). and in that state, all things were recreated from whatever the previous catacysm is (plato and lots of archeological evidence inform us that there have been many). therefore I postulate that those surviving the cataclysm found theirself in a godlike state where thoughts became reality, and the earth was (re)created.
+
 ### sonnet 123
 
 thia sonnet appears to be written from the perspective of the "victim". which seems exactly opposite of the above one which appears to be written from the perspective of "TTT" (IAM that IAM). the weird part is he starts off by saying it's better to be vile than to be vile that appears good. however, there isn't much of a "vile" sound to the perspective of the orator of the sonnet. however, this sonnet, it does appear that there is a second perspective coming in here.
