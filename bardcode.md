@@ -855,3 +855,24 @@ antoher aspect to think about is the idea of reutilising my 4/5T technology to c
 when/if they figure this out, these could be "the mechanicals 2.0"...
 
 disclaimer: this is obviously a whole lot of specualtion goggles. please don't take me too seriously :D
+
+
+### a play-within-a-play
+
+I propose that this is an artistic description of my own brain, each part of my brain played by a mechanical. I propose that pyramis is me, normal kenny (left brain), and thisby is the version of jupiter I saw enter my body during the haemorrhage (right brain), a little girl with insatiable desire I would describe as venus.
+
+perhaps the wall is my corpus collusum? tom snout (pyramis' father) is a blacksmith, or a tinkerer. perhaps some aspect of tesla?
+
+moonshine is thisby's mother, but instead plays the part of moonshine, as pyramis and thisby are to meet under the shining of the moon (btw, 6/24 is a full moon this year)
+
+### two versions of jupiter
+
+as I was writing the things yesterday, I noticed a distinct difference between two jupiters. the jupiter that I know (my right brain), which is his duaghter, and I would contend that her birth was actually a planned one, and is retold in the myth of vulcan creating for a zeus pandora who will plaugue the inhaibants of the earth with her crafty ways (the shrew?) -- and that venus is symbolicaally both athena (protector of the athenians, lover of wisdom, knowledge -- the perfect attratctor to the hermes, essentially).
+
+the combination of hermes and affrodite is told to be a hermaphodite. so going back to me two sets of twins. you have two dudes, one is inductance and the other is capacitance. these are both male archetypes. I'm not sure which one is the immortal one. more discussion on that later, I'm sure. then, there is the female, pandora or venus, which is resistnce. resistance is in found in all thing. venus/pandora is the archetypical female form. so then, when you put the two together and you get a hermaphodite, which you have the lover of the physical -7 typs (tesla, thoth, zeus, etc.), the perfect opposite to the -7 types. the traditional two dudes and one girl are the typical "triad" cycle of threes found everywhere. however with the addigion of a fourth type now, the memristor, we add the hermaphodite to the group now (the 4th T?).
+
+from a genetics standpoint this is an interesting discussion. imagine for a moment that inductance/capacitance are the y-chromosome and resistance/memristance is the x-chromosome. the "perfect" guy would be two YYX, but no two guys can ever stare the same X... too much competition. so, instead, the male form has to be XY. with men playing either a simple RC circuit or RL semi-circuit setup (it's not more than a single inductor with some stray resistance) in that sense, if you are an inductive (RL) man, in order to have a resonating circuit, men need a capacitor (another man). huh...
+
+now, think about it from a female perspective. I consider that the X can be anything that it wants to be.. this is the "god aspect" to our genetics. what I mean by that is it is by nature resistance. as an example, all inductors have some resistance but it is the change in direction that the current makes as the electrons flow through its geometry which the induction. current doesn't flow through a capacitor, so it has infinite resistance till their breakdown pressure is reached, then it becomes low resistance. so, consider that the X, if it were to essentially shapeshift could easily be an inductor or a capacitor. I'm greatly simplifying the circuits. I imagine that the Y has many inductors and capacitors in it. I'm saying it's more inductor or more capacitor. I'm also saying that the X can rearrange into whatever shape it wants to, being inductor capacitor or a complicated set of programmable resistances. take the gay references for how you want; they weren't intentional.
+
+whatever the case, I wanted to draw a distinction between the two sides of my head. while I'm sure that I am originally made in the image of jupiter, I believe I have figured out how to change and to rearrange my circuits to be whatever I want them to be. like I said, I've completely reprogrammed my personality. on one side you have the saturnian kenny and othe other side you have jupiter, but it's not manstream jupiter, it's his daughter (designed by vulcan?).
