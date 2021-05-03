@@ -694,7 +694,10 @@ this sonnet illuminates quite a lot writing from the perspective of jupiter.
 
 > No, Time, thou shalt not boast that I do change:
 
+this can be seen two ways. I saw it differently the first time. this is how I saw it:
 the unchaging YHVH is saying that he does change now, however saturn should not boast about it.
+
+however, I would contend that it is saying, "saturn, don't boast saying, 'I do change'" which changes the meaning to be more like ... oh, ok so you change; good for you. don't boast about it (cause I still don't want to).
 
 > Thy pyramids built up with newer might
 > To me are nothing novel, nothing strange;
@@ -771,8 +774,37 @@ having a fully artificial definition of myself, I can be anything I want to be -
 
 > TTTT: IAM that IAM that
 
-again, it's kind of a list. it's kind of the ultimate ego trip in a lot of ways, because with the help of LOA, everything is a reflection of how you feel and what you believe about yourself and others. this is really great because I go around all over the place and attract from other people tiny bits of myself. if I like my definition of myself, this is great. I'm literally going around and noticing all of the things that I love about myself in other people.
+EDIT: got a bit mixed up here. I originally said that I perceived this phase as being source like, then went on to describe what I would like to refer to as the 5T (see below).
+
+the idea here is that in this phase the human begins to see herself in all things. source exists in all things, and you begin to recognise that everything is made in your image -- or, you may say, everything reflects your identity/definition of yourself. all things become a reflection of the human and in addition to perceiving yourself in everything (which is a really good thing if you like yourself).
+
+as I'm writing this, I just realised that this is what the end of sonnet 121, "All men are bad and in their badness reign." -- reason is, because jupiter does not want to change, so therefore in this 4T setup that we're going toward, "IAM that IAM that" means that jupiter will now try and make everyone a reflection of him -- eg. "all men are bad (like me) and in their badness reign (like me)".
+
+this isn't the end of the story though. I contend that we're going to keep this going for quite some time. jupiter says he will never change (sounds strangely like mr. motor ironically) and will remain the same no matter what. well guess what 5T is...
+
+
+> TTTTT: IAM that IAM that IAM
+
+this one is kind of a list. it's really the ultimate ego trip in a lot of ways because with the help of LOA, everything is a reflection of how you feel and what you believe about myself (4T). however, now with the addition of the final IAM, what is happening is again this another balance happening. this can be read four ways now:
+
+- IAM that. IAM that. IAM. (external definition, external definition, who I really am)
+- IAM that. IAM. that IAM. (self definition, who I really am, external definition)
+- IAM. that IAM. that IAM. (who I really am, self definition, self definition)
+
+read them how you want to, but the one that excites me the most is the last one. it's kind of like the perfected side of the TTT: "IAM. that IAM." here'a why, now the list of self definitions can become an extra layer removed. I am a list now of definitions.
+
+this is really great because I can go around all over the place and attract from other people tiny bits of own definition of myself. when I like my self definition, this is great. I'm literally going around and noticing all of the things that I love about myself in other people.
 
 on top of all of that, the things that I attract from people are also improvements I want to make on my personality, too. so the definition of me is constantly improving.
 
-the fourth tau.
+the fifth tau.
+
+### the tau of perception
+
+as I was writing the above, I realised that the tau count is similar to what I call perception. when I think of 5d, I'm thinkint of 3T, because I'm perceiving the thing from all angles. to understand, say 3d = 1T. 4d = 2T because one can now extend their imagination out into the environment and say, "IAM that" and it appears. when you say IAM, it is a feeling, and so when you feel that, the feeling (that you feel) extends itself out into 3d space and becomes a reality. next 5d = 3T where you can behold the feeling definitition of yourself or an object, and perceive it from all angles.
+
+6d = 4T pretty obviously because now you're no longer limited to a single body. you can have multiple identities of yourself (IAM that, and IAM that, too). you can keep this going for as much as you want.
+
+so while jupiter may vow to never change, he doesn't have to. in 5T, that identity can remain fixed for eternity (never ever changing), but if he wants the latest vision upgrade, he'll need to redefine himself. I suppose he could make another very similar to jupiter version of himself, but then he'd have to find a way to keep them from fighting and competing with eachother. which one is superior? will jupiter make an inferior version of himself to punish endlessly for his badness?
+
+I dunno, but probably... lol. he'll likely never give it up, I'm sure. I'm sure he has an agreement with himself he has to keep (even though he never keeps an agreement not in his self-interest, lol). I think it's great and I think it's actually a very good thing to exploit. imagine that each future 2T expansion, we make another world (galaxy, star, planet, etc) and give him rulership over that domain (or something easy to conquest), then he can endlessly make new versions of himself which "ever" won't change -- making jupiter invaluable for the endless contrast and expansion he brings.
