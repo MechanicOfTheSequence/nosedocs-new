@@ -525,6 +525,48 @@ first, I'm not sure why it reminded me of gaius calpurnius piso. there's a guy t
 
 most importantly,  I immediately assumed that the feminine form of saturn would be he hera because vulcan came from her. however, upon further thought, I realise that hera is very much like zeus with shapeshifting and other physical-like characteristics. she's not very conceptual. what I'm looking for is a goddess that's very symbolic/conceptual in nature. I tried hard to think of one and I can't figure any out off of the top of my head, though it's quite possible that what I'm looking for is demeter/persephone. I find that interesting because every time you said penelope (rich), my brain interpreted it as persephone (of the underworld). it's quite possible that this feminine characteristic is the creative desire of the fourth T. I don't know.
 
+=====
+
+ah yes, I found your channel through a comment you left on alan's last video :) I'll check out waugh though. you've mentioned them a few times. I still have duite a few videos of yours to watch too. #12 or 13 (I can't remember) started me thinking of the goddess of the underworld references I was thinking with penelope and the possible ties to the in-diane king/heir/prince (diane is a goddess of the underworld)
+
+anyway, I didn't mean only a metaphorical king. I meant that I find it likely those events did happen, *and* they are a sort of time resonance to the passage into the next era (coming soon, I think).
+
+the reason why I say this is because in conceptual perception (5d), you tune into things, and it doesn't matter what time frame it is. if you're practising kundalini, then you'll be starting to get 4d vision where you can conjure and manipulate mental objects in 3d space.  things will look a lot different too. as you continue to purify your alchemical gold, you'll pass beyond that and again start to see things differently.this is what I'm talking about when I say conceptual (5d) perception. beyond that further is temporal, allowing you to tune into anyone and anything in any moment of time (there are infinite possibilities).
+
+when you think of tuning into something you can only tune into somethting that you resonate with. you can tune into anything -- the good, the bad, and the ugly, so you have to know how to navigate that space and learn to feel good about anything. everything is part of life and people living and dieing is a part of that. if you see tragedy and it really bothers you, you will feel strong negagive emotion and that's not good, so you have to learn to see things from a more and more "divine" perspective. what's happening is, you're tuning into your immortal twin and from that perspective everyone and everything is conceptual. you perceive "time" instead as a transformation of energy. everyone, and I mean quite literally, everyone has this eternal twin. from that perspective (knowing that you're really immortal) all tragedy appears more like comedy (you need to experience it to understand what I mean).
+
+so the tuning process is finding what I resonate with (not aginst) any person place or thing, and from that perspective it begins to give you a strong feeling of knowing of what that is like. you're sharing that mental space with anything. you behold it for what it is, not for what it appears to be. the 3d theatre that is happening all around is just what things appear to be. they are NOT what they really are. you are much more than this physical body and from that perspective you appear to be a body performing in a play. again, you have to experience it to understand.
+
+so with no limits to what you can tune into, you may wonder how you can perceive things of the future. well, as you gut further away from your present moment, the way things are perceived becomes more and more abstract and symbolic. your brain doesn't have a way to translate the signal into valid 3d constructs like cars, streets, clothes and things. your brain picks the closest match to the signal, much like what happens in a dream or an altered state of consciousness.
+
+---
+
+so, for me, I think this explains why de vere talks in such blasphemy ways (I am that I am), because from that perspective, he is. if I tune into you I enter your body and see things from your perspective, as if I were you. because our perceptions are so different, it's difficult to tune into things in the present moment because I have to become resonant with how they are *right now*. it's much easier to tune into a more perfected version of someone else. it's even easier to tune into a perfected version of myself. when you get this capability, you will grow and expand very wise very rapidly, because anything you want to know you can tune into it and then start working the symbols, feelings or concepts you receive into present knowledge. I don't like to tune into people in their present moment, because I have to vibrate like they do. I prefer the perfected version of them (their immortal twin), or into general concepts and ideas that interest me (like shakespeare). it begins a flood of new things that I begin to make sense, making a bigger and bigger conceptual picture of the thing. for example, finding your videos completely opened a new way to perceive de vere for me. as you're explaining the things, I can feel some of the tragedy and comedy and stuff.
+
+you have to have some sort of exposure or experience with subjects like that to be able to write about them. this form of perception will rapidly accelerate your life because your life will begin to reflect the things you tune into, and I think that's why I found your's and alan's channels.
+
+ok man, I have so much more I want to say. please ask me anything and I'll do my best to answer. I don't belong to any of these secret organisations and hold no secrets (because I know that from that perspective, nothing can be secret anyway). the reason why no one is talking about this stuff is because the secret organisations know about it and want to keep it secret. I discovered it on my own and began to recognise the symbols these societies have. I don't have it all figured out by any means, but I don't think the secrets are expanding knowledge. they say it's to protect the purity of the information, but personally I'm a man of chaos tragedy and humour (you gatta laugh at the fails). I have learned everything from mistakes, and I think it would be good if people made more of them. I think the more fails that there are with people tuning into whatever interests them, naturally you will (as I have) gravitate toward the stuff that feels good. there's no sense in, and I have no intention of ever keeping any of it a secret.
+
+ok man cheers :)
+
+====
+
+yep I resonate with the FIAT LVX one as well.
+
+I'm not convinced that he died on that day at all. when it comes to a birth, death or resurrection around the time of the solstice, this is always solar symbolism. always.
+
+to follow that thread a bit, jesus' birth is celebrated 3 days after the winter solstice. this is seemingly backwards because the winter solstice is when the sun dies, not is born. the winter is the time of the least light. on the solstice, the sun appears to stop moving (eg it rises in the same spot) for a few days before returning to its normal trsversal across the sky. looking at a sine wave, it's pretty obvious why that is on the solstice (which corresponds with the peaks). then after being stuck for a few days, when it begins to move, this is it's rebirth or resurrection.
+
+we know the very well accepted idea that christ was crucified (on a cross), then after 3 days he resurrects. again this is solar symbolism, but the weird thing is that this is celebrated for his birth. easter (I had to look it up) is celebrated a week after the first full moon past the equinnox -- meaning, the first waning quarter moon after equinox. I don't really understand why that is, but it must have to do with agriculture. google says that the below ground plants should be planted during the waning moon. the waning moon right after equinox would also be the best time to plant, "flowering bulbs, biennial and perennial flowers, and vegetables that bear crops below ground" -- I guess that makes sense for someone being throw into the ground more than someoen resurrected. so agan, the symbolism is backwards.
+
+I hadn't thought about it, but when I was taking a shower just now I decided I want to look at the solar symbolism for his "death". first, let's put this into context. correct me if I'm wrong here, but I think de vere identified himself with saturn amongst other things. you know this more than me here. I'm jsut saying that because saturn was once regarded as a solar deity, but then you have the image of father time (saturn), hse sickle, a weeping maiden, and the broken corinthian column. I probably have some of those details wrong, but this appears to be about "let there be light" (FIAT LVX) and solar symbolism.
+
+as I established above, the symbolism is backwards, so let's swap them. instead of being born 3 days after the solstice, we shall consider that, like the sun he died on the solstice, and then was reborn on 3 days after the winter solstice. this is when there is the least amount of light.
+
+de vere "died" -- so that really means born or reborn 2-3 days after the summer solstice (a midsummer night's dream). because this is the summer solstice, this is when there is the most light of the year.
+
+I dunno exactly what it means. please leeme know if you have any other symbols that fit into it (or videos to send me toward). I'll keep thinking on it myself. this is really all I wanted to tell you today. hope it sparked some thought :)
+
 ### sonnet 116 & 55
 
 these seem to be talking about the end of the world, both containing the words, "edge of doom". 116 speaks of time in relation to love,
@@ -556,3 +598,171 @@ so, all of this should be put in the context of job 41 (the leviathan). it's des
 so, he's unlike anyone else on the earth (set apart), he's fearless, and is king of all children of pride. this sounds very de vere :) however, it's describing a sea dragon. the sea dragon beholds all high things, not sure if high means lofty or high means perspective (like an eagle).
 
 anyway, the sumerians have the earth (ki) coming from an a very chatic sea dragon (tiamat). she may not be a dragon herself, but she gives birth to dragons and snakes. being a sea dragon, she also qualifies for the underworld (like persephone).
+
+
+### sonnet 121
+
+
+> ’Tis better to be vile than vile esteemed,
+
+starts off by presenting the idea that it's better to be the "bad-guy" than the bad-guy that appears to be the good-guy.
+
+> When not to be receives reproach of being,
+
+and when you're not the bad-guy, you receive the reproach of being a bad-guy.
+
+> And the just pleasure lost, which is so deemed
+
+presenting now the bad-guys' (which are pretending to be the good-guys)' loss of pleasure...
+
+> Not by our feeling, but by others’ seeing:
+
+they didn't lose the pleasure by losing their own capacity to feel (5d), but instead lose their pleasure when others see (FIAT LVX)
+
+> For why should others’ false adulterate eyes
+
+not sure. something about not being able to hide secrets
+
+> Give salutation to my sportive blood?
+
+not sure
+
+> Or on my frailties why are frailer spies,
+
+"as I walk through time, devoid of lies". I can't really tell exactly what this is saying, but it feels to me like it's poetically describing a world where nothing is hidden and nothing unseen (eg. anyone can see anything - 5d)
+
+> Which in their wills count bad what I think good?
+
+nosebook thinks what I am doing is bad, yet I think it's good :)
+
+> No, I am that I am, and they that level
+
+... "opening my eyes"
+
+> At my abuses reckon up their own:
+> I may be straight, though they themselves be bevel;
+
+I'm just a straightforward guy :)
+
+> By their rank thoughts my deeds must not be shown;
+
+they can't allow my "deeds" to be broadcasted though.
+
+> Unless this general evil they maintain,
+> All men are bad and in their badness reign.
+
+they have to maintain their general evel and ensure that all men continue to believe that they are bad, evil, original sin, etc. all that nonsense.
+
+you are not evil. you are divinity! you are source! you are pure positive energy. it's only these guys that that have tried to convince you otherwise. lol...
+
+### sonnet 123
+
+thia sonnet appears to be written from the perspective of the "victim". which seems exactly opposite of the above one which appears to be written from the perspective of "TTT" (IAM that IAM). the weird part is he starts off by saying it's better to be vile than to be vile that appears good. however, there isn't much of a "vile" sound to the perspective of the orator of the sonnet. however, this sonnet, it does appear that there is a second perspective coming in here.
+
+what I mean is that TTT is considered to be different than Time.
+
+"with the sacred key, I open the door to understanding"
+
+I see two perspectives in these. one is TTT (alpha and omega) -- which is weird bevause I thought that alpha and omega was saturn, but from the sound of this sonnet, it appears that TTT (as described in S121) is considered different to "Time". going to the original thing TTT is really YHVH, the name that was given to moses by the burning bush.
+
+ok so there are clearly two perspectives here. there is TTT and there is Time. I must consider that Time is referring to saturn, aka "father time" because it keeps referring to him with his sickle (sythe). saturn was agricultural god and needs time to grow -- and I tuess a shepherd is really needing more the space than the time.. well, so does the shepherd too. they both need time and space, you cannot grow crops instantly, an3 a herd size is limited by space.
+
+anyway, back to the TTT vs. Time thing. for this, the author of shakespeare is clearly writing, "I am that I am" and so therefore identifying with TTT. furthermore, on shakespeare's memorial:
+
+```
+IVDICIO PYLIVM, GENIO SOCRATEM, ARTE MARONEM,
+TERRA TEGIT, POPVLVS MÆRET, OLYMPVS HABET
+
+The first line translates as "A Pylian in judgement, a Socrates in genius, a Maro in art," comparing Shakespeare to Nestor the wise King of Pylos, to the Greek philosopher Socrates, and to the Roman poet Virgil (whose last name, or cognomen was Maro). The second reads "The earth buries him, the people mourn him, Olympus possesses him," referring to Mount Olympus, the home of the Greek gods.
+
+- wikipedia (2021-05-02)
+```
+
+clearly "olymus habet" identifies the writer of shakespeare as jupiter. from now on, I'm going to YHVH = TTT = jupiter = thoth.
+
+this sonnet illuminates quite a lot writing from the perspective of jupiter.
+
+> No, Time, thou shalt not boast that I do change:
+
+the unchaging YHVH is saying that he does change now, however saturn should not boast about it.
+
+> Thy pyramids built up with newer might
+> To me are nothing novel, nothing strange;
+> They are but dressings of a former sight.
+
+this is claiming that saturn (ptah) built the pyramids, and that in this new time of FIAT LVX he will rebuild them with "newer might" ... but they're still nothing special.
+
+> Our dates are brief, and therefore we admire
+> What thou dost foist upon us that is old;
+> And rather make them born to our desire
+> Than think that we before have heard them told.
+> Thy registers and thee I both defy,
+
+jupiter still hates saturn
+
+> Not wondering at the present nor the past,
+> For thy records and what we see doth lie,
+
+everything is an illusion (jupiter's illusion, I may add)
+
+> Made more or less by thy continual haste.
+
+jupiter doesn't like that saturn goes fast.
+
+> This I do vow, and this shall ever be,
+> I will be true, despite thy scythe and thee.
+
+not sure what jupiter is admiting to saturn here. I'm not sure what "being true" means. sounds to me like "keeping it real", lol. considering the first ine of the sunnet, this sounds to me like, even if he knows he'll always be defeated by saturn's scythe, he's going to remain true (to jupiter's nature?) and this will always be that way. sounds like an agreement to me :)
+
+### an alternate interpreation of the 4th tau
+
+having head the sonnets above now, I have to conclude that TTT = jupiter and the 4th T is saturn. I the picture thst is coming to me head is the picture of father time, the weeping virgin and the broken corinthian column. weeping virgin I think = virgo. judging by all of the amazing rock art in india depicting elephants (libra) and so many other great things, this must have been the reign of saturn. however, I think what happened may have something to do with venus.
+
+the way I see is that the atlantian culture setup by saturn back during his reign was really great and stuff, but the atlantians didn't follow the rules of creation, and corrupted theirselves. essentially the sons of saturn ran his empire into the ground. then, out of the forhead of jupiter comes athena/venus which then establishes the reign of jupiter. she must have caused lots and lots of destruction. this is why the innana/sekhmet goddess is shown standing on top op a lion.
+
+what happened is similar to what is happening now. instaed of going from virgo to leo, inanna interviened and changed the course. I believe this is why "the man" is aquarius and it was his daughter that gave him this power. it totally destroyed the (now very corrupt) saturnian/atlantian empire. this was the younger dryas catastrophe.
+
+jupiter has been reigning ever since. 12kya in the wake of such destruction, the corrupt(? -- I'm sure it was a mix) atlantians continued to cause problems and be wiped out by the now dominant athenians (zeus). we went back up to the top and I beilive there was another intervening force which is recorded as "mithras". I find it quite possible that mithras may very well be the same guy as ramtha, which is a saturnian figure self-sabotaging. I say self sabotage because if we were to continue on, we'd go over to libra again and be once more on saturn/enki's side of the zodiac. instead we went down to taurus to remain on jupiter's side of the zodiac.
+
+that's the latest narrative and the one I'm going to work from now. ok, on to the 4th T.
+
+TTT = IAM that IAM
+
+so, if we add the 4T, it becomes:
+
+IAM that IAM that
+
+this, kind of symbolises the "source" perspective of things. let's look at the progression:
+
+> T: IAM
+
+this is the first phase. the human becomes conscious and figures out that she is more than just a robot. she has "free-will" to choose whatever she wants to.
+
+> TT: IAM that
+
+now, the human after havving become conscious and capable of directing her will, now she is beginning to be programmed. she is told what she is, and she defines herself externally, saying "IAM this or that. these things are me"
+
+> TTT: IAM that IAM
+
+I consider this to be the third phase, when the human begins to define herself both with external things but also with self definition. I like this phase because it is a perfect balance between "IAM that" and "that IAM". I consider this to be the battle of being defined externally vs internally. here's why:
+
+when I say "IAM that", phrases of these kind include:
+
+- I am stupid
+- I am smart
+- I am a nobody
+- I am not good at anything
+
+these are all phrases that we all do to define ourself in the sense of the impression we want to give. it's external and internal marketing. we're tryint to tell the ourself or the other person the definition we thing they/I want to hear. it's almost always not true. it's just a an appeal to somone's perception to get them to see you in a certain way.
+
+the phrase, "that IAM", for me is a bit more of what I do. it's very childlike but a child is not conscious of what they are doing. I go arounsd (like a child) and I identify things that I like in other people and I just copy them. *that* I (now) am. see what I mean? it's like copying some attribute from someone. we all do it, and sometimes we do it consciously. when doing this unconsciously, it's kind of like "creating by default". if you watch me, I'm a a bit of a chameleon in the sense that I just adopt/adapt the identity of those around me (shamelessly, I may add). I am a huge collection of "that IAM"s; a composite personality, artificially constructed, tuned and optimised to my specifications.
+
+having a fully artificial definition of myself, I can be anything I want to be -- and I literally mean *anything*. which brings me to the 4T definition.
+
+> TTTT: IAM that IAM that
+
+again, it's kind of a list. it's kind of the ultimate ego trip in a lot of ways, because with the help of LOA, everything is a reflection of how you feel and what you believe about yourself and others. this is really great because I go around all over the place and attract from other people tiny bits of myself. if I like my definition of myself, this is great. I'm literally going around and noticing all of the things that I love about myself in other people.
+
+on top of all of that, the things that I attract from people are also improvements I want to make on my personality, too. so the definition of me is constantly improving.
+
+the fourth tau.
