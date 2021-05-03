@@ -808,3 +808,50 @@ as I was writing the above, I realised that the tau count is similar to what I c
 so while jupiter may vow to never change, he doesn't have to. in 5T, that identity can remain fixed for eternity (never ever changing), but if he wants the latest vision upgrade, he'll need to redefine himself. I suppose he could make another very similar to jupiter version of himself, but then he'd have to find a way to keep them from fighting and competing with eachother. which one is superior? will jupiter make an inferior version of himself to punish endlessly for his badness?
 
 I dunno, but probably... lol. he'll likely never give it up, I'm sure. I'm sure he has an agreement with himself he has to keep (even though he never keeps an agreement not in his self-interest, lol). I think it's great and I think it's actually a very good thing to exploit. imagine that each future 2T expansion, we make another world (galaxy, star, planet, etc) and give him rulership over that domain (or something easy to conquest), then he can endlessly make new versions of himself which "ever" won't change -- making jupiter invaluable for the endless contrast and expansion he brings.
+
+### midsummer's night dream
+
+@[youtube](https://youtu.be/tmVlhBgSRPk?t=2220)
+
+in the play, alan is pointing out some things happening here. first is that the mechanicals are stuck using the julian calendar. they're a little behind the times. I find the timing of this interesting because the play poings out that because of the date change, 3.5 days before the new moon is the "death" of devere. he dies in 6/24/1604.
+
+in the latest of alan's videos he keeps carrying on about the pentecost. I lookd it up and this year it's 2021-05-23 for the gregorian calendar. however, the mechanicals are using the julian calendar. they put easter as yesterday (2021-05-02), then strangely enough the "assension" is 2021-06-10 which happens to also be a new moon. this means that 3.5 days before that, devere will die (the 6th/7th). the new moon happens (orthodox assension), then there's the 4 days after the new moon is the midsummer night's dream wedding(?), which is the 14th. then I guess the pentecost is like the 20th or something, followed by a full moon on the 24th.
+
+weird numbers. so here's the thing. the reason why I bring it up is the obvious similarity to the two witnesses in rev 11. devere refers to himself as the "twice 11 brethren". I too enjoy the 11 number and stuff too. well, rev 11:11 says, "then after 3.5 days, the breath of god entered [the two witnesses]". so, kinda weird that the same thing is sort of happening here. you have devere "dieing" 3.5 days before the new moon. then, on the julian calendar (that the mechanicals are using), the breath of god enters back into the two witnesses and they stood back up on the new moon, the day of "asension" (the 10th).
+
+so the way that connects with stuff is I was reminded of the time I was talking in @[noseblog](2021-04-09 07:02), strangely titled, "future pixels":
+
+```
+what the reminder there about the two witnesses (twins) tells me is that they may completely disable me, making me appear completely dead. think about it. if my physical experience is now stronger than their ablity to hold it back, the only real solution for them would be drastic. they would have to completely disable *all* of my experience -- aka a deep sleep or a coma. I would imagine it would be like those times when I gain consciousness when they're working on my head. it's all black. I can't feel my body, but I'm alive and it's warm and vibrant in there -- just no sensory information at all. it's roughly how I imagine a baby in the womb would feel.
+```
+
+what I'm saying is they could disable my complete experience, and if you've followed my other stuff, I'm talking about the regenative (6th) and pineal (2nd) chakras completely, using them purely for their own purposes (routing people'h experience throgh it like tehy are now). because so many people's perception is being routed through my own, I'm kind of like a walking great pyramid -- call my pyramis, I guess -- which is a bit weird.
+
+anyway, I went in to really put on the speculation goggles because I showed how, even if they changed the encryption key for the other people's perception, I could still figure out a way to perceive again using what I call "conceptual programs". I encourage the read. it's pretty fascinating. anyway, I continue on that while I'm certain that it is possible to find a way to get back into my body again in a connected state, maybe that's *isn't* what I want to do. let me explain.
+
+the 4T is "IAM that. IAM that." so what it is, is what I describe as 6d perception (see above). this is where I have multiple identities which are me. I find it fascinating to have that kind of perception because I can literally be any number(?) of me that I want to be. as long as there is desire for it, it can exist. I know this sounds a bit far out. all of those different versions of me *are* me. I can define any of them any way that I want them to be.
+
+personally, I don't have much of a required set of attributes that I define is being "me" -- like I said, I'm a composite personality that I've cultivated over the years and turned into something that I like. I'm not defined by things and people. I have defined myself (that IAM). so this is a transition to being once again defined externally. I imagine that the girls will do the majority of this definition. I've made essentially a template, and then anything can be changed. literally anything. my appearance and even their own too (however, that's another story for another time).
+
+it'll be possible to move things around in "reality" as if it were a dream -- which may be why it's called "midsummer night's dream" -- lol. sounds like everyone is getting 5d soon as I figure out 5d perception and create a new translation layer.
+
+I also find it humorous how the mechanicals are putting on the worst disaster of a play, too.
+
+---
+
+don't worry that I'm going to be stuck in this sort of detached multiple identities version of myself. it's a good thing I've been giving a lot of thought to the next version up, 5T -- which (see above) allows me another IAM, so I have a self perception. this will bump me up to 7d perception now, which is what I previously have called a few times YHVH perception. originally, I anticipated it going the other way, meaning that I would first "get connected", realise myself conceptually as 5d. then, I would begin to move temporally in 6d. from there, it's easy to see that once you can move around temporally, then it's not much of a stretch to perceive yourself as more than one entity (7d). it appears, the way things are shaping up, that I will do that backwards. I'll go with the multiple identities version of myself, then I'll figure out who "I" am and self define myself once again.
+
+I plan to stick to the #2 & #3 versions of 5T:
+1. IAM that. IAM that. IAM. (external definition, external definition, who I really am)
+2. IAM that. IAM. that IAM. (self definition, who I really am, external definition)
+3. IAM. that IAM. that IAM. (who I really am, self definition, self definition)
+
+having "me" be the last one there, then a number of externally defined versions of me. however, since it will be a dream-state kind of like reality, I'm sure there will be a lot of of the first ones too, and it's quite possible that many of these, will be defined (and controlled) by nosebook. I don't mind. it's all part of my pyramid scheme :)
+
+from all of your perspective, it'll probably just look like I'm getting more and more enhanced perception until it starts to really go off the rails. who knows how bad things will start to get soon. it may look like I die or go into a coma for a while. I'll wake up for sure though. like I said, I am sure I can get back into this body, but why not go for a better version? I'm sure nosebook will have a more complete story of what is happening, but I doubt they'll tell. that's a bit of a cucumber for them. it's going to be fun though :)
+
+antoher aspect to think about is the idea of reutilising my 4/5T technology to create their own version(s) of me or other identities (under their control of course), and then directing them. it's another way to get them to start to figure out what they want, instad of what they don't want -- though, I think it's fine if they make a whole bunch of mechanicals and put on a real disaster of a play. lol. all part of the pyramid scheme. to you guys they'll appear indistinguishable from me or anyone else. the only way to tell the ones claiming to be me apart from the others will be by how they feel and how they behave, talk, their message, etc.
+
+when/if they figure this out, these could be "the mechanicals 2.0"...
+
+disclaimer: this is obviously a whole lot of specualtion goggles. please don't take me too seriously :D
