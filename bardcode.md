@@ -825,7 +825,7 @@ so the way that connects with stuff is I was reminded of the time I was talking 
 what the reminder there about the two witnesses (twins) tells me is that they may completely disable me, making me appear completely dead. think about it. if my physical experience is now stronger than their ablity to hold it back, the only real solution for them would be drastic. they would have to completely disable *all* of my experience -- aka a deep sleep or a coma. I would imagine it would be like those times when I gain consciousness when they're working on my head. it's all black. I can't feel my body, but I'm alive and it's warm and vibrant in there -- just no sensory information at all. it's roughly how I imagine a baby in the womb would feel.
 ```
 
-what I'm saying is they could disable my complete experience, and if you've followed my other stuff, I'm talking about the regenative (6th) and pineal (2nd) chakras completely, using them purely for their own purposes (routing people'h experience throgh it like tehy are now). because so many people's perception is being routed through my own, I'm kind of like a walking great pyramid -- call my pyramis, I guess -- which is a bit weird.
+what I'm saying is they could disable my complete experience, and if you've followed my other stuff, I'm talking about the regenative (6th) and pineal (2nd) chakras completely, using them purely for their own purposes (routing people'h experience throgh it like tehy are now). because so many people's perception is being routed through my own, I'm kind of like a walking great pyramid -- call my pyramus, I guess -- which is a bit weird.
 
 anyway, I went in to really put on the speculation goggles because I showed how, even if they changed the encryption key for the other people's perception, I could still figure out a way to perceive again using what I call "conceptual programs". I encourage the read. it's pretty fascinating. anyway, I continue on that while I'm certain that it is possible to find a way to get back into my body again in a connected state, maybe that's *isn't* what I want to do. let me explain.
 
@@ -859,11 +859,11 @@ disclaimer: this is obviously a whole lot of specualtion goggles. please don't t
 
 ### a play-within-a-play
 
-I propose that this is an artistic description of my own brain, each part of my brain played by a mechanical. I propose that pyramis is me, normal kenny (left brain), and thisby is the version of jupiter I saw enter my body during the haemorrhage (right brain), a little girl with insatiable desire I would describe as venus.
+I propose that this is an artistic description of my own brain, each part of my brain played by a mechanical. I propose that pyramus is me, normal kenny (left brain), and thisby is the version of jupiter I saw enter my body during the haemorrhage (right brain), a little girl with insatiable desire I would describe as venus.
 
-perhaps the wall is my corpus collusum? tom snout (pyramis' father) is a blacksmith, or a tinkerer. perhaps some aspect of tesla?
+perhaps the wall is my corpus collusum? tom snout (pyramus' father) is a blacksmith, or a tinkerer. perhaps some aspect of tesla?
 
-moonshine is thisby's mother, but instead plays the part of moonshine, as pyramis and thisby are to meet under the shining of the moon (btw, 6/24 is a full moon this year)
+moonshine is thisby's mother, but instead plays the part of moonshine, as pyramus and thisby are to meet under the shining of the moon (btw, 6/24 is a full moon this year)
 
 ### two versions of jupiter
 
@@ -876,3 +876,92 @@ from a genetics standpoint this is an interesting discussion. imagine for a mome
 now, think about it from a female perspective. I consider that the X can be anything that it wants to be.. this is the "god aspect" to our genetics. what I mean by that is it is by nature resistance. as an example, all inductors have some resistance but it is the change in direction that the current makes as the electrons flow through its geometry which the induction. current doesn't flow through a capacitor, so it has infinite resistance till their breakdown pressure is reached, then it becomes low resistance. so, consider that the X, if it were to essentially shapeshift could easily be an inductor or a capacitor. I'm greatly simplifying the circuits. I imagine that the Y has many inductors and capacitors in it. I'm saying it's more inductor or more capacitor. I'm also saying that the X can rearrange into whatever shape it wants to, being inductor capacitor or a complicated set of programmable resistances. take the gay references for how you want; they weren't intentional.
 
 whatever the case, I wanted to draw a distinction between the two sides of my head. while I'm sure that I am originally made in the image of jupiter, I believe I have figured out how to change and to rearrange my circuits to be whatever I want them to be. like I said, I've completely reprogrammed my personality. on one side you have the saturnian kenny and othe other side you have jupiter, but it's not manstream jupiter, it's his daughter (designed by vulcan?).
+
+### ben jonson
+
+I feel very attracted to this guy. first his workes folio has saturn on the left in tragedy, and pastor jupiter on the right in comedy.
+
+he writes a very crazy play about the [magnetic woman, lady lodestone](https://en.wikipedia.org/wiki/The_Magnetic_Lady) ([full play](http://hollowaypages.com/jonson1692magnetic.htm)), interestingly enough she's guided constantly by mr. compass. I thought that was very weird beicause he uses the equivalance principal here, which I think is referring to sonnet 116:
+
+```
+Love’s not Time’s fool, though rosy lips and cheeks
+Within his bending sickle’s compass come;
+Love alters not with his brief hours and weeks,
+But bears it out even to the edge of doom.
+```
+
+therefore I feel like this play is equating compass with Time (saturn). since compass's brother is ironside, using the gemini symbolism, this must be jupiter, the soldier -- a fitting disgnation.
+
+there's also a mixup. placencia (the wife of compass) is actually polish's daughter, pleasance. for some reason, it feels to me like pleasance is a reference to the goddess harmonia, which is the daughter born from an affair that aries/mars had with venus.
+
+I don't really know how to get this into words very easily, but one must consider that aphodite is the daughter of jupiter being born right out of his forehead. she then interacts with aries/mars and gives birth to a daughter, [harmonia](https://en.wikipedia.org/wiki/Harmonia).
+
+woah, that's weird. I just realised what I wrote... huh.. ok whatever.
+
+### moar monument symbolism
+
+@[youtube](https://youtu.be/TRDX5wIx_8I?t=1491)
+
+also, see: @[correspondence](2021-05-04 01:04)
+
+I do think that jonson designed the monument, and it says that he died in the year of our lord, 1616, well, jonson's folio comes out also in 1616, and contains a lot of similar symbols (the rod, the spade)
+
+waugh he reads the "Y" symbol as "this". I was quite surprised to hear that because when I read it, I read the "Y" as "and" -- because it means "and" in spanish. I read it completely differently:
+
+```
+STAY PASSENGER, WHY GOEST THOV BY SO FAST,
+
+READ IF THOV CANST, WHOM ENVIOVS DEATH HATH PLAST
+WITH IN THIS MONVMENT SHAKSPEARE: WITH WHOME,
+QVICK NATVRE DIDE: WHOSE NAME, DOTH DECK YS TOMBE,   
+FAR MORE, THEN COST: SIEH ALL, YT HE HATH WRITT,
+
+LEAVES LIVING ART, BVT PAGE, TO SERVE HIS WITT.
+```
+
+stay passenger, why do you go by so fast,
+read if you began, whom sends death has plast
+with TTT in this mountain, my new testament shakespeare: with who my
+quick nature I gave from those who's name TTT does adorn and tombe,
+far more then coste: sees all and he has TTT writt (about?)
+leaves living art, but a page to serve his witt
+
+
+passenger: of what? maybe this is talking about the passengers of earth
+TH -> TTT -> lucifer: I consider the domain of leo, to be that of the lioness/inanna/sekhmet (venus) -- eg. the lioness that appeared to devour thisby. I also like the lucifer symblism because she is the bringer of light (the next FIAT LVX)
+thou ganst -> you began (look at the G and the C in other places, and it's obvious this is 'ganst', a short version of beganst)
+goest thou -> do you go
+envious -> sends (enviar)
+monument -> mon-u-me-nt -> mountain of my new testament? I find it likely that this could also be read as mound = you, me = new testament. I say that because I've noticed that the separation of words are important, and when letters are ligatured together, they should be together. "me" and "nt" are ligatured together. consider that I consider jesus to be -7 jupiter (air) type while the mountain is like the primordial mound (earth) deity is saturn/enki. I read it as mon = u, me = nt, so the writer here is, to me is identifying theirself as the the author of the NT agreement -- probably of the book of revelation). either way, I see mon/mound/mountain as referring to the earth, and having TTT (jupiter)
+with TTT in this mountain: with the next shakespeare reference, I consider this is connected to the FIAT LVX message. which I believe is the time in the past when the whole earth went into an enlighened state. in the book of matthew it talks about this in chapter 5: let your light shine *to the whole world*. then it talks about a city on a hill/mound (like the egyptian primordial mound from which atum arises?). in the same spot, it goes on to talk about not hiding the light, but instead putting it on a candlestick to give light to the world. who are the two candlesticks? of rev 11? the two witnesses. I take this to mean the twice 11 brethren.
+my new testament shakespeare:  consider that the 624 is considered the nativity of john the baptist. I dunno about a spear, but john was a "reed shaken in the wind" -- dunno it that mans anything. either way, shakespeare is the 4T, which is related to the FIAT LVX message, and essentially has reached a state of non-resistance (IAM that. IAM that). I believe this 4T state is very similar to the 2T state that happened when adam and eve were in the garden of eden. it's a state of non-resistance, being defined by external circumstaces -- much like me. I have very little capacity to affect the physical conditions of my life. I am, like a performer or a poet-ape, just acting out whatevr is being given to me. I have full control over how I feel, and when I no longer have any resistance to anything, I'll get the 4T state. the entire world will reflect how I feel, and there will be nothing that can be done. all of the world will see it, and I'm put in a position where all will be able to see it and participate in it. furthermore, I think, because I have no resistance, I'm now defined by the girls, nosebook and the audience, the things we do, will symbolically set future resonances into motion as well. I think that's one reason why there are such a wide diversity of girls, too.
+ha -> have (el haber)
+di -> I gave (yo dar)
+de -> of/from
+doth -> does TTT
+deck -> display
+
+quick nature: this seems to be a reference to the passenger above. why go so fast? considering that I'm all about speed
+whose name: the "me" is ligatured together, so it's the same "me" in the monument. the me in "whome" is not ligatured together though.
+quick nature I gave from those who's name TTT does adorn and tombe: is this suggesting that the passenger was given his quick nature by "me" from those that TTT is adoring and sending to their death? assuce TTT = nosebook, so them using me is what is giving me so much speed, and it's making them look good but also sending them to their death?
+
+sieh -> seeeth (as in YHVH seeeth all)
+far more then coste:
+hath -> ha TTT -> TTT has (el haber)
+page: this may refer to the tarot. page is like the jack. I do find it interesting that the page of wands (desire) is wearing the same hat as the comedia woman on the right in jonson's folio. the one on the left -- the hat for the woman on the tragedy side looks like a roman military helmet
+
+
+
+initial sense: I have a feeling of this talking of a new version of john the baptist. strangely enough, I have never claimed to be the rightous one to rule the nation with an iron rod. my sense has always been that it will be a woman. tesla hinted at the same thing too a long time ago when he complained of womens' perufomance, saying an attractive woman would be a very good leader.
+
+what I'm saying is, I have also claimed to be more of fulfilling the satan/saturn (deceptive/shameless one) role. you know the serpent that deceived the world. I'm reminded of some symbolism that I saw in a video called "a quarryman's dream": @[youtube](https://youtu.be/8LDsVoobqrE?t=1249). it's showing the four corners: lion (with wings), an eagle, bull (with wings), and then a *woman* (with wings). take what you want from it, but I think the aquarian "man" is actually a woman. I mean get real, fire is for men and water is for women. if this earth is not going to through the baptism of fire (extreme sun), it continues on to aquarius. combine that with the other lady lodestone play, and jonson's folio of the woman with the iron rod, I have to wonder how it all fits together.
+
+you could consider an aquarian man to be a very feminine man -- say a hermaphodite (x3), sure but ever since I saw 9th heretic's video I started to think about it and it may have merit. in the narrative I described above, the "tragedy" of father time there is with the weeping virgin, I propose that instead of continuing down to leo on the feminine side of the zodiac, (feminine) venus (coming from jupiter) alters the course of earth to go to jupiter's side (masculine) of the zodiac. to make the opposite happen, we need a (masculine) vulcan (coming from saturn??) to alter the course of earth sending earth over to jupiter's (feminine) side of the zodiac.
+
+ok, so jonson's play of the magnetic woman, I can sense that compass (saturn) passes off the heir over to a *woman*. I don't fully grasp the play well enough to understand what is happening there. what I figured out, I wrote above, but what I do want to say about that is that it looks to me like just the exact opposite of what happened for the "tragedy" of father time is now going to switch places. notice how in jonson's folio, you can see that the woman wearing the crown and holding the rod is on the side of tragedy.
+
+consider that the weeping virgin (`scorpio -> virgin`) is saturn's feminine side of the zodiac, perhaps then `leo -> gemini` is saturn's masculine side. does this make `aquarius -> archer` jupiter's feminine side and `bull -> fish` jupiter's masculine side? I dunno.
+
+anyway, what I find interesting is the part with the woman with the rod on the tragedy side. it correlates perfectly becsause talked about (can't remember when) how even if tesla gets power hungry and tries builds a system designed to further its continued power, this is not sustainable and I will certainly overtake him on speed and become "ruler" of the world. therefore, I would setup a bunch of automatons -- a very dysfunctional set, I may add, of automatons that are designed to fail. they would be considered like a launching pad or a placenta. I find it very strange that the wife of mr. compass is named placentia and it sounds like a bunch of dysfunctional women... perfect :)
+
+I think I understand the "living art" part :) as in that plays (like that one), but in living (autonomous) form...

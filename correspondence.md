@@ -68,3 +68,17 @@ an addiction programs your brain to respond to the addictive stimulus and produc
 anyway, I'm so glad I tried so hard to figure out that above part. I love addictions because they force you to figure yourself out. my idea to drive myself like an addiction, with feeling instead of action, is kind of a revolutionary idea. instead of trying to fight the addiction, why not just accept that I'm addicted to feeling good, then use my perception to feel good about anything :) I don't need to do things to feel good, I can just feel good and let my life reflect how I feel about myself :)
 
 man, I really enjoyed writing this! take care man!
+
+### 2021-05-04 01:04 - to john anthony
+
+I'm pretty convinced that it's jupiter. the obvious visual indicator is the giant eagle above the crest of arms there. the eagle, hammer and thunderbolt is the symbol of jupiter, and the snake or sicle/sythe to saturn. either way, waugh claims that jonson designed the monument, and I fully agree. have a look at jonson's folio here: https://www.rct.uk/sites/default/files/collection-online/d/1/558833-1443687797.jpg
+
+you will see two sets of twins (twice 11 brethren, imo), one female twins and the other male twins. they are identified, too: the one on the left is labeled, SATVR -- so, saturn. the one on the right is named "PASTOR". saturn is always a grain/harvest god and pastor is a shepherd. furthermore, the symbol for saturn is a goat playing some pipes (like capricorn, bacchus or dionysus).
+
+the other one has to be jupiter. there's some weird symbolism going on in that folio there as well which I will point out. first, notice that the symbol (rod looking thing) on the crest with the eagle above the monument has the same shape as the rod the person in the centre of the folio is holding in their right hand. you will see the same rod on the bottom as well, also in the right hand of the woman on the side of tragedy. she's also wearing a crown. she's the queen, the heir.
+
+so, now let's look at the other woman (on the comedy side). you'll notice that she's holding a wooden staff that reminds me a lot of a "shepherd's staff" in her left hand. that same staff is seen above, also in the left hand of the bacchus. the pastor however, shows a regal orament on his staff under his left leg, but look under his foot. it's a spade. sounds like the old picture of the monument waugh is showing in that video with father time pulling truth out of the earth.
+
+I see and concur with waugh's explanation there but I want to offer a second layer of meaning. the spade is symbolic of effort or labour and refers to jupiter. to explain, let's look at the concept of value. we equate value with both effort and time. time, effort and quality are all units of measurment. in the alchemical process work/effort needs to be done and this takes time. once again time and space are the twins that are each necessary of each other. you can't have space without time, neither time without distance/space. these are the twins that appear separate but are perpendicular perspetives of the same thing. I refer to these as saturn (time) and jupiter (space). these are the two symbols on either side of the monument: the spade and the hourglass, referring to time and labour.
+
+there may be more symbolism relating to the women twins there I believe jonson reveals in his play, "the magnetick lady" of the passing of the feminine heir from mr. compass (eg. Time, ref sonnet 116) to pleasance. look at the crown and rod.
