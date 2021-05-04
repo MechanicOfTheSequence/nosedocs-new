@@ -9121,6 +9121,16 @@ I just keep doing what I'm doing :)
 
 [1]: there may be less resonant energy available becsuse there potentizlly could be less humans alive -- both from after the disaster or humans manifesting too fast are separated out to exist on timelines with less vibrationally similar co-creators -- or none at all. however, even still, the energetic effort required for manifestation will montinue to decrease with time.
 
+### 2021-05-03 21:36 - beauty as a reflection of rightness and wrongness
+
+ok, this is an idea that I had a few nights ago. I've been wanting to write it but I haven't felt very ready. it's associated in my mind with raquel and is kind of a followup to the expectations idea.
+
+the basic premise here is that when I made the realisation that truth/rightness/reason is a feeling response, then things started to all of a sudden make sense. combine that with the idea that physical reality is a reflection of the way you feel... what I was noticing is that a lot of attractive people believe they are right and a lot more unattractive people think others are wrong.
+
+what I mean by that is rightness is a feeling response, then the steff that I say which I feel very right about will make me feel good, and so therefore my physical appearance will begin to match the good feeling of rightness. however, it starts to fall apart if I start thinking other people are wrong, because that never feels good and so once again my physical appearance will begin to reflect that not-good feeling response.
+
+play with it :) I didn't really realise how powerful of an idea this is. :)
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
