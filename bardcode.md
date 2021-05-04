@@ -703,7 +703,7 @@ however, I would contend that it is saying, "saturn, don't boast saying, 'I do c
 > To me are nothing novel, nothing strange;
 > They are but dressings of a former sight.
 
-this is claiming that saturn (ptah) built the pyramids, and that in this new time of FIAT LVX he will rebuild them with "newer might" ... but they're still nothing special.
+this is claiming that saturn (ptah? osiris? not sure what he means here) built the pyramids, and that in this new time of FIAT LVX he will rebuild them with "newer might" ... but they're still nothing special.
 
 > Our dates are brief, and therefore we admire
 > What thou dost foist upon us that is old;
