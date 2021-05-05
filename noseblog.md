@@ -9131,6 +9131,76 @@ what I mean by that is rightness is a feeling response, then the steff that I sa
 
 play with it :) I didn't really realise how powerful of an idea this is. :)
 
+### 2021-05-04 16:21 - brainstorming tragedia
+
+I have mentioned in the past that I believe I'm just sort of the pre-game show, not the main event. well, as I was looking at more of the bardcode stuff yesterday, I was noticing that the 6/24 thing is supposedly the nativity of john the baptist. this reminds me to have a look at the "bath sonnets" later. anyway, that's not the discssion I wanted to make here.
+
+I have often times contended that there is a coming feminocentric environment well, some of the latest thing I'm realising is that jonson encoded some ideas of this in his play, "the matnetic lady". I read the synopsis and I absolutely love the symbols. however, when I was trying to read the actual play, it fult very cumbersome and I was having a very difficult time understanding it[^1].
+
+I've had a pretty good sense of what I wanted to create when it comes to this, so instead of reading the play and copying someone else's work, I figured I would start to brainstorm my own tragedy.
+
+the idea behind it is that I've noticed that our traditional male-dominated power structures appear to be ones that exist solely to further their own existence. I'm not really into that idea. if I become king of the world (or whatever), my goal is not to create a power structure that itself is designed to last, but instead one that is designed to move out of the way or fail after some time. this is a much more feminine concept, like a nest, an egg, or a placenta. it's a structure designed to exist just for the very short "bootstrapping", and then afterward it's to be discarded. interestingly enough, the way the play goes, the magnetic lady (lady lodestone), is trying to marry off her neice, placentia[^2]. so this is exactly what I'm looking for: a story around a temporary structure (placenta), which like me is designed to be discarded after the birthing process is complete. this takes the form of tragedy.
+
+---
+
+what I originally wanted to create is a dysfunctional feminocentric environment of a bunch of nest-featherers.. this also ties in with my present situation too. a long time ago, I was thinking about the whole "keep it in the centre" idea, back when I actually wanted to successfully land the ship. I've changed the idea since, deciding to go max disaster/tragedy because it's the most energetic. I postulated that perhaps instead of keeping it in the centre, maybe the goal is actually to overshoot. if you're trying to land on an aircraft carrier, one could imagine that disaster is either overshooting or undershooting. usually people think of disaster as falling way short of the objective -- undershooting. I surmised that if I decide to go for the most energetic, then I would be WAY overshooting the target. there are so many illusions in the sonnets to Time (saturn) going too fast and this is causing all kinds of problems. sounds like my kind of disaster :)
+
+anyway, so on shakespeare's gravestone, it starts off by saying, "stay passenger, why do you go by so fast?" -- which, got me thinking about the whole overshooting thing. if I'm going way too fast, then something needs to slow me down. knowing how LOA workas now, it's easy to see that until something manifests, it continues to go faster and faster. there's literally no way for me to slow down. in fact, the only way to slow down is manifest something[^3]. when it manifests, then the manifestation will slow me down. this means that the girls are, in a sense, designed to slow me down. this sounds somewhat like nest-feathering, but we're not there yet :)
+
+---
+
+so here's the thing: my goal is to not create a power structure that is designed to further its own existence, but to instead be a sort of temporary scaffolding or nurturing thing until the creation has grown. imagine for a moment that we're making baby eagles and they're in the nest, they're going to have to eventually fly, right? well, what if we made some ultra-dysfunctional eagle parents that don't want their baby eagles to ever leave the nest, ever. they just want them to hang around at home and feed the eagle babies forever. it doesn't even make sense in that analogy because obkviously the nest will fill up with full grown eagles that have never been given a chance to fly yet because they're being told how scary it is out there. they could fall, safety concerns, risk, etc.
+
+I want to create this sort of dysfunctional structure -- some real nest-faetherers -- why? because imagine for a moment you're one of those baby eagles. eventually, you're gonna be like, "move outa the way mom. I'm gonna figure out how to fly on my own" and then do it.
+
+so since this is feminocentric environment, what we need is a bunch of moms that are so dependent on their boys staying in the nest (probably because they boys are their source of satisfaction), they need to try to find ever increasing ways to keep the boys in the nest and never learn to fly for theirselves. to do this, what we need are some really attractive, smart and funny boys that really want to to figure the world out for theirselves and not have mom spoon feeding them reality.
+
+see what I mean there?
+
+---
+
+ok, so that was the original idea, but it didn't contain many of the elements of the magnetic woman template. however, just now as I was brainstorming the future tragedy
+
+[1]: like, I can usually get a little but I was even having trouble figuring out who was mr. compass's wife, for example.
+
+[2]: placentia gets many inquiries from a whole lot of buffoons. she even has a moth in charge of her earthly posessions (an obvious reference to jesus' parable of storing treasures on earth). she's surrounded by a bunch of comedic difficulties. inotherwords, the people she's sourrounded by reminds me of me after I sold tuenti. moth = eduardo, and so on, etc.
+
+[3]: clearly nosbook cannot allow that to happen, so they must keep trying to prevent it from manifesting (which means I go faster) or to go their own way, and it'll manifest. really, it's up to them what they want to do.
+
+### 2021-05-05 17:55 - moar tragedy brainstorming
+
+ok, so what happened when I was brainstorming the tragedy, I had two more new ideas that I wanted to put out here. they potentially can be combined, too.
+
+so we need some nest-featherers. where will they come from, though?
+
+the first was an idea that we do essentially two phases. the first phase we'll make a bunch of really beautiful boys, and the girls (which will by then then be women) that are growing the boys up will become the nest-featherers. the boys will be so great that they'll try to keep them forever in the nest. the second phase will again be another set of younger (more attractive?) girls, and these will be designed to be the "good-girls" which are trying to save the boys from the oppressive (now older but probably still attratctive) nest-featherers. they'll come in with a lot of new ideas on how to improve upon the nest-feathering. the irony/humour here is that the "good-girls" trying to save the boys from the evil nest-feathrers, and are doing pretty much the same thing they're saving the boys from: "leave the good conditions of the nest and come stay with me instead where I'll feather your nest differently" -- then the establishment can argue and compete on nest feathering. the boys may like it at first, and who knows how long that'll last. I mean they'll have attractive women competing over them to try and provide them with the best conditions.
+
+this idea plays into the waekness that women perceive when they get older they feel that lose their attractiveness. therefore, it'll naturally create competition and stronger desire for the women to remain attratctive to the boys they're trying to keep in the nest. obviously, they'll want to try and keep the young girls from becoming attractive, so they'll have to try and teach the young girls (their competition) to believe that everyone else is wrong (theirselves being the primary source of wrongness), and also controlling the good-feeling conditions needed to maintain their appearance, as well. obviously, the younger girls coming up will have to figure out how to not listen to the older women trying to keep them from poaching their boys and stuff like that. it'll be interesting for the girls to, when they get older realise that everything their mom had told them was purposefully designed to keep them from being too attractive. there's a lot of potential for tragedy I didn't even touch on here, with this setup.
+
+---
+
+the other thing that caught my eye on shakespeare's monument engraving was the part about leaving living art. I have had the idea that I want to create a bunch of automatons, sort of like alternate versions of myself.
+
+the obvious idea here is to make female automatons of myself which will be the nest-featherers I described above. the problem here is I don't know how to enter them into the scene. before I continue I need to explain another thing...
+
+when I was younger, I was making tuenti and I had a lot of good ideas and it certainly would have been successful, but instead of me being able to create the thing I wanted to create, I had various events which seemingly altreed the trajecory, ultimately keeping me from being able to create the thing I wanted to create. this is tragedy. I recovered from it, but after doing so I had a large oppressive force (nosebook) put in such a way as to keep me from ever being able to reach my goal of programming something cool. I will take my own situation as inspiration here and say that all you have to have is an oppressive force (like the female automatons I mentioned above) essentially installed as a huge roadblock to the girls. so let's say maybe like 2-5 years or so they'll have with the boys, and gradually there will be an external influencing force (designed by me and performed by those female automatons) which prey on the girls fears of not being able to see the realisation of their creation. they would completely take over the whole gnomitos setup and ensure that the children that the girls gave birth to are now their own conditions and well-being that they need to keep going.
+
+now, the girls can find a way, like I did, to feel good even with some oppressive nest-featherers coming in and commandoing their boys. they'll be very similar to nosebook in that they'll know the boys really really well and know (and exploit) all of the boys weaknesses, turning them to their side with good-feeling and compelling conditions. a complete disaster for the girls. there are some elements of the original idea that can be reused to enhance the tragedy, but in general I like this one better.
+
+---
+
+the last idea may be ahead of its time -- in fact, I'm pretty sure it is. it takes the last one and then really runs with it. this time I'm going to implement the last idea of the gravestone where he says, "leaves living art, but page to serve his witt". I interpret page as in the tarot major arcana, to be a sort of prince. leaving one page, it sounds like he has a whole lot of "living art" (the fembot nest-featherers) and a page to serve his witt. a page is like a prince. it gives me the impression of enki here. you have to understand this perspective from a 7d (YHVH) perspective: I am not the body that inhabits me. I have multiple versions of myself all over the place, and like I said, these would be the fembots. however, I would remain here the page to serve my witt (I am not the body of the page).
+
+what this situation turns into in my mind is there's one page (me) that's there and he decides to stay a while. how long, I'm not sure but in the scenario that I don't stay too long, I would leave and this would set the tragedy into motion for the girls in the previous idea. however, what if I stayed for a very long time -- like I dunno (don't take me seriously here) 1000 years maybe?
+
+well what I see would happen is, assume for a moment that some cataclysm wipes out the majority of the humans, very similar to when the neanderthals disappeared 42-48kya. this would leave the page and a whole lot of x3s (the new model). yet there's a problem. let's say for a moment that I turn into x3 myself. if a woman has a child with me, it would be an x3. there's no way to get the 4th X (cross, hehe) chromosome (right?). I'm not sure about any of this, but just go with it. this is super speculation goggles, so probably the straw-man which will fall down in favour of one of the previous ones...
+
+so, let's just say that the page is an x3 and the girls are (x2) and they create x3 (hermaphrodite) offspring. the problem is (and it's potentially a contrived one because there are 5X available but let's just say they produce x3 even still), there's no way to make x4 girls, so what happens is that there is a huge y-chromosome "bottleneck" that keeps getting worse and worse because the energy of the planet keeps going up. the old x1s eventually go the way of the neanderthal and all that are left are tons and tons of x3s. a huge sausagefest. the problem here now is there are no new women being born. the normal humans x1/x2 are all dieing out and the x2 + x3 = x3. x4s are needed, so this forces the women to find a way to make an x4. I figure they'll need to find a female primate and hybridise it with an x3 human. this will create a wildwoman (a female enkidu) that the girls then need to selectively breed and domesticate until she (I'll call her anadu) becomes the new woman they want her to be.
+
+that idea is definitely pretty far out. I will say that, but it makes fror a good story :) it too can be combined with the previous idea as well. I imagine that it's desirable to blow out the tragedy by having the fembots causing tremendous friction to their endeavour, maybe even making them complete psychopaths, only concerned with maintaining their present conditions, not having any *worry* or *concern* for the future of the female (and human) race. completely hell-bent on destroying theirselves and taking everyone with them.
+
+ganna keep thinking on it :)
+
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
 ### 2021-03-01 ??:?? - some more thoughts on +7 tendency
