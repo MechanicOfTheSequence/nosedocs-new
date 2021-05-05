@@ -965,3 +965,77 @@ consider that the weeping virgin (`scorpio -> virgin`) is saturn's feminine side
 anyway, what I find interesting is the part with the woman with the rod on the tragedy side. it correlates perfectly becsause talked about (can't remember when) how even if tesla gets power hungry and tries builds a system designed to further its continued power, this is not sustainable and I will certainly overtake him on speed and become "ruler" of the world. therefore, I would setup a bunch of automatons -- a very dysfunctional set, I may add, of automatons that are designed to fail. they would be considered like a launching pad or a placenta. I find it very strange that the wife of mr. compass is named placentia and it sounds like a bunch of dysfunctional women... perfect :)
 
 I think I understand the "living art" part :) as in that plays (like that one), but in living (autonomous) form...
+
+### earl of oxford and the eagle
+
+I was wondering about the eagle symbolism on the grave of shakespeare. waugh points out the columbine flowers in the most important headpiece of folio, here: @[youtube](https://youtu.be/GpHT3LzvcjM?t=1090). so I look up on wikipedia the columbine flower and its genus name is derived from latin for eagle, but then later the word columbine is later the dove.
+
+```
+The genus name Aquilegia is derived from the Latin word for eagle (aquila), because of the shape of the flower petals, which are said to resemble an eagle's claw. The common name "columbine" comes from the Latin for "dove", due to the resemblance of the inverted flower to five doves clustered together.
+```
+
+jesus and tesla both like doves, a lot...
+
+the calygreyhounds animal holding up the seal is a dog with antlers. very strange mythical beast.
+
+### jupiter's tragedy
+
+well, I finally started to read the sonnets and it became very clear to me what is happening there. it seems to be written from the perspective of someone who is quite arrogant and has a really amazing muse, but she leaves him or something bad happens.
+
+there are multiple references to the what I would consider to be times of the future. lots of references to very hot days with no end, lots of clouds and lots of rain (assuming that nosebook tries cool the earth down by making it rain, this could explain it) while at the same time having hot weather.
+
+[TODO: add some references in about that stuff... ]
+
+I can't decide, but the writer is clearly identifying some characters in these sonnets:
+
+- Time = Saturne = "man of hew": these feel like references to me
+- Hew = one of my automatons.
+- Nature = a woman (referred to as she) -- someone who can animate a Hew
+- Aprill = a man, 4???
+- Lillie = ???
+- Rose = ???
+- Winter
+- Muse = the famous love interest of jupiter
+- Satire
+- Philomell
+- Oliues
+
+for example, the Hew can be either male or female. in the example below, this sonnet (20) appears to me like this: the writer is talking about a Hew which is the master-mistress of his passion. she's basically the perfect woman, and a force called Nature has somehow animated.
+
+the Hew seems to have very vibrant eyes and the ability to move objects with her mind. apparently these Hews made the writer feel defeated and the sense that he no longer has a purpose. perhaps he identified himself only physically and relied on his sexual prowess to give himself purpose.
+
+```
+Master Mistress of my passion,
+you have a woman’s face witch nature’s own hand painted
+A woman’s gentle heart, but not acquainted
+With shifting change, as is false women’s fashion;
+
+An eye more bright than theirs, less false in rolling,
+Gilding the object whereupon it gazeth;
+A man of hew, all Hews under his control,
+[the Hews] steals men’s eyes and women’s souls amazeth.
+
+[the Hews] were created first for the woman;
+Till nature, requested that you make [these Hews],
+
+And by addition [of these Hews] you defeated me,
+making it so my purpose now is nothing.
+
+But since she went for [the Hew] to satisfy her pleasure,
+my pleasure is [the man of hew's] love and the use of [the man of hew's] love is [men and women's] treasure.
+```
+
+regarding the subject of nature, I noticed that the word nature was capitalised, however this was a wikipedia addition. it's not capitalised in the original. I figured it has to be a female because it refers to nature as "her" -- so maybe it's just the idea of "mother nature", not an actual character (the capitalised words seem to me to be characters). either way, I did arrive to it being a nature, something independent of a girl, but I did first hear about it with this idea that a +1 can animate a form:
+
+```
+The SEVENTH RAY can create illusions for everyone to
+   see; the FIRST RAY can give life to the illusion and make it an
+   illusion no more - but alive. The SEVENTH RAY is jovial, gallant and
+   entertaining, but the FIRST RAY is seriously deadly or deadly serious.
+```
+
+I really liked that idea. although I consider myself to be a -1/-5 (and now -3 too), I have considered the idea a lot that I can produce objects in 3d space. well, if I can create a body in 3d space (not just an illusion), all it needs is to become alive. what they're talking about when they say, "illusion" is a mental projection into 3d space, like tesla talks about seeing his motors in 3d space. well, they are just illusions until they're made to become "alive". that's not what I'm talking about. I've come to the conclusion that I can manifest a reflection of a concept (what I feel) by focusing that into 3d space. as I get more and more closer to this, I'll be able to make all sorts of things with my mind by feeling their concept. it's a far superior, IMO to what they're talking about becauase the "illusion" is produced in the imagination, so you're pretty much limited by your imagination on the thing's capacity.
+
+what I'm holding out for is complete capablity to manifest *anything* I want in 3d space. I'll be able to manifest entire pyramids directly with my mind, and I won't know how they'll look until they appear. everyone watching will be just as surprised as I am to see how they look. I won't even know all of the dimensions to them. that's what you do later is you reverse engineer the creation in the imagination discovering all of the amazing details.
+
+so, I'll be able to manifest all sorts of stuff. I like the idea of manifesting automatons, and while I do believe that I will be able to cultivate my +1 capacity, I may need to learn from someone. like esther with abraham, it's hard to have the desire and the manifestation at the same time, so I figured I would need to cultivate this capacity. a long time ago I was out star-watching and thinking about this and I thought that what I wanted to do was to manifest a whole bunch of really fun things for a little girl with lots of desire and her own desire to play with them will animate the automatons. I could then capture that capability and begin to do it myself, with the goal of making unlimited automatons (reflections of myself) which I feel into being. the weird thing is this sonnet directly refers to that, but it calls her Nature. I originally thought of the idea with henrietta as I found her to be having enough desire to do that.
