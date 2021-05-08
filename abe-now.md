@@ -2371,3 +2371,33 @@ I mean obviously neither of those are true. I like to explain that reality is a 
 however, it seems so plainly obvious to me that the dream terrors are happening because of good conditions. the good-feeling conditions are intensifying how bad the perceptions feel in the dream state. if everyday life was ho-hum, then a dream about being left behind wouldn't feel so bad. if life were miserable, it would feel pretty normal. it's the same thing, but it's the genuinely feeling so good during the day which is intensifying the ho-hum to feel like terror. they're probably not as bad as imagined -- just feel really bad in contrast. I owouldn't worry too much about it.
 
 simple changes in perception will turn those into really good feeling dreams (or maybe reality). intensity levels of perceived terror are the same exact signal for extremely good-feeling ones too -- it jsut depends on which part of the wave you're looking at. I talk about this a bit more here: @[noseblog](2021-04-30 14:56). I'll come back to this. I feel there is more here...
+
+### 2021-05-07 23:10 - (2021-03-06 p1)
+
+#### (48:48) - the perfect partner
+
+I want to say something about this, but I'm not totally sure yet what. it doesn't feel good to me to "compromise" or to "settle for less" than you want just becasuse you think the ideal isn't possible. if I say, you have to make the ideal feel possible, it's still the ideal, and so therefore it still feels out of range. however, if I say to make the idael feel normal or average, then it becomes feasible.
+
+there is a huge aversion to this when it coms to a lot of things because people you're convincing yourself of something that doesn't feel like reality. don't listen to those guys.
+
+I'm trying to think of advice to make it seem like the "impossible" is normal, but I don't really have much to say. it just needs to feel like it's normal. I'm going to keep thinking on this one because I want to say something more here. in fact this reminds me a lot of the previous @[abe-now](2021-02-27 p2 57:32). I've been reminded of her a lot of times and I'm still thinking on it. it's a very similar "problem" and there's a slight change in perception that I think is very easy to do to get there, I just can't quite figure out how to put it into words. I mean, abraham has said everything on it so I don't know what to add there -- maybe that's what's holding me up, but it feels to me like there's some sort of like "this can't possibly happen" resistance. I don't know. I want to keep thinking on this.
+
+for now, I just want to say, "it can't feel like it's a big deal." this person feels that their thing is too big, and big is again a spatial description. it has nothing to do with distance or size. it has to do with tuning which is an energetic transformation on now. am I getting closer or further. don't consider the size or shape you know. it just feels closer or further. eventually it's there.
+
+yes, I know I used spatial descriptions when I said "further". this is the problem I have with the thing. I keep trying to figure out how to describe the perception in a non-spatial way, because for me it's not spatial at all. for me, it feels energetic. there's quantity (amplitude) and speed (frequency). the amplitude changes all the time as nosebook is constantly messing with that. this is why girls disappear all the time, and the speed sometimes gets redirected, but whatever the new speed is, if I adjust myself to the new speed (say it feels worse), then I feel worse. instead, I just find a way to feel good about the new speed (reality), and by finding a way to feel good about that, the speed starts to match mine again.
+
+---
+
+ah ok, let's talk about trying too hard. when something that used to feel good now no longer feels bad that means my perception has changed (for whatever reason, but usually it's cause I slept and something happened there). whatever the reason is for the change doesn't matter because LOA is real and it's telling me that I am resonant with that new form of perception that doesn't feel good. often times becsuse the change happened while I slept, I can't really go back and concretely find the reason or the cause. so, I have to find a way to feel good with the reality.
+
+it's like an accident of sorts -- let's say it was a car accident. the raelity is, it happened and I somehow I was resonant with that reality. nothing to do now to change the past. the only thing I can do is to feel good about my now. often times the now feels difficult and "not fair", so I don't want to accept it. I don't want to find a way to feel good about it; it's not fair[^1]. when I say, "I don't deserve this reality", I'm saying the same thing as "it's too big" -- just in the opposite direction. when I say, it's too big, then I'm saying, I deserve something smaller. when I'm saying, "I don't deserve the car accident", I'm saying I feel I deserve something that feels better than now does.
+
+[1]: right, I knwo that this person doesn't feel bad. just go with it a moment. I think it's coming around
+
+#### (50:46) - make it mutual
+
+as they were describing the person on the beach and off of those great things, I don't really relate because I don't really visualise like that. I simply can't anymore. I think that I did when I was younger, and I think I remember thinking only about the other person (not seeing myself in the vision) because I liked how they felt -- and I probably didn't like how I felt so much.
+
+the way I would say that now is that everyone notices the things they like and dislike about theirself in the other person. I think we also recognise aspirations for ourself in others too. what I mean is, if I imagine a really good feeling person[^1], what I'm really saying is, I want to find a way to feel like that. they are a picture of the person I want to feel like -- and, if I can feel like that, then I'll have them, too :)
+
+[1]: this is really interesting. I feel like I'm talking to myself here
