@@ -9323,6 +9323,11 @@ in fact, from my perspective this is the goal. each of these impressive regimes 
 
 [4]: considering LOA, this is an interesting thing to note here that if one of the sedimentary ones wanted to give their attention to wanted, they would have built up quite the vortex and would be going at a consierably faster speed than the rest of the species. to them, the sedimentary one would appear like jesus or mithras or something. it may be a good motivation to start attracting wanted. he'd look to them like patron saint or something. so, even if you consider it from a LOA perspective, it's not really a punishment or consequence at all, but more like an opportunity.
 
+
+
+### 2021-05-10 ??:?? - what the crumbling house of cards feels like
+### 2021-05-09 ??:?? - doubling down on the whore family concept
+### 2021-05-09 ??:?? - incongruence between the feeling and the appearace (and perhaps how it relates to sales)
 ### 2021-05-08 ??:?? - making the impossible feel normal
 ### 2021-03-08 ??:?? - reflection in age-offset relationships
 ### 2021-03-03 ??:?? - wait, I want to do it!
