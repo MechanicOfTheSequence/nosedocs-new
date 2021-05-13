@@ -2401,3 +2401,27 @@ as they were describing the person on the beach and off of those great things, I
 the way I would say that now is that everyone notices the things they like and dislike about theirself in the other person. I think we also recognise aspirations for ourself in others too. what I mean is, if I imagine a really good feeling person[^1], what I'm really saying is, I want to find a way to feel like that. they are a picture of the person I want to feel like -- and, if I can feel like that, then I'll have them, too :)
 
 [1]: this is really interesting. I feel like I'm talking to myself here
+
+### 2021-05-10 20:58 - (2021-03-06 p2)
+
+#### (15:06) - your inner being is rarely only considering one subject
+
+I thought this was an interesting insight because I have struggled to explain what I mean when I say that all of the "misfortune" that happened in tuenti and afterward was actually *wanted*, not unwanted.
+
+the idea that your inner being is considering more than one suject is a good way to explain that -- because, for example, imagine that concept of not being able to create the social network I wanted to create. first of all, it's attraction, so I shouldn't really say I was prevented from making it -- more like I was guided through various elements that appeared at the time as difficult, however with the perspective that I have now, they don't appear difficult at all. I just hadn't understood things as completely as I do now, so they appeared more difficult than they were. I listened to a lot of people telling me, "what (zaryn, eduardo, those guys) did to you isn't right" or whatever, when it was just fine. I listened to people and I shared the common misconceptins that physical conditions are the things that you need to fight for or else someone will roll over you -- therefore, I attracted it.
+
+obviously, knowing what I know now, I wouldn't be attracting that. I'm at the point now where anyone can do anything they want, and it makes no difference to me. they're not responsible for how I feel and don't need to influence what I'm attracting, unless I'm more resonant with them than my inner being.
+
+what I'm saying is, at that time, it felt like a good idea to get all worked up about company shares, compensation, ownership and stuff like that because my inner being knew that was the fastest way for me to be able to figure out what I know now, which is what I *really wanted* -- not the money or shares. therefore, I believe I was in fact guided toward those those "bad ideas" so that I could realise what I now know. it wasn't the singular subject of feeling good in response to the effects of the business model on my monetary experience.
+
+in contrast, if a similar event were to happen now, I don't believe it would feel good to me to get all worked up over business models, servers, and sales. those things are cool and stuff, but they're probably not the fastest way toward the next set of amazing reslisations on the horizon.
+
+I like that my inner being isn't sigularly focused on the short-term subject I have in mind, and instead is c onsidering the long-term benefit when it comes to the feeling response.
+
+#### (29:00) - humanity is on the tipping point
+
+... where everyone is on the verge of just giving up. and you know what's next after that giving up...
+
+disaster :)
+
+### 
