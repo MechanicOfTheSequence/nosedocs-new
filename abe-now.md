@@ -2424,4 +2424,112 @@ I like that my inner being isn't sigularly focused on the short-term subject I h
 
 disaster :)
 
-### 
+### 2021-05-12 23:46 - (2021-03-06 p2)
+
+#### (28:18) - I give up
+
+I've been giving this a lot of thought. this is where I left off in the last one, and interestingly tonight I was having a conversation with jaron and mom about this exact subject. what I was doing is I was drawing the line between jaron and mom and the greater situation of society as a whole.
+
+the other thing that I was also thinking about was something that vlad was talking about his "promethian delimma" in robert's latest video: @[youtube](https://youtu.be/ZdtHvwV0RV4?t=1814), he identifies a few elements:
+
+1. the elites always have superior technology
+2. they have abiltiy to tap into the visual "inspiration" of higher states of consciousness where this information comes from
+3. the public schools are pupoposefully designed in such a way that only a "genius soul" can rise above and become something desipite the very innadequate education system.
+
+essentially, he's explaining that humans are purposefully not taught through normal education the engineering aspects of this superior technology (that's kept a secret). further, they're also kept from being able to have those tapping into that inspiration visions that comes from a higher consciousness.
+
+these efforts are done to maintain certain power structures in place by giving the elites superior technology (and conditions) so that can remain in power. therefore, only the "genius souls" which can find thia, despite their training (education) in the opposite direction.
+
+unfortunately I see the same thing happening with mom and jaron. mom, I know she's just doing things for her reasons is basically doing the same thing as vlad's "promenthian delimma" up there. she's preventing jaron from having any money until he's "ready for it" ... all of this is the same thing as is extensively outlined in the book "gods of eden" where these custodians are given power over the useless, inept, and worthless humans until they have risen up spiritually to a point where they can rightfully claim their power. this is all a load of crap that all of them believe that they're "helping" when they're just perpetuating the thing they don't like.
+
+mom, keeps jaron believing that he's incapable and powerless to accomplish self-sufficiency, until he accomplishes it. then, let's say he does accomplish self-sufficiency, how likely is it that mom will just give up all of her powers. from jaron's perspective, not ever.
+
+I have a very similar situation going on with nosebook. I discovered how to access those visions of higher consciousness and I have proven that I do have the spiritual capacity needed to be able to "wield" such power, but dispite having proven that I am "worthy" of that increased insight and visual capablities, they *still* do not want me to have it. this is a very common thing for kids with oppressive parents. they give the kid "impossible to reach" goals for them, and then even when they do reach them, they say, "well you could've done it better if you listened to me" or something equally as retarded and still refuse to give up their power. they never intended on giving up their power. they just offerered that reward as an incentive to get them to do what they wanted. most of these kids leave home rapidly and find their own way.
+
+sometimes this creates a situation where when out on their own, the kid needs someone to tell them what to do, and continue the fight to define theirself in the way that they see fit, despite the low image the control structure has of them (the person is usually perceived as annoying useless waste of space where, conditions for the controlling structure would be better if the kid didn't exist).
+
+though, even when presented with the ability to go somewhere without the annoying kid, they don't want to leave. I think it's hard to imagine a place wher they don't have anyone to push against, no one to control means that they'll finally start having to face theirselves, which is never desirable. it's easier to point out the problems or how spiritually deficient someone else is -- that is, to identify your own perception of yourself in others than it is to see it in yourself. it's all/only attraction.
+
+---
+
+so, like I explained in my siuation, there is simply no way that odin will ever give up his power willingly even after having accomplished the "requirements", they/he still does not want to give it up. what jaron does not understand, is that just the same way mom can't get through to jaron with words, jaron will never get through to mom with words either. no matter how strong of a case I make to being spiritually capable of having the capacities that I have earned/accomplished, it's *never* going to happen -- and I really mean never.
+
+what is beginning to take place here on this planet is that people are beginning to recognise the futility of trying to convince odin with words or action that they have actually earned it. we will never be perceived as having earned it, ever. not ever. when we earn it, all of their secrets will be revealed, so they can never allow us to ever believe we are spiritually capable of having access to these secrets and advanced technology. they must maintain their control structure.
+
+one can easily fall into depression with this revelation. they promise the world and have spent many years proving to you how much you need to depend on them for your well-being, but it's not theirs to give. it's a giant fraud. it'd be like a guy that promises to give you $1000 for doing a task. you do the task, and he won't give you the money. you find out the guy is up to his ears in debt and never had the money he promised you. there's no way he will ever be able to give you the $1000 he promised you.
+
+the only thing left is to finally give up and say, "ok, I'll find my own way. you keep doing you; I'm going to do me." -- but they don't want that. they lose their power if you find your own way. I gave up. I don't care what nosebook is doing. it has *NOTHING* to do with me. my reality is a reflection of how I feel and what I believe and this has nothing to do with odin or his dumb efforts to convince me that I should be punished for doing things the way I want to do them... the promethian delimma :)
+
+it really is an enormous disaster. nothing will go as expected.
+
+#### (29:15) - as good as you think it feels to be right, it feels *so good* to be in alignment
+
+whoops I totally derailed my own point a bit in the last section. going back to mom and jaron. jaron is right about mom, and mom is also right about jaron. they're both holding on to the same idea that I used to have about nosebook: they need to behave in a way and do the things the proper (legal) way, so that I can feel good. sure, I would be right about that, but I'd rather feel the way I want to feel, than to be right. before I could do that, I had to give up on them doing things the right/proper way -- or even the way I thought they should be done.
+
+#### (31:08) - when you no longer see them as an obstacle to you, as they're coosing a different path
+
+> the joy or satisfaction is, 100% of the time, about you having made a decision and then moving in the direction of that decision
+
+> noc, you convincing everyone else that yours is the right decision -- and that if they coose something else, theirs is the wrong decision.
+
+just wanted to include this
+
+#### (40:40) - in no way will I ask you to be all things for me
+
+yep, let's do that :)
+
+#### (43:19) - make a lot of decisions
+
+when I was writing the previous section's quote about "you having made a decision -- and then moving in the direction of that decision", I wanted to add in where that pause is, "(about how you want to feel)" but I kept the quote how they said it. this sort of thing drives me crazy about them (not really), but they definitely don't spell it out as clearly as I try to. right here in this part, they followed up by saying, "as you let the way you feel be the predominant focal point that you're reaching for"... well, "focal point that you're reaching for" is a long way of sayiyng what they said in the previous section about decisions.
+
+in other places, they've said, "anything you want, a thing, event, circumstace ... is all because you believe that in the having of it, you will feel better [than you do now]". when a decision is made, it comes from a place of desire, and all desire resolves into an emotion -- the feeling of getting closer to it, the feeling of anticipation of it, etc. so when they say make a decision, they keep not quite saying, but saying that, when you make a decision, you are making the decision so that you can feel something. it's a trap for you because they are also telling you that you can't compensate with action or words what you can with vibration (feeling).
+
+so in short, they're asking you to make a decision which probably sounds to people like words or action, but really resolves to a feeling, and the only satisfaction you can feel along the way is getting closer to feeling like the way that you will feel in the accomplishment of your decision.
+
+that really is the long and hard way of doing it. you can just make a decision about how you want to feel, and know that you'll never actually accomplish it. you'll fluctuate feeling better and werse, but the bigger trend is that you're constantly feeling more and more like your source does.
+
+---
+
+it really drives me nuts how they go in circles giving poople the impression that they should make "declarations" and "decisions" which sound like words and action, but if you listen closely they're always talking about feeling. I feel like some of the more action-orientied types may be feeling like they're full of crap saying, "I've made mode and more decisions and I'm no closer to getting what I want" -- when that's never what they said. they say, "make a decision to feel good and let that be your deminant intention".
+
+just wanted to reveal some of their antics.. lol crazy ghosts
+
+#### (50:05) - tune to what you want
+
+> the thing that is wanted the most by you -- by all of you -- is an understanding of how to tune yourself to what you want, rather than demand that what you want is there for you to tune to.
+
+first the person writing the question starts off by saying, "I've met someone that I think is my soul mate" -- so immediately I now have a picture of this guy(?) that she(?) has met in real life that she thinks is her soul-mate. she continues on saying that her soul mate is helping her to clear out things and get to deeper understanding about herself but it's not going the "smooth way" (huh?). it's pretty challengling and how do I know if this person is the right one for me...
+
+my mind sees a woman talking about a guy that she thinks is her soul mate. they start to answer, saying "he's the right one" -- but when they're saying that this surge of mental chaos happens in my head about it because now it feels like they're talking about me. there must be some resonances then, so I keep listening. "this peraon is the right one in every way" wait what? I'm not only surprised by my mind feeling like they're talking about me but now what they're saying. they continue,
+
+> but, specifically this: as you focus on *an aspect* (and there are many), that allow you to be in alignment with your inner being as you gaze on this person ...
+
+man I really got baited into this one because in the setup they were talking about in the previous sectio: @[abe-now](2021-03-06 p2 40:40), where they advised the previous person that their intention would be find their alignment, and then "in no way will I ask you to be all things for me" -- which I really strongly resonated with, but now, they're saying the person *is* the right one, which feels opposite to what they say about no one ever being able to satisfy everything that you want -- and -- that when you focus on their aspects (conditions), he will allow her to be in alignment with her inner being as she gazes on him...
+
+WHAT!!!?!?!??!?!
+
+you can see now why I'm having such a problem with this. they "don't do this often" but they're going to make an exception and tell the writer that she can be conditional and use this guy to allow herself into alignment. dude, wtf man... so they don't do it often but this time they're goign to make an exception to her to be conditional as a solution to her needing "things to be hard to be good".
+
+yo, I dunno what to do here. I had mental chaos and then a raelly extremely out of character message. I'm calling bullshit. I'll listen further, but I'm not buying it. nice try nosebook :P
+
+#### (49:24) - first-hand experience of what we've been talking about
+
+they continue...
+
+> with your own eyes, you're going to have a first-hand experience of what we've been talking about -- hour after hour together
+
+ok, just for the momoent I'm going to give it the benefit of the doubt, and assume that I misunderstood them. I'm also going to double down on the mental chaos part where it felt like they were talking about me, too.
+
+what this is implying is that the girl will able to focus on an aspect of me and that'll allow her to be in alignment with her source. this implies that I'm going to be basically like ... well, sorta like source in a human body -- no problem there I guess cause that's what I want. what I don't want is to be the reason for someone else's alignment. I also don't want to be their source of higher states of consciousness.
+
+well, I mean, I guess this is kind of saying the same thing as I was postulating in @[noseblog](2021-05-05 21:24) about the Hews. I'm gonna double down on that further because they say, "hour after hour together" -- which would only be possible if there are more than one of me. I'll assume from now on that this is what they're talking about.
+
+I want to come back to my disbelief and surprise in the previous section: assuming that is the case, like I said I find it a bit reprehensible that they would start by saying, "in no way will I ask you to be all things for me" and then turn right around and say that I can be the conditions for someone else's alignment. the only way I can reason this out is to think of myself as a source of desire. if I'm a source of desire, then that means that I show something that others want, and then they find their way to get it.
+
+I did plan this, as it's the reason why I want to setup the oprressive female regime so that the girls can soon find their own way. it means that I must leave so that they can move in the direction of their desire. if I stay forever, then I remain the condition, which *isn't* what I want.
+
+I hadn't really thought about it in this way. I just like the idea of finding my own alignment. I don't want to be the reason for others though... I have more to say, but I'll let it develop.
+
+#### (50:10) - tune to your desires and watch them evolve
+
+I need a break. I'll come back to this soon
