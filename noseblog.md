@@ -9324,6 +9324,38 @@ in fact, from my perspective this is the goal. each of these impressive regimes 
 [4]: considering LOA, this is an interesting thing to note here that if one of the sedimentary ones wanted to give their attention to wanted, they would have built up quite the vortex and would be going at a consierably faster speed than the rest of the species. to them, the sedimentary one would appear like jesus or mithras or something. it may be a good motivation to start attracting wanted. he'd look to them like patron saint or something. so, even if you consider it from a LOA perspective, it's not really a punishment or consequence at all, but more like an opportunity.
 
 
+### 2021-05-14 02:52 - being the reason for someone else's alignment
+
+yesterday I had a weird response to @[abe-now](2021-03-06 p2 50:05) in that the girl writing (I had this weird sense that it was lyia) because abraham was saying that she could fixate on a this guy's aspects and then it'll allow her to find her alignment. I had a serious reaction to that because it just seemed so far out of character from what they say. they carry on endlessly about not needing the condition to find your alignment...
+
+so I was thinking about the sequence of events and just right before that part, I was, myself going off on a tirade about how they purposefully obfuscate their words and set traps for people. the example I gave was when they said to make a decision, but you have to know that what they mean is when you make any decision, it results in you deciding how you want to feel (though often times using the condition as a reason for that).
+
+so that was the subject I was on, then they go and do the exact thing to me that I was going on a tirade about. they are telling this girl that if she wants to to find her alignment she can use a condition to get there.
+
+this sounds more like me on the subject of drugs. I find that drugs are a very good thing for me to discover new things, but I don't want to rely on them because it makes me depend on the condition. I still like drugs and still think they're just find for exploration, discovery, and finding out new ways that I am capable of feeling. I found out that all of the ways I've ever felt on drugs are also possible without -- however, if I didn't know that it were possible to feel that good (on MDMA or coke), or notice the subtle differences between coke pleasure feeling (and waking up the next morning after a binger), and MDMA feeling good about myself (and how waking up the next morning feels after a binger), I woudln't have felt those extremes and wouldn't have been able to accomplish it without it[^1].
+
+nowadays, I'm all about not needing the condition to accomplish the feeling and letting my reality reflect how I feel, and that's what I want for the girls too. I think perhaps the thing that shocked me the most was actually the realisation that the girls could essentially use me like a super-duper drug to reach alignment. I knew my alignnment would benefit them greatly, but I didn't really think (or want to presume) that it would be sort of like fixate on me or have sex with me and like a drug you can get a whole new state of consciousness. don't get me wrong at all here cause I'm not at all against it. I used stars and drugs as my condition to increase speed. I do still recommend it to others as well. I'm just saying that using the drug to artificially go faster but then not take advantage of the improved conditions to change any perceptions, you will go right back to where you were (usually worse, actually) if no perception was changed.
+
+I noticed this ability to chasnge one's perception is different for everyone and I've noticed some things about it. for example, a lot of people smoke weed or do coke and the next day they're exactly the same person they were (or sometimes worse) but I often times got vision upgrades or complete changes in how I perceive reality. I found that I was more likely to get those beneficial effects if I was alone in the drug experience. this, I think, is important and relevant to this conversation. I know that there are a lot of group ceremonies and things but I think that is old-age (picsis) percepition of needing the group. now, it's all about constructing your own individual identity defined by you, rather than the group or tribe.
+
+in this context, the thing that appears to be happening is I will become very much like a drug experience for a lot of people. abraham's words made it sound like having sex with me will be like taking a drug and allow for altered states of consciousness. very cool :) I mean, drugs are taboo right so it's good that people can explore altered states of consciousness without drugs.
+
+though, like I said about the drugs, I've noticed that a lot of people respond very differently to drugs. I don't believe many people will actually use the experience to modify much of their perception. most will likely just enjoy the improved perception for the duration of the condition, and when they want more, they'll want more of the condition -- which is fine.
+
+---
+
+the major problem I had is, I didn't think that I would be like a drug. I didn't believe that people would get a whole new form of perception. I thought that the girls would graetly benefit from me being around, but not get the perception theirselves. I wanted them to get it for theirselves though which is why I was coming up with the different ideas of intruducing contrast to increase the energy so they could find it theirselves. however, if I'm essentially a drug, then that means I have to go away. you can't learn to get the abiltiy to feel the way you want if you have continual access to the drug. it's too easy. you just buy the drug again. it takes some insane willpower or manipulation of one's perception to be able to do that (see my conversations with bucky).
+
+so, well I guess that idea's out then. maybe. I'm not sure.
+
+I haven't lost hope on the idea of keeping going. maybe there will be a second split actually. I really wanted to make a galaxy and to use nosebook as the source of contrast. however, I think it's obvious that if I'm going to be the condition for someone else's alignment, then things are out of balance (dependence on me) and I can't stay forever.
+
+what I'm saying is, I don't mind being someone's drug. the worst-case scenario is the drug goes away and they now *must* find a way back to that form of perception. the best-case is they figure out how to use the drug as a discovery and expansion mechanism to their own form of perception. either way, I have to go away so that people will develop their own form of perception. so it really is the most amount of wanted in the long-term.
+
+I guess enjoy it while I'm around :)
+
+[1]: some people may argue with me that it's possible to be able to find out how to feel that way without the drug, and I agree it is, but I also disagree because the substance will always feel artificial and when your own brain makes the substance, it feels more real. so no, but yes. I personally like the conhtrast and the exploration of the artificial feeling because it's always going to be something different than what your brain can produce.
+
 
 ### 2021-05-10 ??:?? - what the crumbling house of cards feels like
 ### 2021-05-09 ??:?? - doubling down on the whore family concept
