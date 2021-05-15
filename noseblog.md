@@ -9390,6 +9390,66 @@ it's not the idea I originally invisioned but I'm not really against it either.
 
 [3]: this is what I believe happened with the atlantians. they had the original god's blood, but when they started sleeping with other women who transferred the energy of other men into their expeience, they didn't have the conscious capability to modify their perception to match the way they want to feel.
 
+### 2021-05-15 00:38 - clarify body pains
+
+in the previous entry, I explained how I would wake up with random body pains and I had a lot of reactions to that so I figured I would just go over what I think is happening there cause it feels like some people can relate.
+
+I can't speak for other people because I don't know what the arrangement is with nosebook or anything like that. these are the things that I'm going to assume:
+
+1. nosebook does not allow people to have 4d or 5d vision. if it happens I believe they will reset all of us back to 3d vision. this is the visual capability allowing tesla to have 95% inspiration that vlad was talking about. this is not allowed.
+2. any time you get too coherent of a vibration, that means that LOA will start to really act fast for you, and the envionment around you will be much more energetic and clean[^1]. they don't want that so they have to prevent it. to prevent the environment from getting too energetic, they have to cool the air, add clouds and reset you back an inhocerent state while you sleep. so even if you figure out how to release resistance and get enhanced perception, they'll ensure you're seeing 3d again when you wake up.
+3. their system must know the energetic state of your body and also must know how much incoherent thoughts to put into you. too little and you'll go back to feeling good too easily, and too much, you may become very ill with COVID-like symptoms. the system's job is to ensure that you never get too energetic.
+4. with people's brains on massive amounts of DMT, the only way to keep people from having incredibly good vision (4d or 5d) is to keep a large amount of resistance in their system. to us this manifests as a dull or "bleh" feeling.
+5. if you suddenly feel really good, your vision may improve but this has to be hidden from the user. their vision has to be limited to what they're paying for. like me, you may see a lot better than your eyes are showing you (cause you have a lot of DMT in your system) but this good vision is normalised down to your vision tier by disharhmonius added noise.
+6. your emotion is the throttle for how much disharmonius added noise is added to your system. the better you feel the more noise is added until you go back to "normal" or acceptable levels of good feeling.
+
+so, what I think is happening is if you feel better than than the normalisation groups thinks you should be feeling, or the way you see (strength of desire * amount of resistance) is better than you should be seeing, you have disharmonious noise added to your system especially while you sleep. this is 100% true for me at least, but I get the feeling it's also happening to others who's conditions are allowing them to feel better than their vision tier permits them to feel. I'm on one of the lowest vision tiers, for sure, but I know that I could see things a lot better if nosebook wasn't doing what they're doing.
+
+however, it just doesn't matter to me anymore. like I said, at first I wanted to have better vision and I worked hard to find the conditons to make that happen. then, I figured out that in order to see better, I had to feel better. finally I gave up on seeing good, and instead now I know that reality is a reflection of how I feel, and the only way to go is to find a way to feel good no matter the circumstances. sure it's unfair whatever, blah blah blah but nosebook is having to expend more and more effort to keep away the impossible. eventually I'll get so good at feeling good no matter the circumstances, it's essentially *natural* to me -- a kind of instinct.
+
+---
+
+let's tslk about that instinct now. every morning when I wake up, I have the weird difficulties in my body. these are a reflection of how I feel (my present vibration) in relation to my perception. remember how I said that on the same sine wave going from -100V to +100V, there are 4 major sections:
+
+- 0 -> +100 = increase creation, expansion, etc.
+- +100 -> 0 = destruction, failure, attenuation, etc.
+- 0 -> -100 = hitting rock bottom, becoming less, reaching lowest point, etc.
+- -100 -> 0 = peace, cease and desist, return to normalcy/equibrium, etc.
+
+you get to choose which part of the wave you perceive. what I'm postulating is that this is happening more and more because more people are getting hoo high of voltages. if you're on the 50V vision tier and you're running 100V because you found a way to feel good, they have to put an oppositely phased 50V wave into your system. that wave could very well resonate with something that is exactly the opposite.
+
+as an illustration, imagine what being in love feels like. we'll consider this a very strong signal. let's say it's 500V. when perceiving the first quadrant there, it feels really really good. it feels like an endlessly rising climb to 500V of awesomeness. however, later on maybe something happens and you focus on something that feels worse like worry or overwhement, and now it feels like a downer a bit. you may be used to feeling overwhelmment though so it feels normal to you, and now you're perceiving something in the second quadrant.
+
+---
+
+what I'm basically saying is, if you take the emotional scale and then add in a second data point (where you previously were on the emotional scale), now you can map this to the sine wave and see what part you're perceiving.
+
+the best, would probably be DC pulses, but imagine you have a sort of saw-wave where you go from boredom (0) up to love/joy (500V) over and over and over.
+- I'm bored
+- wow, that's kinda interesting.
+- OMG so cool
+- I CAN'T GET ENOUGH OF THIS!!
+- I LOVE THIS!!
+- I'm bored (repeat)
+
+what I do is I look at improvements because whatever the case may be, for whatever reason I don't feel good. it doesn't matter why. I just find a way to perceive the same thing which causes me to feel better. for examle let's say my foot hurts. it's hard to see improvements usually when I'm so busy looking at the reality of my foot hurting, but for example knowing that it's temporary can feel better. there's no way, unless I die tomorrow that it'll stay like this forever. I always try to ease it, but I know that doesn't solve it.
+
+---
+
+it's my belief that the body reflects the beliefs/emotions/perception (mental) body of the person, so I don't really need to figure out what exactly it is to fix it. it's already active, so that means my environment already contains that (I attract my reality), so the thing that makes my body hurt is a perception that exists in my everyday experience already. I only need to be more concious of what doesn't feel good througout the day.
+
+for example, for me I often times feel frustration for silly things. like maybe jaron is being slow or something and that frustrates me. well, if I'm used to feeling frustration or worry, feeling more frustration is only a slight change in feeling. they feel similar to me so I wouldn't notice it. also I can hide it if I'm joking around about these things that feel bad to me. though eventually the frustration grows to a point where I don't like feeling that way or even joking about it either and I have to find a way to change my perception on that.
+
+---
+
+ok, so what are perceptions? perceptions are beliefs -- to me they appear like logic as they are backed up by a lot of evidence. the universe aims to prove me right though, so the things I perceive are the things that I'll notice and the things that I'll attract more of. it's no wonder there is so much evidence of it. however is that actually what I want? if I perveive mr. motor to be annoying (he's not), then I'm saying I want more annoying motor. if I perceive mr. motor as a valid and intelligent individual I attract that. it's now his job to prove me otherwise. if I perceive him as a person doing what he's doing because he's insecure, then that's also what I attract from him. if I see him as certain and congenial, that's what I attract. again it's on him to prove me otherwise.
+
+the most basic perception is the physical feeling. so I could use my logic and look at all the evidence of how it hurts and all the good reasons for why it's getting worse, but do I want that? usually I can shake the hurt pretty easily, but if for some reason it persists, I have to wonder why do I want it to continue to feel bad. do I want it to get me attention? sympathy? empathy? etc. so then, if I don't *want* it to keep feeling that way (despite the evidence), then why not begin to feel it improving. obviously I desire it to feel better (no reason why not anymore), so I can let it start to feel better, and then reality begins to conform to that. I've moved from Q2/Q3 over to Q4. if I'm really good  that pain can turn into pleasure, and I've moved into Q1.
+
+the most important thing to note is there will always be further evidence of the problem, but is that what I want? ever notice you don't start to feel better until you start feeling better?
+
+[1]: I think this is why LA's air was so clean and crisp last time we went there -- and that was even with the fires going. when looking on the GOES satellite imagery, you can see an outward emination from the LA area that's pushing away the clouds (and probably also smog). I was suprised to see the stars better in LA than in colorado
+
 ### 2021-05-10 ??:?? - what the crumbling house of cards feels like
 ### 2021-05-09 ??:?? - doubling down on the whore family concept
 ### 2021-05-09 ??:?? - incongruence between the feeling and the appearace (and perhaps how it relates to sales)
