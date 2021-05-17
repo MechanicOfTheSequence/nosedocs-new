@@ -9450,10 +9450,17 @@ the most important thing to note is that there will always be further evidence o
 
 [1]: I think this is why LA's air was so clean and crisp last time we went there -- and that was even with the fires going. when looking on the GOES satellite imagery, you can see an outward emination from the LA area that's pushing away the clouds (and probably also smog). I was suprised to see the stars better in LA than in colorado
 
-[2]: I define sympathy as using the way I feel to illicit action in someone else (help, donation, etc.) usually it's in the feeling bad area of emotions, but it can also be I feel good so you should do what I want you to do (women typically use this more than men)
+[2]: I define sympathy as using the way I feel to illicit action in someone else (help, donation, etc.) usually it's in the feeling bad area of emotions, but it can also be I feel good so you should do what I want you to do. I would then further categorise this into using words/action to generate the emotion vs directly projecting it[^4]
 
 [3]: I define empathy as feeling similar to how someone else feels. I'm very empathetic, and I like feeling good about things others feel good about. however, I don't like feeling bad about things others feel bad about. I found that I can only feel something I'm resonant with so if I feel badness someone else feels, it just means I'm resonant with it (and can change my perception on that feeling)
 
+[4]: I noticed that here it feels to me like women directly project the emotion more commonly and men tend to use words and actions more to accomplish this sympathy. however, I noticed later that if I were in spain I would have said it exactly the opposite: I would say that men tend to directly project or transmit their emotions while the women are often much more crafty with their words and actions. I also noticed that gay men tend to be more on the projection side of things too. I'm trying to think of how it was in spain there and it seemed to me like the gay men there seemed to use both actually. it may be something of the culture because now that I think about it, I'd say the machos also use a lot of words and actions to project their emotion too. I can't really figure out the pattern to this. I think in general though, the spanish/latin culture is more sympathy heavy and the western culture may be more empathy heavy. I really need to explore this topic further it seems.
+
+
+
+### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
+### 2021-05-16 ??:?? - what if we adopted the chaebol model
+- @[youtube](https://www.youtube.com/watch?v=jRzysFhyZ8Y)
 ### 2021-05-10 ??:?? - what the crumbling house of cards feels like
 ### 2021-05-09 ??:?? - doubling down on the whore family concept
 ### 2021-05-09 ??:?? - incongruence between the feeling and the appearace (and perhaps how it relates to sales)
