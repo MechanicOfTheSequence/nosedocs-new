@@ -9531,7 +9531,7 @@ in the next entry I will propose a new setup taking this veil thing into account
 
 ### 2021-05-18 12:24 - thinking on baptism
 
-@[youtube](https://www.youtube.com/watch?v=LjfoV6J19Kw)
+@[youtube](https://youtu.be/LjfoV6J19Kw?t=1760)
 
 I am watching this video right now and in it the guy talking is saying a bunch of things that I totally am right there with, yet there is one thing that I spefically want to say. before, I also wanted to say that he mentions that this sexual energy can cause one's destruction and says that it has to do with degenerate sex. I don't think degenerate sex exists any more than degenerate drug usage exists. it's just an amplifier and you get more more of that, which causes you to want more, and if you're unable to produce this fire yourself, you get "addicted" to the condition which can provide that fire, meaning that something that once was good now is working to maintain its own existence.
 
@@ -9560,6 +9560,37 @@ what this would mean is that I could, for example smoke a joint and one of two t
 however, let's say my pitch wasn't in harmony with my source.. let's say it was significantly lower, so I would smoke to get the boost up, and then consciously slow down the acceleration feeling not the speed but the resonance with the target frequency, allowing me to kind of like slow down into the right frequency (rather than accelerating and overshooting).
 
 I want to think on this more. very interesting. I'm also considering another instrument where there are two frequencies: one is the frequency of the condition (sex partner, drug, etc) and the other is you. however, this feels like less control. I kinda like better what I described above.
+
+### 2021-05-18 14:21 - moar baptism
+
+I wish to elaborate on this using my terminology. this speaker is talking about the transmutation of sexual energy. sexual energy has its origins in the regenative chakra (6) which is where I also put the imagination as well. the pineal gland (2) is also the christ gland and I've spoken on that previously. these two (2<->6) are the two end of the 5 chakras that exist inside of the body -- you might say the head and the tail of the snake (spinal column). this practise of awakening or transmuting the sexual energy will greatly improve your sight and imagination. the pineal (christ) and the imagination are directly connected, and the most illustrative of this connection between the imagination and sexual energy is found in matthew 5:28 (my birthday). I just really love this verse because it's in the 40th book of the bible, 5, 28 -- which are like some of my favourite numbers of all time (besides 11). it states that if you fornicate with a woman in your imagination, you do the same thing in real life.
+
+this tells me that it's not what you do in real life, it's what you're thinking about. more on this in a second. I next want to mention that the origin of the fire comes from the heart (which is likely why breathing exercises are so effective) because the heart is right next to the lungs taking the energy (prana) locked in the air and charging your body with it.
+
+between the heart and the regenative area is the stomach or solar plexus. this is where your emotions reside, and is very important to transmuting this "fire" decending down from the heart. the same is true for fire rising up to the pineal passing through your words and actions formed in the throat/mouth (more on this in a sec).
+
+@[youtube](https://youtu.be/LjfoV6J19Kw?t=2654)
+
+> out of his belly shall flow living waters
+
+what he states there is that once fire has risen (from the heart) up to the pineal gland (son), out of your belly (solar plexus) will flow *living* waters -- thst is life giving waters. in sort, you'll feel real good and you'll have a magnetism to you.
+
+I contend that you can accompish this living waters flowing out of your stomach with the fire rising to the pineal, but you can also accomplish the living waters flowing without the transmutation of this sexual energy. instead of transmuting your sexual/creative energy, my goal is to show that with transformation of one's own perception (located in the brain on both sides of the pineal), you can begin to become harmonic with this kind of energy.
+
+the technique that I am talking about is exactly the opposite of what he talks about. I'm not saying his is wrong. I would bet you 100% that if you do what he says, that energy *will* awaken. I don't doubt that. my present situation does not afford me this luxury though, as I have very little willpower (throat) power. I have less control over my words, thougshts and actions than you may think.
+
+what I mean is I have so much chaos going on inside of my head, I've got quite a lot of stuff (bad stuff) going through my head all the time. in fact, so many of your reactions don't feel good at all, and I can't help but to think them. after thinking something that dosen't feel good, I could get down on myself and feel bad or I could just move on. I don't need to keep giving my attention to that form of thought (perception) which feels bad, so I find a different way to look at it. it's usually "oh well" "can't control that" or "just more energy" -- those sorts of things and allow those things to no longer be important feeling thooughts that I want to think about. they're out there; they exist, and there's not much I can do about them, so I just let them be. they don't have much to do with anything. they don't need to affect the way I feel. my perception then changes to one that doesn't find that as important, and I just let it go. from then on I keep practising that form of perception and depending on how well embedded that perception was, eventually I stop feeling the reactions to those things.
+
+@[youtube](https://youtu.be/LjfoV6J19Kw?t=3486)
+
+> if you use these practises/wisdom, you *will* awaken, but in accordance with your deeds -- your works -- *not* your intentions
+
+I agree they *will* work. the reason why they work in accordance with your deeds is because they greatly enhance the power of your prana (emotional) attraction, and you will find things all reality (which is a reflection of emotion) going at a much more rapid rate. he states that there are a lot of rules and actions that must be observed in order to not crash and burn. intentions alone won't save you once you turn up the gas. I don't have much control over my gas pedal. in fact none really. to keep myself from crashing, I've found that if I make my intention to *feel* a certain way -- that is, to make sure living waters are always flowing out of my stomach, then it doesn't matter what is happening, I can find a way to feel the way I want (by adjusting my perception) and therefore reality must conform to the way I feel. I have complete control no matter how fast I'm going.
+
+this really is the difference between doing the transformation in the throat and in the stomach. throat is sexual tranmutation, and stomach is perceptual transformation. pineal (perception) controls the stomach and sexual/regenative controls the throat.
+
+I'm beginning to think that perhaps once I start to get a good flow going, that perhaps control of throat (3) and stomach (5) is best :)
+
 
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
