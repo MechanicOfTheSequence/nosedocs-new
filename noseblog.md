@@ -9639,6 +9639,23 @@ in other words: things are going to continue to speed up more and more. unsuitab
 
 [2]: this is how new things are made: lots of mutations (wrong things) are made. the wrong (but desirable) will stay and the remaining undesirable or unsuitable stuff will be culled naturally. after that, I think the "waters" are supposed ho make the wrong stuff "right" again -- probably by fighting against and destroying all of the wrong stuff. (don't be fooled: there is no right or wrong)
 
+
+### 2021-05-19 08:31 - quality vs quantity
+
+man there were a lot of reactions to the quality vs quantity thing. I was poking at the "chosen ones". the chosen ones are obviously low quantity, but high quality individuals which stand out as superior to the unclean masses. in the beginning of the previous entry that the water baptism is not for everyone. only a few high-quality people will choose to go through the baptism of water. I would even describe myself as one of those people.
+
+however, what I've found is that none of that matters. the opposite of high quality low quantity, is not low quality high quantity (eg. unclean masses). to illustrate, I provided the definition that the water baptism needs a lot of high-quality thought and action to be successful. if not, you bring ruin to yourself he says. I agree, cept I've figured out how the mechanism works, and so therefore what I'm doing is taking the mirror of this. instead of working from bottom up, I'm going from top down. going from bottom up is to awaken the sexual crative energy in a controlled way, then with proper thought and action, one can then begin to direct the energy. however if one misuses the energy, then bad things happen. all of this is about bad and good, proper and unproper. it has everything to do with thougt and action -- two things I don't have much control over in my present circumstances. therefore I have had to adapt. the only thing I can modify is my perception and how I feel about something.
+
+to put it simply: my circumstances that I have a high quantity of thoughts all the time. there isn't much I can do about it. I don't get to select the high quantity thoughts. I am forever is a soup of chaos. therefore, instead of trying to control or select the highest quality stuff in the chaos (I have no control over those conditions), so I just find a way to perceive wanted in all things, attracting to me more wanted (high-quality) stuff. quantity is inevitable as that's out of my control. what I can control is how I perceive those things attracting more of those things.
+
+as an example, imagine that I were to concern myself with the qualities and quantities of the different cryptocurrencies. none of that makes any difference to me how many of them there are or how good they are. instead, I just notice them and I keep paying close attention to a lot of the things that I like about diffrent ones and how I think they could be improved upon. that's it.
+
+what will happen is, the bigger and bigger this picture gets in my mind of cryptocurrencies, the more I will know and see the next improvement in value and trade quantified as a number. when it comes time to create the next thing, it'll be easy for me to create that thing because I have a high quantity of experience in the thing.
+
+quality and quantity mean nothing when it's only attraction. I prefer top-down vs bottom-up -- though they both arrive to the same conclusion. instead what they can be seen more as is like this... divide a circle into 12 parts and imagine the first quadrant. the first 1/3 is explosive growth (high quantity) but is quite far still from its peak (low quality). it'h the prototyping phase. the 2nd 1/3 is a stabilisation phase containing a little of each. the 3rd 1/3 is the perfection phase. it has very little growth (low quantity) and slowly reaches its peak (highest quality).
+
+we're looking at different parts of the waveform again :)
+
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
 - @[youtube](https://www.youtube.com/watch?v=jRzysFhyZ8Y)
