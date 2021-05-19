@@ -9661,17 +9661,13 @@ we're looking at different parts of the waveform again :)
 
 ok, one more try here on trying to explain the quality vs quantity from another angle.
 
-imagine I look at a whole bunch of models of something and I feel like there is always a tradeff that needs to be made. take cryptocurrencies for example. let's say that I want high frequency tranfers yet at the same time I feel like there is a tradeoff with a synchronised global ledger. one may go about deciding which tradeff is better or worse and that's fine.
+imagine I look at a whole bunch of models of something and I feel like there is always a tradoff that needs to be made. let's say there is the option between steel and plastic. they have their tradeoffs of weight and strength. let's say that now carbon-fibre comes out and it's both strong and light, but now the new tradeoff is it's expensive.
 
-for me, I like global ledgers in the essence that it's possible to track all transactions passing through an account before I send to it. I don't need the global ledger to ensure all transfers are in sequential order though, so by just focusing on the wanted aspects of the thing, now that opens up the poshibility for a new system which has both the ability to lookup an account's transaction history and also capable of a much higher transfer frequency -- though the new system may have some other new (previously not experienced unwanted aspect[^1]).
-
-when a new thing comes out, it always comes with a new set of tradeoffs. I like finding the new thing, not trying to categorise and optimise the tradeoffs. I only want to see the desirable aspects.
+when a new thing comes out, it always comes with a new set of tradeoffs. I like finding the new thing, not trying to categorise and optimise the tradeoffs. I only want to see the desirable aspects. I believe it would be possible to find a material that is cost-effective, weighs little and is also strong. only people looking for that will find it (unless you wanted it and discover it by accident). the people fixated on the tradeoffs will continue to see materials with those tradeoffs.
 
 the point is, if I look at wanted aspects of many things I'm attracting wanted aspects from many different things at once. they may appear to be in opposition to eachother, and this attracts a new thing containing both wanted aspects simultaneously.
 
 when I say that something is good or bad, I am saying the whole thing is good or bad, when in reality it's say 70% good and 30% bad (which sounds good) -- and another thing could be 60% bad and 40% good (which sounds quite bad). however, say 20% of the good aspects don't overlap, so by seeing the wanted aspects in both I could find a way to attract a new thing with up to 90% good aspects.
-
-[1]: as an example, imagine that all accounts are part of a network transaction partition. as the transaction capacity fills up in the partition, it splits. all accounts can only make transactions to other accounts outside of its own partition (for example), making each transaction partition have its own blockchain of transactions between each partition pair. this opens up a market for opportunistic miners. as a partition pair approaches capacity, it benefits the miners to mine for that pair. something like that maybe is an example. the global ledger still exists and any transaction can be looked up for any known part of the network. I dunno I'm just trying to give an example.
 
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
