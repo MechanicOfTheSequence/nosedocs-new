@@ -9633,9 +9633,11 @@ what I'm saying is, jupiter can work to do whatever he thinks is best, but all o
 
 I have described resistance as feminine force, and it can be considered undesirable when it's out of control (pushing you like the wind every which way), but when resistance can be controlled (memresistance), then it suddenly becomes very very useful. imagine that you could attract air to push on you from all sides -- well, you would levitate. imagine now that you attracted more resistance coming from the bottom -- well, then now you would appear to levitate. attracting the resistance in a controlled way can give the appearance of a repulsive force :) case closed...
 
-in other words: things are going to continue to speed up more and more. unsuitable ideas will be burnt away naturally. everything is good. now is the time to be wrong because everything will be wrong here shortly. lots of depravity (if you're concerned with quality over quantity) is probable. there is, however one that comes after me who will baptise you with purifying waters.
+in other words: things are going to continue to speed up more and more. unsuitable ideas will be burnt away naturally. everything is good. now is the time to be wrong because everything will be wrong here shortly[^2]. lots of "depravity" I'm sure (if you're concerned with quality over quantity). there is, however one that comes after me who will baptise you with purifying waters.
 
 [1]: in our phase of discovery, it's quanitity over quality. jupiter is preventing us from quality (good conditions) so the more simulations, stats, tries, experiments, etc. -- experience is obtained, the richer the bigger picture is. you can't get a good big picture from any single effort.
+
+[2]: this is how new things are made: lots of mutations (wrong things) are made. the wrong (but desirable) will stay and the remaining undesirable or unsuitable stuff will be culled naturally. after that, I think the "waters" are supposed ho make the wrong stuff "right" again -- probably by fighting against and destroying all of the wrong stuff. (don't be fooled: there is no right or wrong)
 
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
