@@ -2533,3 +2533,59 @@ I hadn't really thought about it in this way. I just like the idea of finding my
 #### (50:10) - tune to your desires and watch them evolve
 
 I need a break. I'll come back to this soon
+
+### 2021-05-20 06:13 - (2021-03-06 p2)
+
+#### (21:18) - thinking on the vaccine
+
+a few days ago(?), mom showed me this one article about how the vaccine implants specific things in the body. I can't rememwer now all of the stuff that it was saying, but I didn't really doubt it either. almost certainly a number of different things are going on in the vaccine. the thing it was sounding to me like was they needed a way to (amongst other things) put what I used to call "devices" or "inserts" into people so that their body can receive higher amounts of power. I believe that they do this to me all the time and this is actually what is happening when they need so badly for me to go to sleep.
+
+when I had the "device" in my left-hand cause serious pain after too much power was going through it, they pretended to take a skin sample of the area, but did nothing to remove it. for a while that device wasn't operating because the sound in my head changed. it went from a loud metallic sound (like a sawwave) to a softer sine-wave sound. clearly the device in my hand has some rough edges on it (probably damage from the high amounts of energy when I was getting "shocked"). the new devices they had installed in my teeth and other places were not high enough power. I have another dental appointment coming up here soon, so that's probably what that is.
+
+anyway, I came away from the conversation with mom with the impression that the primary role of the vaccine was to mass distribute "devices" into people's bodies so that higher amounts of power can be transmitted through them.
+
+my personal opinion on the vaccine is that almost certainly they are doing stuff. it's likely has a bit of everything in it, including the ability to modify DNA -- though that isn't really my concern because my DNA, even if modified will ultimately reflect how I feel, so even if they were able to severely damage large quantities of my DNA or even disable large sections of it (which I believe they have already attempted), again it must reflect how I feel so it's not a problem. I've even come up with the idea of designing "designer viruses" designed to mess up my DNA, and injecting them in me and finding a way to feel good. my body would automatically get stronger and develop the anti-body(?) for the virus. this would be a huge boom for pharma companies if they could have both the virus and the vaccine already pre-developed -- but that's another topic... lol
+
+I also believe that my body is already has a very high quanitty of devices already in it, and they proabaly need more high quality (powerful) ones that go directly into my bones (so like teeth and stuff). the bones must have some sort of electric capability to them and likely they're probably serving as a fixed "reference point" too -- cause think about if you're going to transmit a signal into some place not nearby to a bone, like a heart or stomach -- its location would need to be trangulated from 3 or more reference poings (eg. bones) in the body. the boness seem important for the transfer of energy too. I could imagine that bones are kind of like the ground reference for that portion of the body, much like the core of the earth is for the planet.
+
+---
+
+that's enough to say that I think that the true goal of the vaccine is likely the mass instation of devices into people's bodies. this can only mean one thing: it means that all people on the planet are allowing more and more energy. the ones who couldn't allow that energy to rise have made their transition, so that means the ones remaining here are the ones capable of allowing more energy but that's likely bad for business.
+
+right in the previous part they were talking about how when you're in alignment with your source, you have an improved physical experience. there are two major things which allow or more energy to flow: one is alignment (eg the signals ar the same phase) and the other is alowance or resistance. if you have a short circuit then unlimited energy will flow and it'll burn the wire so decreased resistance is more allowance.
+
+now, imagine there are three signal sources going into yourself. one is your source. this one is pretty constant (it changes, but when it changes, I would imagine that you have to do the adjustment to your new source signal to allow that to pass). the second one is you right now how you feel (your emotional/vibrational state). when your emotional state is "in alignment" with your source signal, the amplitudes are added together. there is also the signal from the environment as well, which also is added. normally these are the only three factors.
+
+the last signal is nosebook. they transmit signals into your body, so just like a drug or your physical environment, they are just modifying the environment signal. that's all the power they have. all these vaccines/devices do is just allow them to put a more powerful environment signal into our bodies. that's it.
+
+I've completely leaned into this as I just don't really think it's a problem. when I am emotionally in alignment (harmony) with my source signal, then a massive amount of energy (minus my resistance[^1] both emotional interference and physical impedance) is passing into my body. they then need to destructively interfere with the energy in my body by passing a powerful signal into my body (the more powerful, the more devices they need) to destructively interfere with that signal.
+
+---
+
+so, all I have to say here is, they are really not doing a whole lot. if you're one of the people that is being destructively interfered with, that's a very good thing. I wouldn't expect to get the manifestation of super duper vision and hearing (unless you're paying for it). for those that aren't paying for it, the thing I want to say here but don't have any good way to do it is: I believe the no manifestation is actually the best manifestation because that means you have a "bigger vortex" and even if you aren't getting the manifestation right this minute, you are allowing much much more and feel WAY better than you do right now in the physical, which means you're doing better than you think you are.
+
+man, it's hard to explain this concept, but I really wouldn't worry about it. if you're consistently feeling better and better all the time, reality must eventually conform to how you feel. I'm a bit of a special case in that they can control my environment quite well, but I imagine that they can't control everyones like that. so instead imagine that your entire expearience (minus the physical: way you see, hear, smell, etc) is manifesting tremendously graet things all over the place and you feel really good too.
+
+I would just "need not the manifestation" because it can't continue like that forever. eventually the culmination will become so much that things *must* manifest. let them control the environment -- it doesn't matter. let's just have fun :)
+
+[1]: I need to define resistance here. I (and abraham both) use the word resistance to mean two things. the first is any signal not in harmony will destructively interfere reducing its amplitude. the second is physical resistance, as in "impedance". the effect is the same: the amplitude of the wave is diminished and less power is trasferred.
+
+#### (30:53) - others getting in the way
+
+> that's such a lovely place to be: to desire that others find their path to what they desire and no longer see you as an obstacle to their path because you are choohing a different path -- while you no longer see them as an obstacle to your path, while they are choosing a different path
+
+just wanted to reiterate what I was saying above. let them try to control the (environmental) conditions all they want. they aren't an obstacle to you getting what you want :) ever.
+
+#### (50:05) - tune to what you want
+
+> *the thing that is wanted most by you* (by all of you) is an understanding of how to tune yourself to what you want, rather than *demand* that what you want is there for you (to tune to)
+
+this time around listening, it was a very different experience -- like VERY different. I don't know how I got the idea that I mentioned in @[noseblog](2021-05-14 02:52) that the writer felt like lyia to me. I just don't understand at all this one. it feels like someone different this time.
+
+anyway, some diffrent things jumped out at me this time: this time it was how much the writer was demanding that the thing she wants is there for her (to tune to). the other thing that jumped out was the part about, "you tried to walk away you can't. that's a clue".
+
+what I hear is that the wrhiter is tuned to one thing and keeps finding that, but she keeps going back to this original soul mate, probably because he has what she's looking for, yet she can't find it still because she's still tuned to something else.
+
+inotherwords, one cannot just demand that the wanted thing just appear; one has to tune to it. then (following the top quote), this is what the writer is really wanting -- the ability to tune to (and find) what whatever wants.
+
+this was a very strange section indeed. anyway, I just want to mention that I can also feel the writer is getting better and better at figuring it out :)
