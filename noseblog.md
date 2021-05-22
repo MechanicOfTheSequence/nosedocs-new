@@ -9820,6 +9820,16 @@ you can see how this setup allows for what I want, what nosebook wants, then I'm
 
 in short, I'm not trying to win any battles here and go to mars or reveal any of their secrets. instead, I need them to really want to keep their secrets hidden -- so much that they *must* hold me away from my connection long enough for me to expand into a whole new species of humans :)
 
+### 2021-05-22 13:53 - from what half of the scale?
+
+I felt like there were some reactions saying that I was against the whole idea of going to mars. I kinda am in our present state. I, however, am very much for the idea of becomming a space-faring civilisation. maybe people don't take my desire to construct a galaxy very seriously... that's fine with me. it's a pretty big idea, I get that, but it felt pretty possible to me, and then with the addition of holding off on that idea for a little bit and working on a new female implementation while becoming essentially a new species of humans at the same time, it feels like it's actually quite part of the bigger picture.
+
+what I want to say is that I mentioned that I think there used to be an advanced civilisation on mars. depending on how you look at various ancient texts, it sounded to me like the previous martians were space faring and also were quite advanced in comparison to us. they were moving and shaping giant stones with ease, and apparently had the genetic capaability to produce viable hybrids of the annunaki DNA, chimpanze, and pig DNA. I'm not sure if we could do that today; it's pretty advanced stuff.
+
+I'm very interested in getting to space, but I think we need to be doing it from the top half of the emotional scale. it feels to me like the martians (annunaki) that came here at more from the overwhelmment -> disappointment -> doubt -> worry -> blame part of the scale.
+
+it sounded to me like they had a growing set of problems on their planet. they were at least worried about them. they had a cascading disaster of things failing, and their journey to earth was definitely not from the top half of the scale. if I had to guess, the way it feels to me is there were somewhere between worry and insecurity / guilt / unworthiness when they left mars behind.
+
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
 - @[youtube](https://www.youtube.com/watch?v=jRzysFhyZ8Y)
