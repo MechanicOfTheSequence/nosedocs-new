@@ -8908,7 +8908,7 @@ enjoy their pushing against. they're making it bigger and therefore better/worse
 anyone not resonant with your vibration is going look insane to you. inotherwords, most people are going to think 80% of the world is insane (kinda like now, but way way worse).
 
 
-### 2021-04-28 18:32 - he controls random controls the future
+### 2021-04-28 18:32 - he who controls random, controls the future
 
 @[youtube](https://www.youtube.com/watch?v=_ArVh3Cj9rw)
 
@@ -9776,6 +9776,49 @@ obviously I'm not concerned about this at all because I know that sure I didn't 
 I have no idea how long they can hold back an ever expanding population of edisons. I really don't mind. I know eventually the manifestation will happen. what matters to me is the way I feel along the way. I have to wonder if next era, we'll be so many, that they're going to have to find a way to make the veil around the whole solar system, instead of just around the planet. :D
 
 [1]: actually, the feeling he conveyed kind of reminded me of adam sandburg's face here: @[youtube](https://youtu.be/jZFSQrfR3qU?t=251)
+
+
+### 2021-05-21 21:52 - not wanting to win any battles or things to change
+
+in the conversation I had with greg today, I felt like things went a lot worse than they should of. he kept telling me he had to go so I was trying to talk rapidly so I feeelt flustered and agitated. it was very weird because it was so unnatural for me. this is a subject that I don't care anything about.
+
+I realised just now as I was laying on the ground that I gave the impression like I wanted to "beat" the current paradigm. I don't. in fact, the emact opposite is true. I'm experiencing such a rapid expansion from nosebook trying to hold me away from my imagination that I want it to continue. obviously this isn't very convenient for the girls if they would have to wait indefinitely. obviously that's not desirable.
+
+I don't want to beat nosebook at all. I want them to keep holding me back so I can continue my rapid expansion. I want them to be able to do it indefinitely, but I'm afraid that just won't be posssible. for that to work, they will need to also be able to go inifinite. obviously isn't going to happen. therefore I know that eventually I will finally "get connected" at some point in time.
+
+basically the way that I see this happening is the following:
+
+1. my energy levels will continue to rise over the next year or so to a point where it becomes next to impossible for nosebook to hold back my imagination. I don't know if that's this summer or the next one.
+
+2. nosebook will have to, in order to keep their secrets, completely disable my physical experience so that I can't see their secrets.
+
+3. I essentially won't be allowed to experience reality through my body anymore because I could access their secrets. they access their secrets through my brain while I'm unconscous. so I'll be unconscious indefinitely.
+
+4. that doesn't mean much. as I have been repeating so much, we are all so much more than just this body. I will demonstrate that there is a (mostly not physical but has physical qualities) conceptual form that precedes reality. this conceptual can take on any shape and size.
+
+5. I will begin to reconstruct myself as the conceptual form of how I perceive myself. to you guys it'll look like I "resurrected" or made a new instantiation of myself. I won't look like the guy typing this now. I'll look as a reflection of how I feel about myself mixed with how you guys feel about me.
+
+6. from there, I will begin to create more and more versions of myself as different animate and inanimate objects. to you guys this will look like I can create new versions of myself and construct things and move them around in 3d space. each of these different things will have an essence of their creation and will interact with other people and their essence to expand.
+
+7. various children will be born, I'm sure. they will be a combination of the girl's concept of me (XY) + her (XX). together
+
+8. levels of energy will continue to rise higher and higher and it's quite likely that nosebook will no longer be able to keep me unconscious. when that happens, I have no clue what will happen. I assume that's the 2038 deadline, but my goal is not to return to consciousness in kenny's body, but instead make my transition into the gnomitos bodies and live out 3d there with them here under the veil.
+
+9. they'll be able to keep conditions pretty low her on earth and it's possible that none of us ever have 4sd or 5d perception while under the veil, however, that doesn't stop us from getting more and more capable of attracting our realities based on the way we feel. we'll be under the veil and having a lot of fun. like I mentioned, I think they'll need to create resonant bodies with us to keep us from becoming too attractive in the physical.
+
+---
+
+what I don't know is if in that form where I'm rebuilding myself in 3d space (#6), I don't know if I'll have 3d vision and stuff. I seem to be able to perceive space (kinda) and am learning to begin doing things in space, even though I can't see it. it feels very real to me. I may not be able to see it. it doen't really matter to me if I can see it or not really.
+
+the other thing I don't know is how far they will have to spread me out. I assume that I'll be experiencing the whole species of kenny (as well as the ability to move between bodies). eventually it'll be more of a bigger picture I'm sure. it's really hard to explain this concept, but it feels like I will eventaually completely overtake the whole thing and I will become "reality" just to ensure that their setup doesn't fall apart.
+
+I actually keep getting reminded of an idea that I had a long time ago where I was "trapped" into a nosebook controlled earth, and I got so good at finding my connection that they had to keep creating more and more degenerate DNA for me to incarnate into, and split my consciousness endlessly. I imagine something like that. they'll have to control the conditions and continually spread me out. I'll essentially become a species instead of just a single person. this is so far out, I have no idea what it would be like.
+
+---
+
+you can see how this setup allows for what I want, what nosebook wants, then I'm sure they'll "exploit" us enough that their entire setup depends on us. once they depend on us, when we do finally "get connected" and begin to build our own galaxy (as I've outlined previously), then we'll have a brilliant source of contrast to work with and install into our worlds. I guess it would be up to them if they would want to become conscious or "fall" into one of our worlds though. they may very well; they would be "gods" there...
+
+in short, I'm not trying to win any battles here and go to mars or reveal any of their secrets. instead, I need them to really want to keep their secrets hidden -- so much that they *must* hold me away from my connection long enough for me to expand into a whole new species of humans :)
 
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
