@@ -82,3 +82,17 @@ so, now let's look at the other woman (on the comedy side). you'll notice that s
 I see and concur with waugh's explanation there but I want to offer a second layer of meaning. the spade is symbolic of effort or labour and refers to jupiter. to explain, let's look at the concept of value. we equate value with both effort and time. time, effort and quality are all units of measurment. in the alchemical process work/effort needs to be done and this takes time. once again time and space are the twins that are each necessary of each other. you can't have space without time, neither time without distance/space. these are the twins that appear separate but are perpendicular perspetives of the same thing. I refer to these as saturn (time) and jupiter (space). these are the two symbols on either side of the monument: the spade and the hourglass, referring to time and labour.
 
 there may be more symbolism relating to the women twins there I believe jonson reveals in his play, "the magnetick lady" of the passing of the feminine heir from mr. compass (eg. Time, ref sonnet 116) to pleasance. look at the crown and rod.
+
+### 2021-05-22 13:51 - to rupert zaryn and noah
+
+hey rupert, I was goofing off just now with jaron and I suggested an idea that I wish there was a less friction way to get my ideas out onto a platform.
+
+I decided that it would have the artificial restriction that you only get 15-20 seconds of pause time while writing and when the timer runs out, it automatically sends the idea -- no way to cancel it.
+
+the network I supposed would be called "blurter" and each post would be a "blart".
+
+the whole point of the idea is to artificially force people to get their ideas out there without thinking about them as much. each input to the text area would only allow one character input at a time so you couldn't just circumvent the idea by writing it all out then copy and pasting it in. I'm even considering the idea of never being able to delete any blarts either. it would create all kinds of really "funny" situations because imagine I grab your phone while you're not looking and I fire out a few blarts.. lol
+
+---
+
+anyway, I thought it was a pretty good idea and I'm not going to use it, so pass it on to someone who may want to use it. cheers!
