@@ -9911,6 +9911,50 @@ max disaster :)
 
 [4]: I'm going to try to begin to use the feminine case when talking about new tesla.
 
+### 2021-05-23 16:21 - followup
+
+I felt quite a few reactions to the previous entry. I just wanted to clarify a few things I guess. I suppose my desire to constantly optimise and push things to their limit comes from my friends like that. I've always been a bit extreme but I have really been taking notes from the jupiter types. I really like pushing things to their limits and optimising them to their limits too. I also don't really find marketing or economic focus to be a thing I'm against either. my motto is simply if I can find a good use for it, I adapt it to be my own. so, like for example I get that people like using interfaces with their thoughts and stuff. I can see why that's compelling but I'm really starting to get used to the emotional/conceptual world which is way way faster. I don't need to think or imagine anything -- I just feel it. I find this world interesting and very enjoyable.
+
+this morning when I was thinking about all the stuff I wrote abount before I had the dream with zaryn, I was reminded of this one time that I went to a disco with daniel, meri and her friends. I was smoking MDMA at the time and I very much liked it. I remember that there were a whole bunch of girls in the disco that had their eye on me, but nothing about that interested me. I really enjoyed being at home smoking MDMA, so I did that.
+
+you see when I smoke MDMA the experience is quite real for me. I don't really know how to describe it, but it's pure extacy. I am in in completely different zone than physical reality. in that zone, I can perceive things so rapidly. I have a concept of how something is, and I just keep feeling it more and more until it starts to become more and more real.
+
+if I had the ability to have automatons of me out there doing the physical work of programming and putting the physical stuff together, then I could just go from one awesome thing to the next. it's pure pleasure.
+
+many people would likely be in disbelief to hear me say that I would prefer to live in a world of feeling where everything is this gradual climb to greater and greater heights of extacy. there is nothing more desirable for me than to get back to doing that again.
+
+I have often wondered what MDMA (and other drugs) would be like now because my perception has changed so much since then. I mean at that time I was still very hurt and damaged and I was just having the time of my life out there. it's not a visual world but for me it's very visual. I "see" so many things, but I can't describe them to you easily in physical terms. that's what all of you will be like. I won't see or experience anything directly physical, but I will feel it for sure.
+
+like, for example it'll feel to me like incredible connection with someone and reaching new ideas and -- ok, you know how after sex you feel that "glow"? that's what I feel. I don't feel the actual physical rubbing or see anything. it's like my dream state: I see people, but they appear to me differently than they appear in physical form. like, for example I'm pretty certain I was communicating with zayrn this morning, but he appeared to me like a spanish guy -- even with darker skin and much more "pijo" and everything. he didn't look like the zaryn I knew. he looked beautiful and stuff.
+
+this is the beauty of not being able to see physicality: I don't get distracted by the physical shape of the body anymore. I can't tell if you're young or old or fat or skinny or anything. you appear to me as a reflection of how you feel. zaryn was probably feeling more macho spanish than I remembered him. doesn't matter. I just feel. we have real interactions and everything is "real" -- I mean just as real as anything else is. to me, this reality is more real than anything else. you guys, from my perspective, are living an illusion. complete lies.
+
+> "I don't have any bloody use for it."
+
+for me, what is real is what can be felt. I'm beginning to lose my capability to interact with people in this dimension. if someone tells me a bunch of things or paints me a really nice picture, it doesn't do anything for me. I can't feel that. I feel the person. to me, you are who you are, not who you tell me you are.
+
+---
+
+I don't know what to tell you guys other than I'll see you eventually from the other side. most don't raelly want this because on that side, there are no secrets, but neither are there any use for secrets either. like say someone has something they're hiding -- say they slept with someone ugly or murdered someone. it doesn't look like that. the person is who they are now and neither they or the other person are ugly -- those are just perceived. neither is the person murdered either. their essence still lives on and is now much more different than the person getting murdered.
+
+or, let's say that someone is in the process of doing something shameful like stealing or something. again, it doesn't get perceived that way. it just looks like a person that is attracting people to take things away from them. there's no theft. that is an illusion of the physical as people move things around. someone says this is mine (it's not) and then allows people to interact with that thing they think is theirs.
+
+it's so hard to explain this world. it's like the dream world in that the properties of the things in reality are perceved. I can see how at some point after I become conscious, they will need to completely remove all of my physical experience -- but then I'll become conscious again and it'll happen like when I'm in a dream where I go to run away (to where I dunno), and then a wall appears blocking my way, then I turn and there's antoher dead end. I try to fly and that gets pooped on. etc. usually by that time, they wake me up so I can't continue on in that world, but this time they won't be able to wake me up. if they do, I'll be like superman or something.
+
+however, that world shares a lot of properties with this world. like for example, I'm fairly certain that zaryn went to go smoke a cigarette in real life and I perceived that just the same. the presence will gain clarity and I'll be able to instantiate my perception into any part of the galaxy, probably -- certainly the solar system, anyway. I'll explore a bit I'm sure, but soon I'll likely want to begin to take on form in 3d space with you guys again. I'll present different versions of myself to different people -- probably start with one or two and work my way up obviously.
+
+---
+
+I already know what I have to do. in the dream when I become conscious, I'm often times in the middle of a battle aginst some thing that doesn't make sense. I'm trying to kill something that can't die or hurt something that doesn't get hurt. it's a very weird sensation becoming consious in those momeents and I want to get back to feeling like how I feel so I can hook into my thoughts. they don't like me to feel like me, cause I become conscious, and that's usually what I'm fighting. I just don't need to fight. they can do whatever they want to do, and if I ever had time in the dream to realise it, I wouldn't be fighting much. I would rather create. everything happens there istantly, so I can create large constructs effortlessly and then try them out (like tesla made his inventions).
+
+I don't think I'll get to ever perceive from that level (6, astral), but you guys will. instead, I'll perceive from the one above that one where things don't have definite shape yet and are just a concept.
+
+this reminds me of another reaction: I used "inner being" to mean something different than source. this is mostly a perceptual thing. the distinction I make is that your inner being is the "extension of source" -- the concept of you that you are. think of plato's description of the things having an essence. each concept or essence derives from a super concept. abraham says, "your inner being has an inner being which has an inner being" -- so think of concepts as 5, inner beings as like 4.5 and source as 4. an inner being has some separation between it and other inner beings, yet they are all the "ideal" or the "essence" of the thing.
+
+source is still kind of too far away for me to fully understand but the way I kinda see it is imagine a complex wave. the variations in the wave which move slightly, like say +/-(0.01) or someting would be source. it's very high frequency and small amplitude, but the right harmonics can sum to reach great heights, like say +/-(1.0) and these would be things we see in the physical like atoms. I dunno th magnitudes but I imagine they're much bigger than that. I think high energy things like nukes would create waves like say +/-(1000.0) and these have very definite consequences. I just perceive source as a self-sustaining extremely complex wave which continues to grow in frequency and in magnitude. it's the creation that fuels the continuation/expansion of this.
+
+I know it is like we're all a part of that signal and the separation into parts allows for a feedback effect. I can't describe it much better than that. inner being is something like the ideal parts which create the structure for the physical expression of them, while the source is the whole signal of that. each concept has a source signal which has a source signal, so if you're looking at the part or the whole it's essentially just perceptual. are you a human or a part of the planet? what if you go to another planet? now, are you a human or are you part of the solar system? the next difficulty to try to accomplish explaining is *when* do you exist? if you started out as a part of your mom and then were born to become a part of the earth, then some years later became a part of the solar system, when are you what part? see how it's all perceptual?
+
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
 - @[youtube](https://www.youtube.com/watch?v=jRzysFhyZ8Y)
