@@ -9830,6 +9830,21 @@ I'm very interested in getting to space, but I think we need to be doing it from
 
 it sounded to me like they had a growing set of problems on their planet. they were at least worried about them. they had a cascading disaster of things failing, and their journey to earth was definitely not from the top half of the scale. if I had to guess, the way it feels to me is there were somewhere between worry and insecurity / guilt / unworthiness when they left mars behind.
 
+
+### 2021-05-22 23:46 - LOA is always accurate
+
+@[youtube](https://www.youtube.com/watch?v=bRtBHF-WPpM)
+
+I just watched that video and there are a lot of things that she said that I quite agree with. most people don't talk about taking a fair assessment of yourself, and I think that's important. it's also about "course correction" too. really good stuff there. she said something which caught me off-guard though which was, "what do you know that you wish you didn't know" (prolly not an exact quote). I love everything I know and I wish I knew more. I think if I had to answer that honestly, previously I would say that it used to kind of bother me to know about someone's sexual history (kinda, sorta not really, and I guess depending on weird things), but I'd say that I don't really have that anymore. I only feel discomfort when the other person feels uncomfortable or shame of their own history.
+
+I don't really find my (or anyone else's) past to be anything bad or anything like that. it's jsut kind of weird almost to think that ... there's not really any part of my own (or anyone else's) past that I would consider not wanting to know about.
+
+my basic policy is kind of a funny one I realised. I just jump in and then convince myself that where I am is where I want to be (or be OK with where I am) -- and if it isn't good-feeling, then I just change it. so easy.
+
+I call this technique the perfect bellseye archery technique. I shoot the arrow, and wherever it lands, I find a way to paint the bullseye around it. the reason is, LOA is accurate. it's not like it ever messes up. it's perfect, so wherever I am is exactly right what I attracted for myself. it's never wrong. since I know it's never wrong (or, as abraham says, "things are always working out for me"), then I'm constantly finding a way to perceive my present circumstances as being the best place for me to be -- mentally painting the target aronud my arrow with my perception :)
+
+if it happened or is happening, it *was* attracted :)
+
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
 - @[youtube](https://www.youtube.com/watch?v=jRzysFhyZ8Y)
