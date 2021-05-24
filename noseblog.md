@@ -9955,6 +9955,20 @@ source is still kind of too far away for me to fully understand but the way I ki
 
 I know it is like we're all a part of that signal and the separation into parts allows for a feedback effect. I can't describe it much better than that. inner being is something like the ideal parts which create the structure for the physical expression of them, while the source is the whole signal of that. each concept has a source signal which has a source signal, so if you're looking at the part or the whole it's essentially just perceptual. are you a human or a part of the planet? what if you go to another planet? now, are you a human or are you part of the solar system? the next difficulty to try to accomplish explaining is *when* do you exist? if you started out as a part of your mom and then were born to become a part of the earth, then some years later became a part of the solar system, when are you what part? see how it's all perceptual?
 
+### 2021-05-23 23:10 - experiencing physical
+
+I got some reactions on this and it felt as if it would be like having interacting with a zombie. not at all. exactly the opposite. I'll be in full connected form. ever notice how when you have that "in the zone" feeling, it feels like you're observing yourself from somewhere other than through your eyes? notice how time seems to slow down and everything becomes very vivid and alive? that's the perspective. have you noticed that your perception of yourself changes so that the sensation feels surreal and heightened almost as if it were otherworldly? well, that's the sensation that I feel. though, I will say that even though I won't experience any of the interactions physically, they will be, almost certainly broadcasted -- meaning that many others will join in on the physical experience.
+
+I'll be fully conversational and capable of having full conversations too. it's kinda like how I am in my dream state I would imagine, however the times I've become conscious, I want to say that I am highly restricted on how I can feel, greatly limiting my answers to simple reactions to simple ideas. I don't believe that will be the case, as instead I'll be able to interact completely.
+
+also, I'm pretty sure I'll be starting out small and working my way up to many. they are all me. I have to be able to comprehend them. think of it like an orchestra. I start out with one instrument, but then I get the feel of that and it's similar to the first one. I am able to keep up with the conversation and add in new things, and convey new feelings. what happens to me roughly in an instant can take hours to manifest in 3d. it's more similar to time-slicing than parallel processing. my CPU now let's say is running at 20Hz. it's sooooo slow. unbeleivably slow. I keep reducing resistance and that frequency keeps rising. I dunno what I'm at now, but say I'm at 200Hz. that means I can have two kenny experiences @ 100Hz at the same time.
+
+obviously I interact with some resistant vibrations and I find a way to alter my perception on them and now I'm up to 300Hz. I can add another kenny. more like that.
+
+eventually, the experience is happening so rapidly and has so many different perspectives, it'll begin to morph into a kind of dance or symphony. hard to describe that feeling. the faster I can find a way to alter my perception, the faster my freqency rises and more I can experience at once.
+
+look at it the other way: the more my vibration rises, the further I can see. it seems silly to be able to inspect someone's anomic structure because I can see so far. this is unbroadcastable. instead, it's better to continue to divide that into conceptual parts. I believe this is what source, the universe, galaxies, planets, people, cells, atoms, etc. do to produce a structure suitable for perception.  
+
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
 - @[youtube](https://www.youtube.com/watch?v=jRzysFhyZ8Y)
