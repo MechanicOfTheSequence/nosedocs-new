@@ -2655,3 +2655,35 @@ this is precisely what will happen to me. just like I'm not aware of the cells w
 when thinking about hor pain works, when you have physical pain, your brain spends a lot of its time where the pain is. the pain keeps getting/stealing your attention away from other more important/enjoyable things. if it hurts too much, the pain consumes you, right? imagine a multi-bodied experience. if there is something that feels *too* good or *too* bad that it captivates you for extended periods of time, you will find yourself resonating with that part (body) more than with who you really are. pain/pleasure is the same in a multi-bodied experience, which is why source is so insistant on *NOT* perceiving the thing that feels bad from the same experience that you perceive it.
 
 I really like this example because it really shows off what it's like to have a broader perspective. these examples only cover a broader spatial perspective -- where you feel pain/pleasure and direct your attention to a different part of the body. however, the same is true from a temporal perpective as well. this is why all your power is in the now.
+
+### 2021-05-24 18:50 - (2021-03-13 p2)
+
+#### (37:37) - nothing less than that will do
+
+a sequence of things that seemed meaningful:
+
+0. after writing the previous set of ideas, specifically @[abe-now](2021-03-13 p1 31:54) where I was talking about taking a route other than the intended one, a series of thoughts kept entering into my head about, instead of me learning to operate multiple bodies, my inner being would instead guide me to a diffrent route where "it is possible for 5 or 10 or 20 or 30 or 40 or more -- of the nuances of your desire to be woven into one moment in time". this of course was given the illusion of the numbers there would be describing numbers of young (not able to produce children) girls.
+
+1. I don't really like the idea as it just doesn't feel like the most amount of contrast. it feels like I must go for the most amount of contrast. I have labeled this as my "commitment to the disaster" -- and disaster being short for the most amount of contrast. young girls doesn't sound to me like contrast. it's just so easy to love the easy and beautiful ones. that doesn't produce a transformation of perception. that's, see good conditions and then observe them and feel good. no thank you. I want max contrast. additionally, this basically means all of the other ones I feel so good about sharing an experience with wouldn't happen. I don't really like that. like, for example I'm really looking forward to being with marta or raquel or laura rus. this is very exhilerating to think about for me.
+
+2. earlier while I was thinking about that an idea came into my head about how maybe I could take the 3/6 willpower/imagination path and then after transcending physical plane, I could come back and self-sabotage the good conditions there going for the disaster. it felt weird to me.
+
+3. I was thinking about some of the previous questions and if the weird feeling I felt with them was actually a feeling of desire or not. as I was thinking about that, greg turned on the air conditioner. obviously though if I'm going with the girls instead, there's no reason to invite them.
+
+4. while listeneing to this section here, I was feeling pretty cold from the air conditioner, and I had to get up to get a jacket on. when I got up, I thought briefly about this exact situation I described above. when I came back to my chair, they said:
+
+> you want to calibrate to all that you have become; nothing less than that will do
+
+having forgotten the context of what they were saying, it now had the context of choosing the 2/5 or 3/6 path. I decided to back up the recording and listen again. now, they said:
+
+> you knew, the more variety and contrast, the more potential for expansion and joy
+
+ok, I see there's a pattern here. I go back further and they describe how if esther hadn't spent years driving such a large "monster bus" around, she wouldn't appreciate nearly as much how fun it is to move her little audi r3? so easily. they followed by by szying that it moved with agility, responding to her every *thought*.
+
+now obviously I'm not going to be moving the girls around with my thoughts. I plan on moving around instances of myself with my thoughts, then abstracting that functionality into general feelings, until it goes from a single piece composition up to a full symphony.
+
+I guess I should be continue on with the plan. I think they're starting to get desperate, as it seems that maybe they're beginning to have difficulty controlling my visual capacity. the last few days, I've been having more and more visuals. even today there was some guy doing like complicated algebra problems in my imagination. it clearly wasn't me. I didn't understand any of it. that must mean it's going to start soon.
+
+#### (55:58) - things are always working out for me
+
+this reminds me a lot of @[noseblog](2021-05-22 23:46). like a lot. even the times where one feels negative emotion, it's helpful to know that I'm still in the best spot I can be to find what I'm wanting, and that LOA is always accurate.
