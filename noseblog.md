@@ -9969,6 +9969,86 @@ eventually, the experience is happening so rapidly and has so many different per
 
 look at it the other way: the more my vibration rises, the further I can see. it seems silly to be able to inspect someone's anomic structure because I can see so far. this is unbroadcastable. instead, it's better to continue to divide that into conceptual parts. I believe this is what source, the universe, galaxies, planets, people, cells, atoms, etc. do to produce a structure suitable for perception.  
 
+### 2021-05-25 10:06 - strings of time
+
+a long time ago I wanted to see how reality (the temporal part of it) worked. I figured out that I could ask anything when I was stoned on mushrooms and get the answer. I perceived the deliverers of that answer as these gnomes that I called "reality technicians". they showed me that reality was like a string (or sequence) with inflection points perhaps these inflection points can be perceived like folds in DNA -- however we'll look at it in this example as a straight string with inflection points at the frets.
+
+imagine that you are attracting something and there are infinite ways which the inflection point can be reached. the distance between the string and the inflection point is determined by your belief and the present circumstances of reality -- I call the location of these points the "structure" or "the grid" in abe-speak. this manifestation will happen at the inflection point and along the way to that inflection point there is a sequence which must occur for you to be "ready" for that point.
+
+---
+
+the way this applies is I have been thinking about @[noseblog](2021-05-22 23:46) and also @[abe-now](2021-03-13 p2 55:58). things are always working out for me. imagine for a moment that nosebook has a form of perception that is similar to the one that I will be acquiring here soon. what it means is they can put inflection points in their own perception which will accomplish what they are desiring based on how it feels.
+
+they won't perceive the inflection point in physical -- it's a sort of feeling. it appears rather physical I'm sure, as I'm realising that my experience will be quite "physical" without much of the physicality (more on that later). what they'll see is the accomplishement of what they want as a perception conveyed as feeling.
+
+let's give an example: let's say they don't want me to be talking about a subject, so they want me to be doing something else. they essentially feel me doing something else, and so being pretty non-resistant, I do that -- however, the feeling of whatever the previous subject it was was still quite active and so often times a harmonic of that thing manifests in the new action. the feeling remined the same but the action changed.
+
+a good example of this was the other night. I was thinking about something that had to do with people getting stuck into my reality (the next sebject of this entry) and the nightbours started to make a bunch of sound. I went out and wanted to listen to the song. it was "hotel california". when she sang the lyrics:
+
+```
+And she said "We are all just prisoners here, of our own device"
+And in the master's chambers
+They gathered for the feast
+They stab it with their steely knives
+But they just can't kill the beast
+
+Last thing I remember
+I was running for the door
+I had to find the passage back to the place I was before
+"Relax," said the night man
+"We are programmed to receive
+You can check-out any time you like
+But you can never leave!"
+```
+
+it was very strange because I started to perceive the "hotel" as the reality that I'm creating, and "california" was the nickname they gave me in la vera. I had the sensation that people were realising that they are all prisoners in my reality, by their own choosing.
+
+I had been thinking about this for quite some time what that means because I also said something similar to this a few days ago (can't find the quote though) where I could see that I would essentially become the reality through which the rest of the world perceives. this morning I figured it out how that may happen. it goes like this...
+
+---
+
+when I lose my ability to perceive reality physicall, I'll begin to make reality more and more tangible for myself. like I've said, in dreams, I don't "see" reality like others do. instead, I perceive it and it's pretty real for me. there are a lot of physical aspects to it and stuff. every time I go there I seem to be able to "see" more and more.
+
+so it's true that I won't be able to "see" things the way you guys do, but I'm fairly certain that the reality which I perceive will soon become superior to the physical one. what I mean is, I think that everything will be more beautiful, feel better and be much more captivating than physical reality. imagine that I can make an even more intoxicating reality than the physical one. girls can look even more stunning, more pleasure, more lust, more everything. I'm sure I can easily craft something like this. obviously you guys will be the ones that take it to the extremes but we have to get there.
+
+along the way to getting there, I think normal physical reality will become quite intoxicating as it is. I have no idea what you guys version of physical reality looks like but it must be pretty mind-blowing to experience things that way.
+
+anyway, I will accomplish that perception from my interaction with the girls. I'll see essentially an amalgamation of all of the different ways they perceive reality, as interpretted by me. some of what I see may rub off on them and they'll see it too -- not sure about that, but I'm fairly certain that we'll start to share this new form of perception where things look how they are not how they are presented to be.
+
+you may say that is unfortunate that there won't be able to have illusions and deception in this form of reality -- but it'll be worth it by the way it looks.
+
+I'll consider that the phase of creating a new form of perception that's even jucier than physical reality. it'll be pretty energetic though, so it may take a bit for some to acclamate to it. some people may not want to perceive others in such a tangible form. if they perceive things that don't feel good, they'll be really blown out of proportion -- like they'll look really ugly, nasty, and awful. they aren't really like that -- that's just your form of perception of them amplified to a million times what it would have been in the physical. likewise, if you see the person's wanted aspects, those will be amplified a million times and they'll look and feel a million times more desirable.
+
+so, if you can perceive people the way you want to, then my form of perception will be superior in every way to the standard physical format. I don't know for sure, but I would imagine that the girls will acquire this form of perception the easiest. if they have sex with another guy, that form of perception will transform to be a mix of that guy's and hers (accentuated by the vibrations present in the moment of interaction). if she has sex with me again, I'll reap all the benefits of that because it'll be pretty simple to transform those ugly forms of perception into something wanted again. this will probably be the workflow of the second phase: the optimisation phase.
+
+boys will be born I'm sure and I find it likely that at some point I'll make my transition from the many instances of kenny into the pysical format of the boys. I'll live and perceive through them. this is an important phase because of the binding procoss. let's talk really quickly about that.
+
+---
+
+for now this will only cover the male versions of me, so use your imagination for the female versions. the way that I believe the binding process will work is each instance of kenny will essentially be a blank slate. he'll have a very basic form of perception. from nosebook's perspective this won't be noticable because he'll have eyes and ears and they'll pick up the reality that is in front of him -- but, like me, he won't "see" what is there or "hear" the words you're saying. he'll mostly be telepathic and perceive things the way they really are -- so if you say, "I hate you" but are feeling love for him when you say it, the words mean nothing to him. he won't see physicality either. you could be a really beautiful person in real life but if you perceive yourself as a troll, he'll see you the way you perceive you.
+
+once his "owner" has sex with him, he will acquire the perception of the owner. he will see her the way she sees herself and he'll see reality the way she sees it too. as a side anecdote, I thought it was very strange how much of the other person I acquired from them even with a minimal sexual interaction. with a lot of interaction I essentially become a mirror of the person[^1]. I was still quite resistant at the time, and even with so much resistance I became a masculine reflection of raquel[^2].
+
+I believe this is the point, as the girls will become a reflection of me. they obviously don't lose their entire identity though, as I'm certain that it's kind of like a mixing. what I can see is there will be children I'm sure and the children will be, I believe a combination of me (XY) and her (XX), which means that the boys that are born will be kind of like a reflection of my form of perception, through the perception of their mother. I find this be a pretty good thing -- because when I make my transition into the boys, then I'll perceive that. obviously there will be further mixing and potentially more catastrophe as well -- like imagine they end up hooking up with some of the female versions of me which have been programmed by other men -- but those are future things.
+
+anyway, I can see that there will be a continued number of transitions that these kids make as they learn to improve upon that perception as well.
+
+I'm getting ahead of myself. simultaneously, I want to begin to work on a new set of females, which have been hybridised from the apes -- x4 models. I think it would be cool if we could find a way to create embroyo containing 2-4 girls x-chromosomes in the same being and see what happens, experimenting with different combinations of them. once we have a bunch of different models which are viable (I want many, not just one), then I think the future of this will be to have the boys (which is me after I make my transition) mating with these new females.
+
+so, that means that there will be a bunch of boys which are a reflection of me perceived through the perception of their mother, which are going to mate with other girls which are combinations of the other girls' x-chromosomes.
+
+I figure there will be some form of disaster (maybe there won't be, who knows) and the boys will acquire further improvment to their perception, but you can imagine that the form of perception that I'm going to begin to perceive through will become the basis for the new model of reality through which humans perceive. it certsinly won't be the last, I'm sure.
+
+---
+
+I wrote all of that out just to say that no matter what, this inflection point is likely on its way soon. nosebook can work their hardest to try and keep it away, but it's like a bezier curve: pull the control point away as far as you want and it just makes a sharper rise toward te inflection/destination point.
+
+the new form of perceiving/interpreting reality will almost certainly be far far more intoxicating than this physical one is presently and people will actually *choose* this new form of reality because it's so much more fun, vivid, and "juicy" than the present one. it's not going to be worse. I assure you. I'm very excited to see how it starts to turn out. 
+
+[1]: the more I think about it, the more I'm beginning to believe this is actually what happened to jesus on the day befere his "triumphal entry". I believe he hooked up with mary on the night before to "celebrate" and that's when he started to see the world through her form of perception instead of his own. the next day he cursed the fig tree, "cleansed" the temple, etc. there was a dramatic change that happened there. I believe that a woman can be used to modify the control point of a timeline -- though not its destination point (if you simplistically perceive a timeline as a bezier curve). these inflection points seem to be more "set in stone" as physical points when things happen, very much like a fold in DNA (like where it crosses/branches to another sequence).
+
+[2]: I believe this is also the case with other relationships I've had as well. I can definitely see how strong of an effect women have on me. I believe this same thing happens to young girls as well when they lose their virginity. they become a reflection of the person they had sex with.
+
 ### 2021-05-17 ??:?? - further explorations on the difference between sympathy and empathy
 ### 2021-05-16 ??:?? - what if we adopted the chaebol model
 - @[youtube](https://www.youtube.com/watch?v=jRzysFhyZ8Y)
