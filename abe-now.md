@@ -2589,3 +2589,69 @@ what I hear is that the wrhiter is tuned to one thing and keeps finding that, bu
 inotherwords, one cannot just demand that the wanted thing just appear; one has to tune to it. then (following the top quote), this is what the writer is really wanting -- the ability to tune to (and find) what whatever wants.
 
 this was a very strange section indeed. anyway, I just want to mention that I can also feel the writer is getting better and better at figuring it out :)
+
+### 2021-05-23 21:57 - (2021-03-13 p1)
+
+#### (15:08) - the art of fulfilling your life's purpose
+
+they say it takes longer, and I see what they're saying: it takes more time to turn a faster moving airplane than a slow one -- so what they're saying is it takes time to practise a new frame of mind. however, it doesn't need to be dreary along the way. the sense I had is that people thought that it would be hard then it would stay difficult and no fun, the entire duration of the time.
+
+that's just not true. it gets easier -- way easier, and because you're moving faster the number of opportunities to course correct is more frequent as well meaning you feel better faster too. it requires more effort/focus but it's not like it doesn't feel good to focus like that. I personally think it felt amazing to give up on bad ideas[^1]. for me, the only real difficult thing is giving up the belief that I'm right about my predicament. once I decided I wanted to feel good and that attracted all of it, it was pretty easy and got more and more fun and empowering all the time.
+
+I guess the thing I know to be true on this, is this: it's always going to be as hard as you think it needs to be. I convinced myself early on that I could accomplish anything I set my mind to. so for me it wasn't that hard. once I made the decision, it felt like putting together an easy jigsaw puzzle.
+
+[1]: in fact, swapping out perceptions that didn't feel good for ones that felt good gave me such a rush, I got totally addicted to it.
+
+#### (23:43) - getting rid of the past
+
+I hear what they're saying. they're saying that the things from your past (or future) that don't feel good which you keep active in your present attract more things that feel like that. I get that.
+
+however, I also see what the person is asking about with the question. I personally believe that those sorts of things *are* avoidance behaviour. I believe that there needs to be a solution. the solution to that is to find a way to perceive that past (or future) sitution in a way which doesn't feel bad.
+
+this, you may say, is a bit like manipulation. most people use this same technique to manipulate other people, sell products, or make things appear different than how they are for some personal gain. don't do it on other people's perception though!!! do it to yourself on your own perception. manipulate your pertception so that you finally believe that those things which feel bad, no longer feel bad -- and that you are actually living the crechendo of all of the past events that lead up to this moment. without the perfect variety of difficulties you would not be the person you are now.
+
+I'm fairly certain the reaason why they *don't* tell people to manipulate their own perception because people completely miss the point. just because someone says with words that something is fine when it still feels bad, or tries to smile while feeling discomfort around something doesn't mean they're perception is changed[^1]. most people think their words are more powerful than their emotions, and attempt to feel their words stronger than their emotions.
+
+[1]: this is what they mean when they say "you're using words or action to compensate for vibration"
+
+### 2021-05-24 16:40 - (2021-03-13 p1)
+
+#### (31:54) - being guided by your inner being away from your intended route
+
+when I heard this last night I was thinking about if this is what may be happening. I can't quite remember the circustances. I do remember I was star-watching and I lost consciousness. when I came back I didn't feel the same way at all.
+
+the context for the event was last night I got a call from zaryn and we had a really good conversation. like I felt really good during and afterward. when I went out to go watch stars, I had a terrible time calming my mind because there were so many reactions to the conversation. we talked about blarter and a bunch of other things. I was also thinking about another project that I mentioned to him too, meaningful-chaos -- which he said he didn't think it would work -- which is fine. I think it will work though; maybe not for everyone, but I think that it will work at least for me anyway. in the same context, I just watched another video by veritasium (@[youtube](https://www.youtube.com/watch?v=HeQX2HjkcNo)), where he mentions a set of enumeration of all of of the logcal transformations by whitehead. I was amazed by this because terence had mentioned whitehead so many times but I never actually knew who he was.
+
+anyway these sets of symbols were exactly the thing that I needed to create the pattern discovery code. I needed a way to represent all possible transformations of an image (or string of pixels) in a turing complete way, then run a genetic type algorithm to optimise the transformation until I have the pattern recogniaed. what I mean is, when the person is typing, every time they press a letter, I record the "random" state, so I will accumulate thousands of these states for each key. the only thing to do is to make a bunch of codes that resolve 95% of those states to the same output of that letter. the only way this could be done would be with a "fitness" algorithm and some sort of genetic type mixing where the resolution of these states approaches closer and closer to the desired output.
+
+it's a whole thing I have been thinking on for a while (since augusto's house when I first started thinking about conway's life as 2d sequence transformations over time). anyway, the idea of these logical transformations (cause these cards resolve to a unique number or hash -- so think of a global function registry) was really on my mind a lot, and I couldn't think of the original topic which was this idea that my inner being guiding me to the way other than my intended path.
+
+I decided I wasn't getting anywhere so I quieted my mind and started being successful at star watching when I lost consciousness. when I came back, I felt nothing of the previous topic anymore and I was back to thinking about my intended route. I just can't really see the whole thing about working on some projects. I mean I guess maybe I can but the thing is I really want to do the multi-bodied experience thing too. I tried to listen to more of this broadcast but decided to sleep instead.
+
+---
+
+when I woke up I was really thinking about the time-slicing thing I mentioned yesterday, because understanding that is the solution to understanding pain emotion and also consciousness. I really felt like I understood the way things work now. I totally want to dive right in there. more on that later, I'm sure. I have so much to say on it.
+
+what I'm trying to say is, that (the multi-bodied experience) is my intended destination, and it looks just fine. I don't need to do anything and that's precisely where I'll end up. it's literally effortless. nosebook is, of course against me getting connected, so they have to ensure that never happens. they're also against me doing any projects or anything either, but there's not much they can do. I'm not confined to this body. I can easily take on form without the utilisation of my body. jesus did it and I'm sure I can too. it seems so easy to me. I'm actually certain that I can do it already. what I'm in the process of doing is actually figuring out how to have more than one body -- and that's essentially what I revealed yesterday is that I'm fairly certain I know how now -- I just need to do it. I'm essentially waiting for nosebook to need to disable my body so I can try it.
+
+#### (36:33) - the subtle nuances
+
+yesterday I listened to this part exactly right after I wrote @[noseblog](2021-05-23 23:10).
+
+```
+eventually, the experience is happening so rapidly and has so many different perspectives, it'll begin to morph into a kind of dance or symphony. hard to describe that feeling. the faster I can find a way to alter my perception, the faster my freqency rises and more I can experience at once.
+
+look at it the other way: the more my vibration rises, the further I can see. it seems silly to be able to inspect someone's anomic structure because I can see so far. this is unbroadcastable. instead, it's better to continue to divide that into conceptual parts. I believe this is what source, the universe, galaxies, planets, people, cells, atoms, etc. do to produce a structure suitable for perception.  
+```
+
+it was kind of refreshing that they were explaining the subtle nuances like this. people simply cannot understand, probably because they're not as practised as I am, how real feeling is for me. it's very detailed and it's very -- real. I don't know how to explain, but it's exactly like jerry handing esther the wine and knowing that she's not going to have the same experience -- though it's the same environment and the same liquid.
+
+the thing is, it's not like I'm missing something at all. actually it's a lot more like a song or an orchestra. if you are only able to hear one instrument, one can easily appreciate that single person playing the instrument, however, it's so much more enjoyable to hear all the parts to the song at the same time -- not *just* the drums or *just* the synth lead.
+
+I also want to note that if you can imagine yourself as this time-slicing idea. you are time-slicing all of the cells in your body. you direct your attention to where there is more sensation -- so like while touching something, you're experiening a higher portion of the time slice of cells where the touch is happening. when your frequency rises, you have more bandwidth so you can experionce more at once. this is why touch, sight, hearing, etc is enhanced when your frequency rises.
+
+this is precisely what will happen to me. just like I'm not aware of the cells which are doing basic function, so do I not need to be away of the kennys doing basic function. instead my experience is a constant variety of different thing all interesting and happening at once.
+
+when thinking about hor pain works, when you have physical pain, your brain spends a lot of its time where the pain is. the pain keeps getting/stealing your attention away from other more important/enjoyable things. if it hurts too much, the pain consumes you, right? imagine a multi-bodied experience. if there is something that feels *too* good or *too* bad that it captivates you for extended periods of time, you will find yourself resonating with that part (body) more than with who you really are. pain/pleasure is the same in a multi-bodied experience, which is why source is so insistant on *NOT* perceiving the thing that feels bad from the same experience that you perceive it.
+
+I really like this example because it really shows off what it's like to have a broader perspective. these examples only cover a broader spatial perspective -- where you feel pain/pleasure and direct your attention to a different part of the body. however, the same is true from a temporal perpective as well. this is why all your power is in the now.
