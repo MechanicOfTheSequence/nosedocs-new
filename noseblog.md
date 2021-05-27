@@ -149,6 +149,30 @@ there are some more reactions now. I'll let them settle a bit.
 
 [1]: that is precisely what I'm going to be "rewriting" here in the this next phase, but that's not what I wanted to tslk about.
 
+### 2021-05-27 01:02 - oops, I'm supposed to be a hypocrite, lol
+
+I figured out what the reactions were about. they were about the second part. I was supposed to make women feel bad for making men feel bad when men don't do what they want. inotherwords, they want me to be a hypocrite. I'll try to play along here...
+
+ok, it's not working... I just want to say, this punishment crap is stupid. there's no way I'm going to try and make them feel bad for making us feel bad. what on earth do you imagine that will create more of, lol. seriously...
+
+it's just not necessary to try and make someone feel bad for something they did. ever. I'm done.
+
+---
+
+I'm beginning to get the hang of the way they try to manipulate me with their form of perception. they wanted me to present the idea through a different lens (see last night's thoughts for examples on that). then, when I wrote the above entry, I totally skipped over all the "important" stuff and just said I'm not responsible for how other people feel. the thing is, I'm becoming more and more source-like all the time, so there's less and less to fight against.
+
+in someone wants to try and make someone else feel bad, then go right ahead. this is what I was talking about with the part on the douchbag. even if I made a full effort to try and make people I reject feel inferior and bad around me, while approving of others, I'm just going to get more people needing me to be or do certain things, then disapproving of me when I don't/can't fill their requirements, just so they can feel ____.
+
+I'm reminded of the jersey shore show where there is so much needing of certain behaviour and status as a prerequisite for a feeling, it's such a complete mess. those guys must live in a constant state of dissatisfaction.
+
+---
+
+wait, last thing... people are wondering why I'm saying it's hypocritical behaviour... if I need you to not make me feel bad so that I can not feel bad... it's *still* needing someone to behave differently so I can feel a different way than I feel right now.
+
+just, it appears more jusified because I need you to do "the right thing"
+(so I can feel good)
+
+lol...
 
 ### 2021-05-25 ??:?? - balancing the 6 & 5
 ### 2021-05-25 ??:?? - hair and warmth + puberty
