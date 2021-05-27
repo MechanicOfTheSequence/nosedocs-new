@@ -174,5 +174,47 @@ just, it appears more jusified because I need you to do "the right thing"
 
 lol...
 
-### 2021-05-25 ??:?? - balancing the 6 & 5
+### 2021-05-27 13:28 - balancing the 6 & 5 (part one)
+
+I have been thinking about this one image I saw in the latest barcast here: @[youtube](https://youtu.be/BZJcbtLZvOc?t=9304)
+
+for me, it's all about "follow the mistakes" and I completely saw this one backwards. on the image there, he has 5 being the dark ages and 6 being the golden age with the mean of these being 23760 number. he then goes on to explain how this yogi "tera mata" (which sounds a lot like "earth mother" to me[^1]) calculates it to be aprox 23892.
+
+that all seems good to me, but the part with the elipses I remembered opposite. for me there was a small elipse on top of 5 and on bottom there was a bigger elipse of size 6. that was the first weird thing, so just know that for the rest of this entry I'm going to be working off of my version (which is incorrect). I'll email alan after this to get his opinion, because for me, I always follow the mistake as there is often something to be discovered there.
+
+I get why it shows the golden age being longer than the dark age -- and that's because it's the bigger ellipse. I also equate 6 with jupiter and 5 with saturn. ironically, there's this giant hexagon on saturn's north pole (but not the south). it's still weird though that I associate saturn with 5 though[^2]. again, for the rest of this entry I will ignore the hexagon on saturn's north pole and associate him with 5[^3].
+
+---
+
+to make this easier, I'll say that enki = 5 = time and anu = 6 = space. again, I'll use the definition of the ellipse in head which the larger ellipse is the one representative of space, while the skinnier ellipse is the faster moving part and represents time.
+
+to undrestand the way I arrive to this idea, let us visit a discussion I had with mom around the subject of physical therapy. I do not believe physical therapy is necessary. for me this is getting the body (space) to do something so that I can feel (time) a certain way.
+
+it is of my opinion that doing things with the body does do things to make me feel differently and can help, but the way that I feel is far more powerful and effective to make a change in my body. I see that both are good to have, but I believe this discussion is a sign of the polarity of these two ellipses swapping. in short we're beginning to processs the equinox at speeds faster than 24kya.
+
+during this period of moving faster, time has more effect on space than space has on time. the period of reign of jupiter is the one where the body has more effect on the way someone feels -- like doing breathing exercises and stuff vs now, we're entering into the shorter but faster moving period where time (feelings) has a stronger effect.
+
+this can be perceived as the rulership of anu (body) and the rulership of enki (time). to describe this, I'm going to jump into a bit of numbers, then I'll get back to more (spiritual) things.
+
+---
+
+anu is 6 and enki is 5. tiles the plane in the form of a hexagon. 5 does not tile the plane directly. a pentagon needs to be broken into bits (penrose tiles) for it to tile the plane. I hope I'm right on this, but those penrose tiles can be 2 types of four sided shapes (like @[youtube](https://youtu.be/48sCx-wBs34?t=526) or like @[youtube](https://youtu.be/48sCx-wBs34?t=836)).
+
+when tiling 6, you can use the hexagon, but that's really just 6 equilateral triangles of the infinite number of triangle in the plane carefully selected so that they seem to all point to a common point (its centre). also 4 triangles can be selected to tile a triangle 3 times its size. so 3 and 6 relate to 4 in the number of times that you tile the triangle. 6 is just a superficial selection of those triangles. it must exclude other triangles on the plane to make these hexagons. tiling 5 relates to 4 spatially, in that the two tiles have 4 sides. I don't know of all of the penrose tiles possible, but I suspect there may be another sets of 2 containing a concave shape. this is something I've been wanting to study ever since I saw that video, btw..
+
+anyway. my point is that when 3 tiles the plane, it can only be a subdivision of itself. so imagine the side length of the triangle being the planck length... from there you could make space work and all of space's subdivisions would be rational.
+
+however, now imagine if the planck length was the side length of one of those penrose tiles. I don't have a maths proof for this, but it seems to me that if you could subdivide the penrose tile into more penrose tiles, any irrational number's position could be located. however, I know that no matter how hard you small you go, you cannot accomlpish the position of an irrational number with rational numbers. because the penrose plane infititely tiles, and no distance between any two points is an exact subdivision (maning, the tiles never repeat), then *any* irrational number could be positioned, given enough subdivisions of the plane. inotherwords, you could dubdivide the plane for as long as you wanted mor accuracy.
+
+however because each of these subdivisions never perfectly contain its parent subdivision (cause they infinitely never repeat), then that means all subdivisions are relative to the parent division. in 5-space, everything is relative but irrational (sounds like emotions, hehe). in 6-space, everything is rational and perfectly subdivides the plane.
+
+in part two, I want talk about how this relates to perception -- eg. mind over matter vs matter over mind.
+
+[1]: crazy how ancient indo-europenan words sound so similar modern equivilants
+
+[2]: just like frank discovered that earth's gometry was based on 7, it may be kind of a funny coincidence if jupiter's planetary geometry was based on 5. it would be an even weirder coincidence if saturn's south pole was found to be based on 5 while the north on 6, and jupiter's south to be based on 6, while it's north on 5... I don't know enough here to comment further.
+
+[3]: an even crazier thing would be that jupiter (and so therefore venus as well) is based on 5, and is actually the planet which enki/ea is resonant with (making the planet we call the true saturn). that means all the records have been swapped and zeus is actually the planet saturn with all of the water ice in the rings. who knows...
+
+### 2021-05-27 ??:?? - jesus' mistake
 ### 2021-05-25 ??:?? - hair and warmth + puberty
