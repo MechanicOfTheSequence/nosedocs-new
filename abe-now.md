@@ -2687,3 +2687,97 @@ I guess I should be continue on with the plan. I think they're starting to get d
 #### (55:58) - things are always working out for me
 
 this reminds me a lot of @[noseblog](2021-05-22 23:46). like a lot. even the times where one feels negative emotion, it's helpful to know that I'm still in the best spot I can be to find what I'm wanting, and that LOA is always accurate.
+
+### 2021-05-28 02:36 - (2021-03-20 p1)
+
+#### (16:44) - don't get between them and their inner being
+
+so this is a weird section for me because I just wrote @[noseblog](2021-05-28 02:14), which almost certainly will have a few doubters there to try and bring me back to earth a bit.
+
+I don't really mind that there are doubters. in fact, I have learned to lean into their doubt. I actually encourage it. I really want a whole bunch of big doubters. please, try and fight as hard as you can aginst it with your objective reationality -- know what I mean?
+
+---
+
+even the weirdest thing was in the last section about the woman winning the super horse breeding challenge. this one had a similar vibe to it too, because yesterday, I was inspired to write down a subject for a future topic which I labeled, "jesus' mistake". I didn't really think about it at the time how people may interpret the "mistake" part. I'm sure some people think I'm going to be critical of him or something. it probably didn't notice that the foundation upon which I wrote the next entry was "follow the mistakes" -- a technique that I learned from SGD on the great pyramid's mistakes -- then, after reading so much of shakespeare now, I man say that the theme of the new era is proabably going to be something like jazz music -- just lean into the mistakes[^1] because there is gem waiting if you don't fight it.
+
+what I'm saying is I don't think jesus made a mistake. I believe it was a terrific "mistake" to bring about the things that are going to be happening soon -- meaning, it was a part of the getting ready to be ready part. (I'll come back to this)
+
+[1]: another example of this was the last abe-now, they ended the last one saying that even if there is negative emotion, things are still *always* working out for you (@[abe-now](2021-03-13 p2 55:58)). this caused me to write @[noseblog](2021-05-25 10:06) and then @[noseblog](2021-05-26 23:42) as a result.
+
+#### (8:16) - grand manifestaion
+
+> we want to to never underestimate or undervalue the importance of what came before this moment in time. this was a grand manifestation
+
+> this didn't just *happen*. it was something that had been intended and savoured all along
+
+anyway, this relates to the previous section because the things that lead up the culmination of the manifestation make it essentially impossible to "get in the way of someone's inner being."
+
+#### (09:51) - the culmination
+
+> but it is your love for these beasts; it is your love of that experience. it is your love of these little baby horses coming to co-create with you.
+
+I dunno, maybe I'm reading into things quite a bit here, but from my perspective, the way that my experience feels, does not at all feel like some random event. not at all. there is so much "manipulation" of circumstances that this feels to me ... well, I'll just throw this idea out there.
+
+so you guys know me now pretty well. I just do my thing. I love optimisation and extremes personally, so imagine that this is actually the culmination not of one self-sabotage, but hundreds or even maybe thousands. I say that because, I mean just imagine what tesla would have been like as a person. imagine he finds a guy like me that is willing to just jump right into just about everything knowing that it turns out OK eventually.
+
+like, imagine that you could take LOA and push it to its limits. imagine that each timeline edit builds upon the last, so with incremental changes you can do the impossible. it would be impossible for someone someone to accelerate into life experience like I have if they weren't able to capitalise on "mistakes" -- and transform that energy from the "mistake" into something wanted. if more difficulty creates more wanted, what you would need is a real disaster to create something more wanted.
+
+at this point, I don't really have any doubt telling me something isn't possible anymore. let's just find out what happens, ok? I don't think I can predict the future, but I do know that it will be pretty far out and it'll be better than I can imagine it to be; it always is.
+
+#### (26:35) - vibrationally accurate
+
+they say it's vibrationally accurate. I can certainly go along with that, but it's so difficult to believe those statements. I'll just take this one:
+
+> everything in the past has been utter perfection and I would not change a thing about it
+
+I say something similar, but it's taken a bit to actually believe that the moment which I am living is the perfect culmination of all the past which brought me to it.
+
+I however, would not say that my past is utter perfection. that (for me at least) is impossible for me to believe. there's nothing perfect about my past at all. it's a long list of screwups which I've somehow managed to find a way to feel good good about and see the perfection of bringing me to this moment now.
+
+is now perfect? I don't think I believe that either. if now were perfect, I'm not in the physical. the physical plane allows everything to have an element of imperfection, which creates a constant stream of desire for improvements. the idea that nothing is perfect is the perfection of this mement (I think).
+
+I dunno, personally I just find it so difficult to believe in perfection, and especially as an absolute. it's just so much easier to find a way to feel good about the past than it is to find a way to coax myself into beleiving that it was perfect.
+
+> all is truly and absolutely well
+
+again, I find this impossible to believe. there's no way that *all* is well. the fact that it *isn't* is the beauty of the physical realm. I find it so much easier to believe that "everything is working out for me" -- in fact, I didn't truly believe that until I had the revelation I said in @[noseblog](2021-05-25 10:06) where I could see time as a series of curves where even the control poings are tweaked waaaay out of shape, I still end up exactly where I believe I will -- and since belief is a reflection of how I feel (or perceive to be reality), not what I say or affirm, then it doesn't matter how bizarre reality gets, I'm hard manifesting the best possible reality of what I can let in.
+
+I consider myself to be pretty conservative with my belief, so I don't at all find it weird that it took me this long to actually believe that everything is always working out for me -- even the negative emotion. they always are. it's only when I believe that they are (instead of waiting for the shoe to drop or whatever) that they are.
+
+I try to stick to things that I *can* believe instead of trying to find a way to believe things. there are so many things that are true but I still find difficult to believe. I also believe a lot of "bad" stuff too -- stuff that would make other people feel bad to believe -- and then find a way to feel good about that stuff. the good feeling stuff is easy to come around to. it's sorta like, "oh darn, you mean I have to find a way to believe that things are going to be way better than I expected? dang, ok."
+
+I guess what I'm saying is instead of trying to believe the impossible, I find a way to feel good about all the stuff with a lot of evidence[^1]. I need evidence to believe it. I'm open to there being evidence either way so I don't try to block any evidence. I know that some evidence feels good and some evidence feels bad, so if I can feel good about anything with evidence (meaning, it *was* attracted), then the easy stuff is effortless :)
+
+[1]: it's true that some people believe that finding a way to feel good about all of the bad stuff is the impossible bit. I disagree. if I can see it, I can believe it (like a child). also, if I can feel it, I can believe it. so what do I believe: what I see or what I feel? I choose to believe what I feel, cause I have control over that. words don't make pictures for me -- so I only see what's manifested (cause I don't have an imagination), and what's manifested is just evirence that LOA is accurate. so, that only leaves how I feel (emotionally and the reaction to what I'm observing). so, for me it only comes down to how I feel. I consider my lack of imagination to be my greatest gift. I wouldn't have it any other way. I actually prefer an evidence-based reality I can feel good about, to an imaginary reality I feel good about.
+
+#### (33:02) - regret over not knowing
+
+> try not to feel regret over what you didn't know before you knew it
+
+I often times blurt out the answer to something as if I always knew it. I didn't always know it. just, that's how I perfer to pereceive these things as very "now". if I constantly bring up the past when I didn't know it, I tune to the version of me which doesn't know it, and I diminish myself.
+
+for example, on this question, it seems pretty evident to me (now) that abandonment issues is just a therapist-speak for, yet again needing others to behave diffrently so that I can feel ____.
+
+obviously I didn't always know that so clearly, but I speak from my now perspective. when I discovered it, it felt like remembering something I had forgotten. the beauty of "not knowing" these "laws of the universe" is you do know them -- just you can't remember them. too much of life has happened which distracted you so you forgot. that's all. there's nothing going wrong.
+
+it's just about the same as forgetting someone's name... just because I can't remember their name right now doesn't mean I don't *know* them. it only means I can't put words to that knowing right now. when I remember their name, then in that moment I know their name. the more I practise their name the more likelihood I have to remember it the next time I want to put words to that name.
+
+no one ever says, "hi [name] it's good to see you. I know I just learned your name a few months ago, so bear with me I'm still learning it."
+neither do you say, "wow you say my name like you've always knew my name, yet I only told it to you a few months ago".
+neither do you regret not having known someone's name before meeting them.
+
+#### (38:22) - source becomes the expanded version
+
+this is another case of them saying things in a way which doesn't make intuitive sense to me. it's one of those things where I had to think about a bit to understand.
+
+if you have an AC waveform, then you have going towards wanted and also going away from wanted. wars, violence, and racism are just the going toward unwanted part of the waveform. the wanted aspect also exists, just it's not perveived.
+
+so, let's say your observation of something amplifies the thing that you perceive. if you perceive the downward part of the waveform (going away from wanted), it also amplifes the opposite side too (going towards wanted) at the same time.
+
+imagine throwing a ball up in the air and consider that going toward you is wanted and going away from you is unwanted. the wars are the upward motion, and the downward motion is the renaissance (or whatever). if you throw the ball 10ft into the air, it's 10ft of wars and 10ft of renaissance. both ends of the stick cannot be perceived at the same time, so you choose what part to perceive based on the way you feel (if it feels like going toward wanted or away from wanted). imagine you choose to perceive the unwanted: the wars and LOA does its work and makes it 20ft of war instead of 10ft of wars.
+
+by now, you may think man I don't want anymore war, so you start to find a way to perceive the war ending, etc, so now you're perceiving the part of the ball where it's reached peak war and is beginning to return back to wanted. if that happens 10ft up, then it's 10ft of wanted until you decide to go back to perceiving the unwanted aspect again (by tuning yourself to unwanted by perceiving more unwanted things). if you make the switch to wanted when it's 100ft up (after lots of unwanted), then it's 100ft of wanted on the return.
+
+LOA amplifies the things you perceive/observe. every wave contains both wanted and unwanted and you get to choose what part of the wave you're observing[^1]. you could also think of this like a person on a swing that takes years to make a swing. if you go to push them when they're coming toward you, you're working against yourself. this is the war part. if you push them when they're going away from you, it doesn't do much to add much more energy. however, if you gently push them when their direction is just beginning to reverse and go away, this is when an idea is new and fresh and just starting to get some movement in the direction of wanted. that "soft desire" with little resistance. you don't need a gentle nudge. all you have to do is to keep the idea feeling fresh so it appears to always be in the fresh new idea just starting to get some movement and tap only when it's there.
+
+[1]: I watched a video describing resonance today: @[youtube](https://www.youtube.com/watch?v=dihQuwrf9yQ). in it, he taps on the end of the tube when the sound wave reaches the other side. the tap is like your moment of observation. it's the part of the waveform you're amplifying. obviously if you tap when the sound wave is not a multiple of the wavelength, then it dosn't create a standing wave. watch the video.
