@@ -216,5 +216,18 @@ in part two, I want talk about how this relates to perception -- eg. mind over m
 
 [3]: an even crazier thing would be that jupiter (and so therefore venus as well) is based on 5, and is actually the planet which enki/ea is resonant with (making the planet we call the true saturn). that means all the records have been swapped and zeus is actually the planet saturn with all of the water ice in the rings. who knows...
 
+
+### 2021-05-28 02:14 - my most audacious idea yet
+
+I just got done watching the last episode of SNL for this season. one of the skits stayed with me though:
+
+@[youtube](https://www.youtube.com/watch?v=qdAEDif21l0)
+
+in the skit, they're making fun of "God's" design of man. it's pretty terrible, no doubt. I was thinking about this and I don't see any reason why this couldn't be improved upon. I started to think about some improvements. this falls right into line with a topic I was thinking of writing called "hair and warmth + puberty". however, besides the obvious improvements, there could be more even past that. it then hit me: if I have power over my appearance, that means the DNA must match the appearance (obviously, if the cells are going to reproduce, right?) then that means that any male offspring will retain the y-chromosome of that version of me.
+
+I figure that the appearance of me will largely reflect the way the woman I am bound to perceives me (as a reflection of herself) -- however, that doesn't mean that some large desirable improvements to the human man model can't be included. after all, it would be best to give them a an in-depth field analysis and make sure QA signs off on them too.
+
+so I suppose this may sound a little crazy, but let's find out what's possible first :) the worst that can happen would be no major improvements? surely at least a few tiny ones will be accompliashed at the very least.
+
 ### 2021-05-27 ??:?? - jesus' mistake
 ### 2021-05-25 ??:?? - hair and warmth + puberty
