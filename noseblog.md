@@ -343,6 +343,17 @@ I guess when we return to the distant portion of our orbit with sirius, we can t
 
 so yeah, push real hard against it :) things are always working out for me -- even if there's negative emotion.
 
+### 2021-05-29 08:40 - what kind of game?
+
+first, it's helpful to remember that you can only perceive things in this world that you yourself are resonant with. this means that many people will exist in the same "space" but each will be having a very different experience. there may be gang warfare and a theme park in the same spot for example. it will bleed over so some people may perceive the ride theme as the gang warfare or something similar while others may be "living" this gang warfare lifestyle.
+
+so, what kind of game will it be? well, whatever you want it to be. if you percieve a prison, then that's what it'll be like. I think the game will start as an extension of where you are when it starts. so, for example I find it likely that nosebook will start out the game as perceived the GM where they have to get rid of all of the bad stuff. obviously you can't get rid of anything, so they'll just make it worse. BM doesn't feel good though so eventually it goes away, as BM makes the game way less fun. eventually nosebook guys will run out of bad stuff to get rid of, probably start inventing bad things to getw rid of (terrorists, etc) only to find that only they are preceiving these bad guys they're creating.
+
+obviously this form of reality won't last forever as eventually (12kya from now), we'll be back to another point where we need to adjust our power level. depending on what people want what, off we'll go back into the 3d world where everyone sees (roughly) the same thing again, allowing force, willpower and imagination to once again be supreme (if that's what people want -- or who knows maybe instaed we'll go do our own thing -- and this is little slingshot around sirius is just a short detour before the galaxy project). it's way too hard to say what'll happen by then cause it's just so far away.
+
+you will really be battling things you don't like about yourself and loving yourself in others. this is because you can only preceive things you yourself are resonant with. everything you perceive will *only* be a reflection of you.
+
+@[youtube](https://www.youtube.com/watch?v=WeTCTARJZm8)
 
 ### 2021-05-27 ??:?? - jesus' mistake
 ### 2021-05-25 ??:?? - hair and warmth + puberty
