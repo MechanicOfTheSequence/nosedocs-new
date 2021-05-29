@@ -355,5 +355,23 @@ you will really be battling things you don't like about yourself and loving your
 
 @[youtube](https://www.youtube.com/watch?v=WeTCTARJZm8)
 
+### 2021-05-29 13:28 - still find a way to feel good
+
+imagine for a moment that mr. motor (or someone like him) is modifying things so that these things don't feel good to me anymore. it doesn't really matter. negative emotion just means you're perceiving whatever it is in a different way than your source does.
+
+so, like they said in @[abe-now](2021-03-13 p2 55:58), even with some negative emotion, things are always working out for me/you/us.
+
+what I'm saying is, even if I were to just follow mr. motor (or whomever it is), emotional guidance for me, it's still working out *if I find a way to feel good anyway*. if I decide to feel bad along with him, then I'm right there with him. if I decide to feel good anyway, no matter what I'm still going toward wanted even if the circumstances don't appear so in the moment.
+
+---
+
+let's put that in practical circumstances. imagine for a moment that your mom forbids you from playing outside (for whatever reason) and you wanted to play outside. instead of feeling bad about it, just find a way to feel good anyway. maybe take some time to do something you've always wanted to do indoors or whatever.
+
+what I mean is, if you feel good, you're still going toward wanted, even if in the present moment you're "grounded". I don't imagine instant reasults. I can tell you from my experience growing up that it takes a few times before they realise that they can't "punish" me. if no matter what things keep working out, they finally give up. how many times does it take before they give up? I guess it depends on them, but I found that trying to fight it doesn't really make it go any faster.
+
+---
+
+so, even in the "worst-case" scenario if I just blindly don't do anything that feels bad to me anymore, then we'll be heading right toward exactly what mr. motor is giving his attention to. a complete disaster, I'm sure :)
+
 ### 2021-05-27 ??:?? - jesus' mistake
 ### 2021-05-25 ??:?? - hair and warmth + puberty
