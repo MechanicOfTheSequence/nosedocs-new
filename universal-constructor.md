@@ -42,6 +42,6 @@ ok, after relistening, I didn't hear what he said... he (actually) said that spa
 
 now picture the two octave notes at the same time. we can divide the full-wave of the first note from the standard 4 quadrants now into 8 parts. we see in the first part, because we add the two notes together and the second one is double the frequency, the rate at which it climbs (its trajectory) is 3 (not sure about this...) times faster than just the first note. it appears to be accelerating more rapidly towards its limit.
 
-sorry, I don't know how to say this is physics language :(
+I don't know how to say this in physics language :(
 
----
+### replicate knowledge or conceive something new?
