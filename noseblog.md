@@ -292,5 +292,57 @@ I just want to say that everything is coming along very well... I'm going to end
 
 [2]: it doesn't feel good, and I don't want to do it. there's also this weird connection to tomorrow too. I just don't want any part of it. I am absolutely committed to finding a way to "get connected" more than any physical aspect. going the physical route is the 3/6 path and that's not what I'm about. that was, IMO, "jesus' mistake" and what I was feeling in @[abe-now](2021-03-20 p1 8:16) where I later explained that I believe we likely used automatons of ourself to manipulate the timeline proceeding up to this so that the culmination (@[abe-now](2021-03-20 p1 09:51)) would be enough to create the thing I'm about to describe.
 
+
+### 2021-05-29 06:20 - sex and the imagination
+
+yesterday I made a comment saying that I have noticed that I've noticed that a lot of darker skinned people that were successful were ones that had increased visual capacities. I would say the same is true with white people as well. I honestly don't know much about asian people, as I just haven't been around enough (basically none) to really get into their heads.
+
+I put the imagination in the regenative region (reproductive area) as the way I have felt it, as there seems to be a magnifying transmitter in the uterus/prostate, while the penis/clitoris seems to be the receiver/antenna.
+
+imagination is very important in today's society and is directly related to sales and sex appeal. these are two things I have historically been good at without any effort. I make no effort to sell things yet for some reason people seem to want what I'm interested in. I also don't make any effort to have any sex appeal either, yet for some reason that happens too.
+
+there are ways to boost one's sales and marketing power using sex -- it makes you more magnetic, and therefore more of the emotional energy flows (chi, vrill, orgone, etc) -- but this is not anything that I do. in fact just the opposite. I shy away from that stuff as it makes me go really fast in a way that feels uncontrollable. I prefer slow and safe to fast and emotionally out of control.
+
+as a result, I have shut down my emotions in the past, trying to get rid of them. I later found that understanding and working with my emotions was the key. I also have not had an imagination and have wanted to reactivate it many times. sex and drugs were two very successful ways for me to do that. probably not just any sex though as I think you have to find ways to want to go to new heights. that is rather difficult and requires a partner that wants to do the same (I think). as such, I found that the easiest way for me was with drugs. ayahuasca specifically was the most effective. sounds like nosebook can destroy psilocybin pretty easily as I haven't had much success there, but that's not the point of this.
+
+there's an interesting thing that I've noticed and that's that there are not as many white shamen. this seems to be more of an indigenous thing. the reason why I think thst this is, is psychodelics seem to push the imagination to its limits. when the imagination is pushed to the limits, ones emotions start to become manifested in a very real way and can be a sort of paranoia. set and setting sure, but you cannot always control those conditions.
+
+what I think is happening on a global scale is that DMT output of people's heads is increasing because energy levels are increasing. this means that while nosebook seems to be able to block the visual (manifestation) part of these indogenous psychedrelics, everyone is beginning to live a much more psychedelic experience. this, I think is causing what seems to be a sort of mass paranoia.
+
+---
+
+on this note, you have to wonder about LOA in this regard... if energy levels are rising, and this means that people are beginning to perceive this as a sort of paranoia, is that paranoia (ever taken lots of drugs and felt like you were dieing?) attracting a certain future? this is where I'm thinking about now.
+
+I saw a series of videos on chemistry that was talking about how diodes (which are just P or N doped silicon) creating a boundary layer where electrons entering into it would, when reacing the barrier go into a higher energy state, then when they left the diode would drop down to a lower energy state and in the process, would emit light[^1].
+
+in one of the visualisations, I could see that when the electron goes up to a higher energy state, it flips over and it rotates the opposite direction. ok, so imagine that this planet is having a forced spin direction change because of our orbit with sirius. what this basically means is, find a way to go up to a higher energy state (flip over) or reverse spin direction, which would cause massive cataclysms if the earth's rotation suddenly sped up and then reversed directions.
+
+so look at it this way: energy levels are increasing which are causing some people's imagination to produce paranoia, while others are going to do fine in the higher energy state. both will experience rotatation the opposite direction, however the ones that go up to the higher energy state do not experience a cataclysm, while the ones that remain in the same energy state will find their paranoia becoming a reality.
+
+---
+
+just prior to this I had watched some videos on quartz (Si02) vibrating at a constant rate. there is a lot of sand (SiO2) on this planet, and I think this is related as an increase in pressure on the quartz seems to act in the same way that a diode does, making that charge imbalance. the same day (I think), I was watching doug's video on the sequence of events @[youtube](https://www.youtube.com/watch?v=rwU09SrZ3OQ) where he showed that diagram of a clock signal, and every time it reverses polarity, it emits something into 3d space. that is the same action that the diode has (but half as fast -- so like a flipflop). every time it drops down out out of high energy state it releases a bunch of light.
+
+I couldn't help but to notice the similarities between this and a solar panel diode... when it receives light the silicon atoms in that barrier when they get filled up with electrons and allow electons to flow. imagine a bunch of quartz under stress, wouldn't that have the same effect as a PN junction in a diode? receiving a lot of light from the sun is charging earth's quartz diodes. when the polarity changes (rotation reverses), then a lot of light will be emitted in the process (the ascension?). everyone is going to get their mind blown in the process, I think.
+
+---
+
+back to the imagination: it seems that it's is directly related to sex and success. I'm not really about that. since Iive found a way to outperform everyone else energetically *without* an imagination, I get to be the one who retwrites the system. I imagine that the imagination is good, but I'm not interested in it. what I want is a reality that is just as beautiful as the one the imagination can perceive, but it blends the components of instant conceptualisation with the aspects of the imagination. so basically, I'm taking about a game -- like a worldwide game environment where you make your own rules. anyone can play the game any way that they want to. there is no death. you cannot die. you just respawn. I guess it's kinda like a giant minecraft where you play the game with your mind. you construct and interact with 3d objects mentally.
+
+I don't know of all of the settings that would be possible, but you could imagine that some people's games will be more popular than other people's games. I don't see it all quite yet but I think that all forms of this game will yield instant results. you can be as powerful as you feel yourself to be and be the person that you want to appear like (as a reflection of how you feel). like a high powered psychedelic, all forms of appearance will reflect your emotional state.
+
+it basically combines both extremes. essentially, what I'm saying is that I think it's going to sort of be like one of those dreams where you want to hurt someone but no matter how hard you try, they don't take any damage -- or you want to kill yourself, and every thing that you try to do to get out of the dream, you remain inside of it (sound familiar nosebook?). the only thing that can be done will be to wake up -- however, if you can't wake up, then what?
+
+coming soon (to a theatre inside of you)... for most of us, this is going to find it to be a pretty fun experience. obviously a lot of improvements can be made to the human man model in the process.
+
+---
+
+wait wat??? I was just reminmded of illidan stormrage where his brother locks him in prison for *ten thousand years* -- lol. weird coincidence I guess. I thought it'd be more like 12 thousand years but close enough. round numbers are more dramatic.
+
+I guess when we return to the distant portion of our orbit with sirius, we can then go back to matter over mind (willpower/imagination) form of perception again. I don't mind.
+
+so yeah, push real hard against it :) things are always working out for me -- even if there's negative emotion.
+
+
 ### 2021-05-27 ??:?? - jesus' mistake
 ### 2021-05-25 ??:?? - hair and warmth + puberty
