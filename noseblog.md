@@ -229,5 +229,68 @@ I figure that the appearance of me will largely reflect the way the woman I am b
 
 so I suppose this may sound a little crazy, but let's find out what's possible first :) the worst that can happen would be no major improvements? surely at least a few tiny ones will be accompliashed at the very least.
 
+
+### 2021-05-28 22:09 - balancing the 6 & 5 (part one)
+
+I can't remmebre where I said it -- and I think it was a random monologue, actually -- but, in it I was explaining that because there is no way they will ever let me do any creating with ordinary techniques like computer or whatever anymore that all of the things that I'm talking about regarding sales, product, and these sorts of things -- I'm not referring to any specific product or thing I will create in the future -- rather instead, I am referring to myself. this ideal "product" that I'm looking for is not some thing, but it is me.
+
+I suppose you could say, "be the change you're looking to create" or "you teach through the clarity of your example" -- but more than just that I consider myself to be a "product" (or culmination) of a long series of events into something wanted.
+
+I have talked about how I will eventually "become" the reality platform through which humans perceive, and I would like to talk a bit more about this. the easy way to perceive this is that I believe that in one part the elliptical orbit that we have with sirius, one half of the orbit is size 5 (we're moving faster and closer to sirius), and the other half of the orbit we're in size 6 where we're moving slower and further away from sirius. I haven't quite worked out which one is which neither emailed alan yet on it either, so just go with the base concept. there could be a duality to it as well, depending if you're looking from a mind over matter or matter over mind perspective. neither is worse and both have their advantages (as I will explain here)
+
+---
+
+it's quite fortuitous that I got to talk with melissa today. the reason is because I got to explain some things thsat were beneficial to me about how I perceive all reality as series of emotional interacttions between people -- extremely basic form of perception. I fell asleep afterwards and when I woke up I felt quite bad about a lot of things which I had talked about with melissa. obviously that's time for me to find a way to feel better about it. no problem. it's easy.
+
+anyway, as I was thinking about that, I noticed that these different interactions between me and my world is very limited in that it's just me and right now only a handful of other people that I interact with. most of my interactions now are not physical and come to me in the form of reactions to things I've said or videos I've seen.
+
+I mentioned to her what it's like to create in this new form of perception. I just feel it and it "manifests" very rapidly. I can't create objects in 3d space yet, but I have a lot of power over my interaction with others. I gave the example of let's say I want to say something funny to jaron. I just feel what it feels like to say something funny to jaron and the words just pop into my head. even I don't usually know what I"m going to say until it comes out of my mouth. when someone has a question, I feel the answer begin to form inside of me and then I jsut listen to myself tell you the answer. it's all completely effortless for me.
+
+I gave further examples, but specifically on the subject of feeling what it's like to say something funny and then just opening my mouth when I could feel it, has been blocked by nosebook multiple times -- probably because it makes me feel good. what I mean is, after sleeping, I've tried to use the same feeling and I couldn't feel it. it's something like when I can feel a girl very strongly, then after sleeping, she's gone. I can't feel her until we find a new thing to feel in common about.
+
+well, the same thing here. numerous times I've had the feeling of my humour blocked, but then found new ways to find a way to feel funny. it's quite easily actually. it seems to me like there are infinite ways to feel good about something. I don't need to find a stronger way to feel funny -- instaed, I just find a different way.
+
+so here's the thing: I am one person interacting with jaron. I make jokes with mom but they fall flat often times. I wake jokes with greg too but they too often fall flat. it's not their fault, because I've lost so much resistance, I can now only really be something that someone expects me to be (eg. something they attract from me).
+
+obviously the amount of interactions that are possible are very limited with such a small set of people. so imagine now that there are 100 of me interacting with thousands of others. this now has a tremendous benefit in that nosebook has to ensure that none of the other me's are able to just feel a certain way and let it manifest (to feel good). that means they have to block that feeling, meaning that again I need to find a new way to feel the way I want to feel.
+
+this diversity is great, but ther's a super limiting factor here which is that it's just me. for this to really get out of hand quickly I have to find a way to mass-export this capability to other people. once people can find a way to feel the way they want those things will just manifest. nosebook then has the task of blocking that wanted feeling, meaning that those people, like me, will have to find a new way to feel the way that they want to.
+
+this is going to blow diversity up really fast.
+
+---
+
+I was watching robert's latest video: @[youtube](https://www.youtube.com/watch?v=VpuuRsa3O8o), and I was noticing something very diffrent when perceiving the latin-american people that were in the video as the guy was walking through the cities.
+
+one of the most notable differences that I perveived is that white people seem to have much stronger imagination capabilities in comparison to indigenoous peoples. I also have also tried to pay attention to different black people that have become successful -- and what seems to set them apart is their visulisation capabilities. they seen to have more capability to imagine things and convey those stories/ideas in a captivating way.
+
+when I think of latin culture, they are very interaction based. their minds are rather simple (like mine) in that it seems they don't perceive the details of the thing nearly as much as the interaction. I have to consider this idea from the perspctive of an ancient. for example, if I had to create art and things depicting various ideas that I have, how would I do that given the limited resources of stone, pigments, cloth, foodstuffs, etc. it would be very difficult. I could try and represent the idea in the form of symbols, but then there is a whole concept that is passed along with the symbols. if this is corrupted or lost, then the symbols appear random and meaningless.
+
+as an example, bill cooper was talking in that video about this white dude (viracocha, quetzalcoatl) that came over to the americas and he brought this trinity symbolism. you have to understand that I've grown up in the church all my life so this isn't new to me. however, I always got caught up in the details of the symbolism of the father, son, and holy spirit.
+
+as bill was reading manly p hall's book and I was in the latin-american frame of mind, this trinity finally made sense to me. this is what I have explained the whole time but from an acient perspective. you have who you really are -- your identity, your inner being or *your* source. this is the father. then that father extends itself into reality and gives birth to a son which is an extension of the father's identity. the holy spirit is source, the great cloud of witnsesses, consciousness, spirit ancestors, etc -- all the dead guys who have made their transition and are constantly attracting us toward further expansion of wanted. you are the son. you are trying to return back to the father. it doesn't matter how lavascious your lifestyle was, the father is always glad when you return to your source perspective.
+
+obviously I use different words now to say the same thing and I take a much more programatic approach to the whole thing (using words like source, emotional/conceptual programs, etc.) it may alienate some people but programming was a very key part in understanding my emotions. there is a symbolic logic to their expression and they can be interpretted and represented as such.
+
+---
+
+ok, going back to the imagination: I was explaining to melissa that the advantage of the imagination is that you can perceive unwanted in it, allowing for graeter amounts of contrast, but you can seriously derail your initial inspiration after just a few iterations in the imagination. my method is much easier.
+
+to understand this, one part of the oribit we have with sirius, the 2/5 part is in power. this is enki, viracocha, serpent, symbolism[^1], where as the other is 3/6 side of imagination and willpower. the world of the serpent is much mor basic and does not provide for as many details, as it's all based around relationships between concepts. in that world, details don't matter. you can describe it as a very high intensity psychedeic experience. at its higher levels, it becomes so abstract it starts to get difficult to describe it in a physical way.
+
+I find it ironic that 3/6 is master of air (emotions) when imagination/willpower is very physical stuff, while the 2/5 is master of earth yet this domain is so abstract, it's difficult to describe it physically you can only really experience it -- images cannot convey even the slightst fraction of the experience. clearly both are missing their opposite parts they must find their opposite and come together coming togther for completion (rather than fighting it or tryign to get rid of it).
+
+---
+
+I know this is getting long, and there feels like there is pressure to write the girls down (typical thing where you have to do something on a date or number to make something feel special). however, this is not what I'm concerned with[^2]. I am very interested in looking at how the aspects of this new form of perception I'm looking to culminate into this new form of perception.
+
+I'm not looking to go an only 2/5 route. like I said, there are significant disadvantages to not having an imagination, so I want to find a way to integrate both 2/5 and 3/6 aspects into this next form of perception. my goal is to combine both, as I feel like the (I'm going to be very racist here) the white mean could use a little 2/5 and the dark meat could use a little 3/6. as a method to get there, I think that we're going to push the 2/5 effect to the limit. the 3/6 guys that can hang on and the 2/5 that can keep finding new ways to feel the way that they want to will ultimately be the ones that remain. 1/7 will largely be controlled by nosebook, while we live in a very beautiful reality that contains asspects of both imagination and abstramt ideas. I know what I want to create :)
+
+I just want to say that everything is coming along very well... I'm going to end it here. I'll pick up the discussion further soon.
+
+[1]: btw, I find it funny that poseidon was said to have 5 sets of twins. I have started to notice the 2/5 symbolism show up in various places. I've also noticed it connected to the 20 and 4 (2*2,2+2) symbols as well. seems to include the 2 (and powers of it) and the 5 symbols. the opposite side (imagination/willpower) symbolism seems to shows up in sets of threes and it's powers/multiples: 3, 6, 9. neither is better. they are to be combined in the earth to achive their completion (probably the morst example is the 3-4-5 triangle. 3 and 5 sides meeting in the middle 4 (earth)).
+
+[2]: it doesn't feel good, and I don't want to do it. there's also this weird connection to tomorrow too. I just don't want any part of it. I am absolutely committed to finding a way to "get connected" more than any physical aspect. going the physical route is the 3/6 path and that's not what I'm about. that was, IMO, "jesus' mistake" and what I was feeling in @[abe-now](2021-03-20 p1 8:16) where I later explained that I believe we likely used automatons of ourself to manipulate the timeline proceeding up to this so that the culmination (@[abe-now](2021-03-20 p1 09:51)) would be enough to create the thing I'm about to describe.
+
 ### 2021-05-27 ??:?? - jesus' mistake
 ### 2021-05-25 ??:?? - hair and warmth + puberty
