@@ -373,5 +373,58 @@ what I mean is, if you feel good, you're still going toward wanted, even if in t
 
 so, even in the "worst-case" scenario if I just blindly don't do anything that feels bad to me anymore, then we'll be heading right toward exactly what mr. motor is giving his attention to. a complete disaster, I'm sure :)
 
+
+### 2021-05-30 23:40 - thoughts about 3d
+
+there is effort to get me to write down the girls, but again I feel tremendous resistance to it. it just doesn't feel good to me at all. I am considering a compromise of just enumerating them and offering nothing more than a vague description or a name. however, I really don't like that idae either cause that's actually my favourite part. I enjoy kind of reliving the moment I saw them for the first time briefly. so, I don't really know what to do. best I can come up with is nosebook doesn'h like the heat generated in my environment that happens when I wrrite them. intedestingly I just watched some videos on thermocouples and it feels like my mind is beginning to see the relationship between lattice structure (like a diode) and thermal transfer through that lattice. I haven't figured out how heat/warmth is related to conductivity yet, but it's clearly the thermalelectromagnetic spectrum. also electron movement from one lattice to another being represented as a wave going through a lens makes much more sense to me than the peltier effect. I don't have it all working together in my mind yet so, instead of doing that I want to talk about 3d.
+
+@[youtube](https://www.youtube.com/watch?v=fNzuzssl4eU)
+
+I just watched this video and steve is talking about how 3d sucks. he explains it sucks because you perceive things which appear nearer to you, however they are not. instead, they're on a screen. this is the story of my life. when I discovered 4d, I discovered that there is an extra amount of information that's transferred. my eyes received the colour data, but additionally, they received an extra invisible "geometry" that told me where all of everything is. for the first time I was seeing things as if I were actually inside of my head, and not just seeing the screen in my eyes. I call this 4d because there's an extra dimension: the distance between me and what I'm looking at. steve shows thst your eyes work this out automatically any cause your eyes to focus, going cross-eyed as something approaches you.
+
+I don't really know how that works but for me there's much more data than just the distance that's perceived. for me, the entire geometry of my entire environment is transmitted into my eyes (I believe this is an effect that my "aura" has when interacting with mass in 3d space). this 3d geometry does not have colour data but is like a 3d structure upon which the colour is painted. it also seems to me to be intimately connected to mass and space/time.
+
+I find it ironic(?) that the previous video I was watcting he was explaining the distortion of space/time to his wife lianne.
+
+@[youtube](https://www.youtube.com/watch?v=Vkfobw_PSSE)
+
+very good explanation and really got me thinking. however, at the end, his daughter wakes up from her nap and joins them in the conversation. watch here @[youtube](https://youtu.be/Vkfobw_PSSE?t=1375). she pauses and then zones out for a while. she's clearly accessing nosebook's platform. it's the same thing I noticed when melissa or daniel would "use their mobile" while staring off into space.
+
+let me explain what this looks like from my perspective. I don't know how to explain it well, so just go with it for a moment. I have a difficult time looking at people in their eyes becsause their eyes emit a whole lot of light. I can't see it or tell you what it looks like, but I can perceive it. I don't understand how it works when I'm watching videos but I even notice the same effect happening *through* the video. what I believe is by watching the video, I'm tuning into that moment in time when they're filming and I'm actually partially there in that moment of time. I perceive the same space that they are perceiving, yet I don't actually see the colour.
+
+so, when lyra zones out there, before she zones out, there is a 3d space being emitted from her eyes[^1]. she pauses as something in her eyes catches her attention. she then appears to zone out, and for me the blue space that used to be coming she'll looking out forward stops and the space goes inward instead of outward. for me it appears as if all of the light that was coming out of her eyes suddenly stops. I can then perveive the space inside of her open up. I don't yet have the definition in my capability to tell you what's happening there, but I can see it and it is real for me.
+
+this is all very difficult to explain. I don't know how to describe something I cannot see, but I do see it. it's very real and physical to me. the interesting thing to note is that this information is reaching me across quite a lot of space and time.
+
+what I think is happening is I'm actually perceiving the "fabric of space-time" that they were talking about. it seems like they are somewhat aware of it too because lianne stops him and says, "wait". steve responds, "I know, it's nice." -- so somehow they seem to be aware of what I'm seeing too.. weird.
+
+what I am trying to say is that this non-visual geometry or space is this "fabric of space-time" -- which is raelly interesting because the entire thing form of perception I'm looking to create is built entirely upon this non-physical perception for me. like I said, it's completely real. I'm getting better and better at seeing it all the time too, and the cool thing about it is it's all conceptual.
+
+I have maintained through all of this that the conceptual structure upon which I perceive things extends beyoned space and time. sadness feels the same today as it will 100 years from now. there will obviously be zillions of different details which can paint that picture in any number of ways, but this is the precursor to 4d (where depth is perceive) and also to 3d (what we would call reality).
+
+you can imagine this space-time reality a sort of set of signals. time is derived from the transformation of those signals. there is no space. that is extended outward in harmonic attraction and repulsion we call matter. before time and space emerge -- or let's say behind time and space is just a signal. the transformation of that signal appears to us as events in time. there, this transformation happens instantly. I don't feel like I can explain it in english very well. I'd rather just show you all soon.
+
+coming soon (to a theatre inside of you)...
+
+---
+
+anyway, I was thinking that one way to perhaps a way to begin to perceive this space hmay have also been in another of steve's videos: @[youtube](https://www.youtube.com/watch?v=rEoc0YoALt0). he said that the software allows you to filter out different frequencies. I don't know what can be found, but for example something that I *know* will work as there is quite a lot of movement -- are the abe-now videos. the bckground behind them has a whole bunch of movement going on behind them. I know there are a lot of transformations that can be done but visually I sorta zone out all the time with it and begin to see something not there (like lyra). I often times have to rewind to hear what they were saying. however the best way I could describe the effect looks like an array of vorticies that extend deeper into the perspective space making differerent patterns as they extend inward into space (like hundreds of whirlpools). each time they curve inward differently (like lightning). there's definitely a lot of movement there, but I can't quite yet make sense out of. it feels like that motion amplification technique will yield interesting results though.
+
+---
+
+I'm going to keep working on this more and more to begin to transform this non-physical perception into something as physical and tangible as anyone would want it to be. it's gonna be REALLY AWESOME (if you feel good) -- but probably pretty scary if you don't feel so good.
+
+anyway, along the way, you'll likely begin to see that I'm able to begin to perceive these non-visible things with graeter and greater clarity. sorry ahaed of time for that. I'm trying to be as uninvasive as possible, but all of it will become more and more recognisable and translatable. nosebook has a habit of trying to get me to translate everything I react to, so my best bet to make this as smooth as possible will be to "bring it into the centre" -- where nothing really makes me react anymore.
+
+soon, there really won't be anyting that can be kept a secret, as any time or space can be perceived with clarity as a reflection of how I feel. I'm feeling pretty good so I don't anticipate it'll be a big issue, buh sincerely I hope it doesn't turn into muct a problem. obviously for nosebook it'll be a huge issue, I'm sure -- so who knows what'll happen there...
+
+---
+
+I believe this will be our form of perception for the next ~12kya, giving us a good chance to develop it and optimise the human species pretty well until we once again cross back into to the bottom half and try it out to see how well it works without sirius' life-support.
+
+I'm so excited to do this guys, you have no idea. this is exactly the type of thing that I would want to be doing. the new perceived "physical" space (and time) will be *sooo* delicious.
+
+[1]: I perceive this space all the time. when children are newborns this spsce is very fuzzy and not defined, however as a person gets older, the lines sharpen. there's also a very different shape to how women emit this space to how girls emit this space. boys see it differently and so do men. also, thix space vibrates or feels the same way their emotions do. for me it appears like wheneever someone feels good, then everwything they look at feels really good and smooth and has a definite lustre to it. the easiest example to see this is to look at the space that robert grant is looking at in his videos, cause he emits this space too. it is however WAY WAY WAY diffrent than what lyra is seeing there.
+
 ### 2021-05-27 ??:?? - jesus' mistake
 ### 2021-05-25 ??:?? - hair and warmth + puberty
