@@ -2801,3 +2801,55 @@ I'm probably pretty opposite to how almost everyone else is. I don't claim that 
 #### (1:00:30) - cooperative components
 
 as they were talking I had one of those "obvious" pictures pop into my mind when they said, a cooperative component could be anyone on your planet.. this was always obvious to me. I could imagine a bell curve distribution of people that are more cooperative/harmonious (on the same wavelength) as you where the peak is like most harmonious. this was the part that seemed obvious to me. however, as they started talking about non physical not having any resistance at all, this time the bell curve turned into a sine wave, and right at the peak was this infinitely thin line that extended upward of infinite harmony right when the direction of the curve canges direction (the peak). there's infinite resonance at the peak.
+
+### 2021-06-01 01:54 - (2021-03-20 p2)
+
+#### (17:09) - distance and time
+
+yesterday, when writing @[noseblog](2021-05-30 23:40), I wrote:
+
+```
+you can imagine this space-time reality a sort of set of signals. time is derived from the transformation of those signals. there is no space. that is extended outward in harmonic attraction and repulsion we call matter. before time and space emerge -- or let's say behind time and space is just a signal. the transformation of that signal appears to us as events in time. there, this transformation happens instantly. I don't feel like I can explain it in english very well. I'd rather just show you all soon.
+
+coming soon (to a theatre inside of you)...
+```
+
+it was really crazy because while I was writing it, I could see that these different vibrations all exist simultaneously and some are more harmonic with some than others. these bunch of into what we would see as energy spheres grouped together -- like galaxies, stars, planets, people, trees, minerals, molecules, atoms, etc. they are in some way harmonically similar.
+
+I could see the whole universe is like this but it's so hard to explain it in words, I find it cumbersome. I felt like I had a sort of "download" or something when I was trying to see what lyra was looking at while they were talking about time and space. I can increasingly describe with more and more clarity this invisible/non-physical reality which they speak of. my goal is to find yet another way of describing this visually for you all. 6d coming soon. 7d follows that right after I figure out how to consolidate perception through multiple bodies (identities) at into a singular experience[^1]. that's all I have to say there :)
+
+[1]: think for a moment how when you feel pain in a part of your body, you focus your attention there. you are already abstractly experiencing the collective experience of trillions of cells (plus all of the additional information tuned into using your "mind" and "memories")
+
+#### (44:11) - uhhh
+
+I don't really know how to begin this one so I'll just let it go. right before the "uhh" sound, I was thinking about the lyra thing I just wrote which brought me to the next subject in my mind which revolved around the form of perception that girls seem to exhibit. it seems they can project thingh into 3d space with ease. I consider this +5 functionality. I've been trying to learn how to do this myself. I know I can cause people to feel things with my heart (+4) and I can also receive transmissions in my heart (-4) with ease as well. I don't know how good I am at the +5 aspect though.
+
+the reason why I say this is because the whole new dimension I want to manifest into people's perception is grounded in concept and emotion, meaning it's entirely perceptual. to put it simply, the +5 people around will create the environment in which this reality is perceived. or, to put it another way, because this form of percepgion transcends the fabric of space-time, anything perceivable can happen really anywhere. you figure out what it is that is interesting to you, and we all share the same sort of conceptual "space". there isn't any distance or time, but they are both perceived as a sequence of things. uhh it's difficult to explain distance as a sequence, so I won't but everything appears as distant as it's vibrationally similar. again, I feel like if I keep trying to explain this reality with words, it gets very misunderstood. I need to show you -- or rather it needs to be experienced to explain it satisfactorally.
+
+so here's the subject that I was originally going to write before I got off into the new dimension thing again (I'm so infatuated with the idea, I can't stop thinking of it -- so sorry. it's like I'm in love with it. anyone creative knows this as standard procedure before sudden genesis)
+
+---
+
+relating to this perception, it feels to me that the prevailing thought is that little girls have this form of perception, then it's decay, decline, and things getting worse and ugly after that (something like that it feels like). I can't undertand this. it shouldn't be like this at all. that sounds like a specifically nosebook perspective. my personal experience is that once things get better they continue getting better and better until I interrupt them with my perception with things like, "oh now it has to get worse" or "this can't last forever" -- those sorts of things.
+
+the reason why I think the universe is perceptually pretty flat is because there really isn't a whole lot of distance between feeling something on the way and feeling another thing on the way. there's almost no difference. once basic principals are discovered, you can be anything you want to be. as in, it'll be effortless for anyone to feel any age they want to feel or see any way they want to see. they'll all be as easy to align with as anything else.
+
+I just don't get it.
+
+---
+
+this relates to a monologue I was having about not needing the manifestation. I don't understand why people want me to have a manifestation so much. to me this makes no difference. I just make things. I like making things. if other people derive a lot of pleasure out of my creations, that's great. for me the manifestation isn't the creation, but the creating process.
+
+I don't understand why this is so difficult for people to understand. to make an analogy, imagine someone refusing to have sex, saying they will only have sex if they can ensure that they will have a child from it. they don't want to enjoy the creating process at all. they can only allow theirselves to enjoy any part of the creating process if a kid comes out. if a kid doesn't come out then they'll take all of the good times and declare them bad and wasted time.
+
+that hopefully seems silly.
+
+I'm having trouble finding the connecting thought, but I came to the conclusion that mr. motor also doesn't ever get the manifestation because he's not OK with others having it, so he holds himself away from it just to ensure that others aren't getting something good. this seems only possible to me because others enjoyment seems more important to him than his own.
+
+why not just enjoy the creation process and leave all others out of it? it's the comparison that creates the decay and decline. think of it this way. if you never saw someone getting old and decrepit, you would never believe it was something that happens to someone. if you lived in a world where evewything is a reflection of your perception, you could easily live on and never notice age. what if time and distance are meaningless and things are only a reflection of your perception?
+
+I figure it'll be good practise. we'll all fight against artificial demons that we (and others) have created and perceive to be there. also, everyone will only see the stuff as a reflection of what they believe. a demon to you may appear to me as a delightful person. eventually we'll all find it natural to see what we want to see. what this will do is make all of us extremely naive and childlike. when we "fall" back down into the toil of physicality again and see our physical bodies again, I guess we'll have to wait to see what happens then :)
+
+I have no idea what'll happen. I just want to explore the limits of what it would be like to live in a place without limits. imagine you're pissed off at mom becsuse whatever, so you find yourself back in time to change it -- you do and then what? imagine how much time people will spend infinitely fixing things. who will be the first to figure out that things are a reflection of their perecption? this is the ultimate game I want to beat.
+
+this new thing is really just for me. from my perdspective, others will just be there to make that as hard as possible for me to figure out with all of the distractions. finding my way in the midst of difficulty is easy. instead, I find it pretty difficult to master my perception during easy times (times with lots of wanted). so, in this new setting will I still be able to find my way or will I fall into the trap of pleasure-filled laziness? what about the others? how huch good good stuff is too much before I'm ready to go back to decline, decay, and death? (eg. comparing myself to others again to determine what "normal" is)
