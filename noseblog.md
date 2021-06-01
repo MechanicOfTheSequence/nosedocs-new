@@ -503,5 +503,41 @@ I have been thinking about the "archetypes" being derived from a sort of game un
 
 so here's the thing: no one really likes dragons to come and burn down their village and eat all of the children. these are symbolic story devices that games utilise to drive events in the game. so maybe first-world problems are actually what I'm looking for. I'll keep thinking on this.
 
+### 2021-06-01 12:28 - finding my way back to source
+
+yesterday when I was monologuing, I was talking about how when I interact with someone I obtain a form of their perception (and it's likely they retain a form of my own as well, though no one has confirmed this), so I was explaining that I believe the sudden change in jesus' perception happend because of that.
+
+you will notice that in past entries and also in other things I wrote, I equated jseus with jupiter, not with saturn. the obvious "reborn deity" symbolism was obviously overlooked. what I was noticing is that the version of him which remains he has all sorts of throat (3) things -- "at my command" "your belief ..." all sorts of things that imply that because of some structure, chain of command, or authority is responsible for the allowing a person's faith to heal or restore something. now, it's very unclear how much of this is the "flavian touch" and how much of it is the holy roman church establishing itself as a commander of those who believe (in) jesus/peter/pope as the director of their path. it could very well be almost all edits. I wasn't there when jesus was saying those things -- and like all legends, the story's "facts" take on the form of perception of the storyteller rather than a being only a series of methodically enumerated events.
+
+therefore, I perceived jesus as the jupiter spiret more than the saturn. he clearly was using a lot of visualisation (he saw people as alive and well). or, he could see the fish in the water before telling them to cast their nets, etc. the book of matthew (the one I'm most familiar with) is filled with this 3/6 perception. I mean the whole thing begins with an epic 40 day fast, followed by some temptations to solidify his dominance over the carnal self (willpower).
+
+---
+
+ok, so back to the monologue: what I was saying is that if I try and go the 3/6 path, then it could be a terrific crash and burn as I take on the perception of the girl. I don't care how young pure or naive a girl is, I'm certain that large portions of my perception are far less resistant than theirs are. I have used my "willpower", not to command things outside of me to be the way I want them, but "willed" myself to perceive things the way I want them to be perceived (a way that feels good). I am constantly opotimising that form of percption and improving upon it.
+
+I believe it is imperative (that's the commands bit again) that I find a way to perceive my reality in such a way which feels good to me. you'll know when I get there because my physical body will reflect how I feel. I don't have any desire to try and jump in to interactions with people when I don't feel good. I just don't want to do it. I'm good, but I find those situations to be "risky" from my perspective. I simply don't want to engage into something when I don't feel good.
+
+I am very good at managing resistance and finding a way to transform it, sure (I'll come back to this)
+
+---
+
+so ever since I said that, mr. motor has been pestering me with some thoughts where he thinks that they can control all of the other versions of me, and I'll retain my disconnected state (presumably so that I don't see all the steff they're using my Hows for) and instead of perceiving through the collective whole of all of me, I will be restricted to this version of me with a lot of low resistance girls (I presume, so that my perception doesn't change much).
+
+this is plain silliness. first of all, I don't have my imagination activated, so I'm not like jesus in that sense. as long as I don't have an imagination, I don't have to worry about that. think about with vera for example -- I just feel really weird. I go take a walk and find ways to normalise the feeling. back then I wasn't nearly as good at that as I am now. nowadays, I can manipulate my perception so rapidly that I don't need to worry about this. this is in fact what I will be doing with all the different Hews. I'll just find a way to transform that perception so that I'm right back to feeling good again. I can do this so fast now (and continually getting faster), it makes sense for me to be doing it with thousands of people -- not just a few.
+
+plus, I'm more interested in finding a way to perceive life differently again. I love that stuff. I went over this in @[abe-now](2021-03-13 p2 37:37) where I talked about exactly this. it does mean that I (kenny) won't personally interact directly with any one of these girls, meaning I won't sigularly acquire their perception. that will happen with each of the Hews. I'll have the composite of off of their perception. this means I won't directly have the manifestation myself in physical form (my body will probably be laying unconscious in some lead-lined room in a bunker somewhere) so I won't get the direct energy transfer from her. I'll only receive the bits I'm resonant with.
+
+I then talked about this subject further last night (@[abe-now](2021-03-20 p2 44:11)) when I mentioned how it doesn't matter to me not to get the manifestation as it's a bit like sex in that it's ok to enjoy the creating process more than just a few times before a kid (manifestation) is created. it's OK to go back to the drawing board a few times before the new thing is created.
+
+this must have been misinterpretted because I then later talked about how I wanted to make a world where perception happens so rapidly that we'll once again find ourselves in a sort of "garden of eden" type scenario. the way I see it, if a bunch of me are a reflection of the girls, when I make my transition (after 2038?) into the boys, I consider those/we/me to be the adams[^1]. then, the eves are the new ape-girls (anadu) that I want to create... this whole time I'm certain that all sorts of breeding will be happening to improve upon the new models of both. humans will continue on in this sort of dream-state largely unaware of our physicality. I believe this is jupiter's "veil" idea that I resonated with.
+
+a lot of things will happen and we'll all be stuck in this jail of our own perception for a long while (10kya?) until we finally fall back down into physicality. however, as I stated last night, the point of it all was to create a form of perception where there is so much wanted (as a reflection of my own perception), will I still be able to find my way back to my source or will I get stuck in the laziness of pleasure? I personally think I'll get pretty sick of so much wanted and desire to get back to the grind. I *love* difficulty and I love to constantly have an "impossible" thing I find out a way to overcome. I'm not much for super easy wonderful conditions.
+
+so that's the thing there, and I think that part got misinterpretted because maybe mr. motor may have thought that I'm wanting to try and find my way back to source in a life of pleasure (which they control). not really[^2]. I have to create the new form of perception first to allow that to become possible. this one is too easy.
+
+[1]: interesting reaction to who I define as the adams. the sense that I get is there are a lot of other adams that nosebook has created using my Hews as well. well, guess what: I am me; we are you :)
+
+[2]: I like to create and solve my own difficult problems. it may seem like you are creating the problem, but if that separation is only perceptual. if I can find my way back to perceiving from a source perspective, I am me; we are you :) inotherwords, you are an extension of me (as perceived from my source perspective) -- so you (which is an extension of me) are creating my problems for me to solve. or, I have attracted the cooperative components necessary to create the next problem I want to solve. thanks for playing along. we are legion.
+
 ### 2021-05-27 ??:?? - jesus' mistake
 ### 2021-05-25 ??:?? - hair and warmth + puberty
