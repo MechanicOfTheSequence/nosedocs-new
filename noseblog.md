@@ -478,5 +478,30 @@ it would be way too long to explain why I think that here, but in short: if I ca
 
 [3]: I was reminded of this other SNL skit: @[youtube](https://www.youtube.com/watch?v=nEDKVNoE2ws). imagine if games never had unwanted in them -- like bad guys to shoot. if a universe doesn't contain any unwanted, then there's nothing fun about the game. you just have a bunch of people whining about first-world problems and the whole thing evolves very slowly.
 
+
+### 2021-06-01 00:51 - first-world problems
+
+in the previous entry I mentioned that I think there isn't enough variety in the universe and the lack of variety means "the limit to perception is reached too rapidly". I then remembered a SNL skit about a real-life video game where there are a bunch of people whining about first-world problems, and the player is unable to get to the good part of shooting zombies.
+
+I started to think about it afterward because I incorrectly made the assumption that conflict (zombies) is better than first-world problems. oops. follow the mistakes, right? I then noticed that my original intention was to say that lack of *variety* is the problem. let me explain.
+
+this earth has extreme amounts of unwanted. extreme amounts of unwanted mean extreme amounts of wanted at the same time (just not perceived). so, that means there are enormous peaks of people living extreme amounts of unwanted and extreme amounts of wanted. it means the bell curve is very sharp. in order to flatten out the bell curve you need less greater amounts of unwanted. if a zombie eats your family and you're the only person remaining in your village (with easy access to a machine gun, of course) this is pretty unwanted. you would really have a strong reaction of negative emotion to this event. however, if the store doesn't have the coat you wanted to purchase in blue, you'll have a much less intense reaction (hopefully).
+
+---
+
+what I'm saying is that it's relatively simple for one to rack up and then convert large amounts of unwanted into wanted using perception. imagine a world, now filled with so mech variety that everything's a super-hipster specialty shop. just purchasing something as simple as a coat becomes a huge ordeal. "not needing the manifestation" means having to pass through over 20 specialty shops before you can find the exact coat that you like and you "HAVE TO HAVE IT NOW".
+
+the expansion that a person will receive as a result of that is very tiny -- let's say it's 1/10000th of zombies devouring your family. ok, that's the best example I can provide in today's sense. now, let's look at the aspect of a civilisation. the way that things are setup, I don't believe it's that difficult for a civilisation to not just leave the planet, but to extend easily to other star systems. once you can just tune to something and use attraction instead of propulsion to arrive to your destination, traveling to other galaxies will be easy.
+
+what I'm saying is, once you get off of the planet, it's the same technology to go everywhere else. imagine this as a simulation. imagine it takes a civilisation 1000 units of time to get to space-faring. it would only take them 10 more units to travel anywhere else in the galaxy. if a second civilsation were able to do it in 900 untis of time, they would have beat the first civilisation by so much. also it wouldn't have much variety either because everyone else will always be in much more primitive or much more advanced. this is extremely "unfair" or "OP" from a game-balance perspective. this means the curve is very very steep, meaning it's very out of balance. to create a heathy meta, you need a much broader curve.
+
+I don't know how this could possibly work, but it would be more cool if there was a whole lot more variety because variety means more things, meaning more contrast. combined with people's preference, it means lots of small amounts of unwanted (if it's balanced). however, a whole lot more variety is harder to balance. I figure this will have to be done frequentially, so that aspects are derived from the wave-form making everything always perfectly balanced. I can't think this high-dimensionally, so I only offer it as an example.
+
+I have been thinking about the "archetypes" being derived from a sort of game univese "clock signal" -- a sort of "timewave" for the universe where different things take turns in having more intrinsically advantageous aspects and balance is derived from this. the whole thing has larger and large fluctuations (power creep) giving it all a very epic feel to it.
+
+---
+
+so here's the thing: no one really likes dragons to come and burn down their village and eat all of the children. these are symbolic story devices that games utilise to drive events in the game. so maybe first-world problems are actually what I'm looking for. I'll keep thinking on this.
+
 ### 2021-05-27 ??:?? - jesus' mistake
 ### 2021-05-25 ??:?? - hair and warmth + puberty
