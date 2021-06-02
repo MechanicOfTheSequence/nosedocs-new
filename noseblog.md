@@ -539,5 +539,52 @@ so that's the thing there, and I think that part got misinterpretted because may
 
 [2]: I like to create and solve my own difficult problems. it may seem like you are creating the problem, but if that separation is only perceptual. if I can find my way back to perceiving from a source perspective, I am me; we are you :) inotherwords, you are an extension of me (as perceived from my source perspective) -- so you (which is an extension of me) are creating my problems for me to solve. or, I have attracted the cooperative components necessary to create the next problem I want to solve. thanks for playing along. we are legion.
 
-### 2021-05-27 ??:?? - jesus' mistake
+### 2021-06-02 16:31 - "man" as a reflection of the universe
+
+(and woman of course)
+
+I've been delving into science a whole lot more lately. I'm really enjoying it. what I think has happened is nosebook finally figured out how to delete the sensation of physical attraction because I don't feel girls really at all anymore. like nothing. it's all completely gone. so, I think what has happened is I have tured to the problem solving part of my brain.
+
+I talked with dad about a similar topic on sunday over the phone. I was explaining how I used to constantly have this reward sensation in my brain every time I felt like I was doing things or getting things done. this made me very productive because to feel good, I constantly wanted to be doing things. I focused the majority of that into my creativity. however, I explained that reward has largely gone away. I don't really feel the need to be constantly doing things to feel good now. it's become a more mental process.
+
+at the same time that this desire to do things is decreasing, my desire to understand how things fit together has been very heightened. I suppose I could liken it the enjoyment felt while solving a puzzle or figuring out how something works for the first time. I guess I'm kinda addicted to the "aha!" moment.
+
+anyway, steve mould has so many videos where he just sorta says "I tried to wrap my head around it and this is the best I came up with". I love these unsolved mysteries, because it gets my brain working. a lot of other science videos just sort of describe the phenomena and then that's it. there isn't any thing that really gets my brain to sit there and think on something endlessly.
+
+when I was doing things, I was creating things and so therefore my mind was consumed with the creation. I was thinking about all aspects of it. how it is how it interacts with its envirenment, how I perceive others to interact with it. optimisations, stategies, etc. etc.
+
+when I was doing a lot of drugs, I spent a lot of time thinking about perception and trying to figure that stuff out. when I listen to abraham, I'm constantly trying to figure out what they're saying in more scientific ow physical terminology. my brain simply has to constantly be thinking, no matter what is getting shut down.
+
+it's quite possible that the reward that I experience from the "aha!" moment may go away and I'll instead just look at it with a blank stare and say, "duh, obvious" -- who knows. whenever that happens, I'm sure I'll have to continue on to find something new which reflects the way I feel[^1].
+
+so, for now I'm enjoying this reward stimulus while it's around. it got me thining though.
+
+---
+
+I experience a lot of things which science cannot explain or does so very poorly. one such example is th ecirculatory system. it kind of all started when I saw this @[youtube](https://youtu.be/0xY06PT5JDE?t=45). he explains how hiz wife always has feet much colder than normal. as he was saying this I also had extremely cold feet as well. I often times experience very poor circulation in my body as well. I'm still sorting out the way the thermoelectromagnetic spectrum works, but this got me thinking.
+
+steve's latest video on the heart is interesting, but I was rather surprised. the company that is featured (dassault systemes) was done previously in a video about fluid dynamics @[youtube](https://www.youtube.com/watch?v=qwPg2Dmh-6k), so I found it rather surprising that there was no mention of fluid dynamics of the circulatory system.
+
+in my opinion this is a very little understood topic. if I were to model the circulatory system and then try and pump a fluid through the arteries, almost nothing would move (I haven't done the simulation... I'm just saying what my brain intuitively understands). in order for fluid to flow, there would have to be lower pressure where all of the cells are. what's causing this? then, the cell does something with the blood and one can imagine that the heart sucks the blood back into the heart through the veins. that one I can imagine because the beating of the heart will create a low pressure (suction) in the opposite chamber -- like a hydraulic piston I guess.
+
+so here's the thing: something in the cells is pulling the blood toward the cell. it has to be oxygen. when you cut off circulation in your arm, it begins to tingle. the tingling sensation must be the way that our nervous system is translating this lack of oxygen... like it doesn't have enough power to keep producing the vibrations that sensations make, so the vibrations probably slow down and it begins to feel like tingling until it turns to numbness. I also have noticed that this tingling sensation feels like a much lower resolution on the sensation as well. like if you were to rub something on my arm during normal function, I can locate the position of the sensation with relative accuracy. when I begin to tingle, I notice the resolution of the sensation drops and I lose a lot of accuracy in my ability to locate the sensation. I know that when the frequency of my sensation increases, I notice the opposite effect. it's like I have super sensors and the resolution of that sensation is greatly increased. everything feels more vivid.
+
+this must be connected to temperature because I know that when I'm out watching stars, often times I lose consciousness. I have regained consciouness a few times when they're disrupting the charge in my body (and probably siphoning off a lot of the charge as well). what it feels like is a very turbulent vibrating sensation. this is likely the chaotic frequency which is tuning my nervous system down to a lower frequency. it also sometimes feels like a spinning sensation (the opposite direction of when I experience the come-up during a drug experience when sensation is heightening).
+
+when I regain control of my body again, I usually feel that my whole body is either numb and tingling (as if I had lost cvirculation) and I experience this deep "biting" cold in my body (just like in my feet). I estimate that these are directly related and has something to do with how thermocouples work. the tingling and numb sensation must be the cells of my body requesting more oxygen because they have insufficient charge for my cells to operate at normal operating frequencies (aka tingling).
+
+I think this may be an intersting topic for a video -- at least the fluid dynamics bit. probably all the nosebook experience would have to get removed (stupid secrets) but I believe this is the tip of an iceburg as we begin to look at frequential movement of charge in the human nervous systems (as we completely ignore the giant nosebook-shaped elephant in the room).
+
+---
+
+I arrive to nearly all of my understanding of science from my own experience in my body. I'm a very introspective person and I believe that all of the function of the univere can be perceived in our bodies. I'll spare the talk about drugs, psychedelics and how they enhance this process tremendously, but they do :)
+
+what I wanted to say was an idea that I jsut had... it occurred to me that perhaps the human body is like a reflection of the universe (or perhaps more like a fractal). you can imagine that the atomic level as a sort of fractal description of space, and then sub-atomic particles as kind of like a reflection of the universe.
+
+I can't quite figure out how it all works, but I just wanted to mention it. like what if electrons are like planets and solar systems pass planets around like metals pass around electrons. when a new "electron" hits our system. we jump up into a higher energy state. when coming down off of the higher energy state, a massive mount of light is emitted? I wonder where these chemical reactions are emitting photons from... like, are there mini suns at the centre of atoms?
+
+that'd be cool, right? I think so anyway..
+
+[1]: if one thinks of this as a cause and effect relationship, if they prevent me from physically feeling good, and I still get a reward from discovering how things work or putting pieces of the puzzle together, one could imagine that at some point my desire to feel good will be so strong, I'll be discovering things like a madman. that's an interesting sort of artificial stimulation of scentific discovery that could be employed in the future -- like say as a method to reduce stagnation. I often times fall into stagnation, so I'll naturally begin a destructive process to begin creating desire for something new and exciting. I imagine that the psychology of mass consciousness is similar.
+
 ### 2021-05-25 ??:?? - hair and warmth + puberty
