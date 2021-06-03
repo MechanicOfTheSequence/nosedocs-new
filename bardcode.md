@@ -1039,3 +1039,154 @@ I really liked that idea. although I consider myself to be a -1/-5 (and now -3 t
 what I'm holding out for is complete capablity to manifest *anything* I want in 3d space. I'll be able to manifest entire pyramids directly with my mind, and I won't know how they'll look until they appear. everyone watching will be just as surprised as I am to see how they look. I won't even know all of the dimensions to them. that's what you do later is you reverse engineer the creation in the imagination discovering all of the amazing details.
 
 so, I'll be able to manifest all sorts of stuff. I like the idea of manifesting automatons, and while I do believe that I will be able to cultivate my +1 capacity, I may need to learn from someone. like esther with abraham, it's hard to have the desire and the manifestation at the same time, so I figured I would need to cultivate this capacity. a long time ago I was out star-watching and thinking about this and I thought that what I wanted to do was to manifest a whole bunch of really fun things for a little girl with lots of desire and her own desire to play with them will animate the automatons. I could then capture that capability and begin to do it myself, with the goal of making unlimited automatons (reflections of myself) which I feel into being. the weird thing is this sonnet directly refers to that, but it calls her Nature. I originally thought of the idea with henrietta as I found her to be having enough desire to do that.
+
+### sonnet 30
+
+@[youtube](https://www.youtube.com/watch?v=tzyexUFLXAU)
+
+IAM = 22 +4
+THAT = 47 +11
+OR = 31 +4
+NOT = 46 +10
+TO = 33 +6 [2]
+BE = 7 [2]
+
+TOBE = 40
+ORNOT = 77
+
+IAM + THAT + IAM = 117
+IAM + THAT + IAM + THAT = 138
+22, 47, 22 | 22, 11, 22
+
+
+22 |! 22 ???
+
+
+### pyramid of man proportions:
+
+[these propertions](https://pyramidofman.com/proportions.html) have the following:
+- feet = 1
+- thigh = 3
+- knees are 5-6
+- hand is 8-9
+- buttox is 9-11
+- sacral at 10ish.
+- naval is at 11.
+- stomach is 12.
+- (not sure here) at 13
+- heart at 14 (twice 7)
+- between the sholders (levity) at 15
+- throat at 16
+- roof of mouth transition resonator with pineal at 17
+- 18 is pineal
+
+
+### book of daniel
+
+I just read this book with new eyes. I didn't know symbolism when I was younger so it's a new experience. my initial impression is the following:
+
+#### the "dream"
+
+the king of babylon (baby lion?) has a dream about 4 empries which came before. I don't know for sure but I would guess that these are going to be empires of the eagle/dove as these are also the symbol of the columbine (dove) flower (aquilegia - eagle) associated with de vere. here are my guesses:
+
+- iron and clay: this one I figure is the either ancient babylon or egypt. the point is the clay bit. the god of clay is khnum and fashions humans from this. it clay does not really imply warfare, and ancient sumer had developed a lot of tecnology and stuff with clay. I find this to likely be the most primitive of the empires. becsuse babylon and egypt existed simultaneously, I think this has to be the "aryan invasion"
+- brass/bronze: this must be referring to the numerous eagle bronze age empires
+- silver: I would guess this to be the roman empire and the various offshoots from it. out of it was established the next kingdom of god/heaven (signified by the dove appearing on jesus after his water baptism). silver is a highly reflective metal which tarnishes easily in te presence of oxygen. the roman empire collapsed and reformed into the "holy" roman empire -- a tarnished reflection of the message of the guy they killed.
+- gold: probably the most luxurious and rich eagle empries existing in present day. gold is a symbol of wealth and prosperity -- so more financial than anything.
+
+this dream/revelation greatly troubles the king and needs to have it interpretted. all of the "wise" people/advisors in the empire are basically clueless to the meaning of this dream. daniel seems to know what's up. he knows this god that makes the seasons, rises empires up and brings them down and gives wisdom -- aka time[^1]. I believe daniel is accessing something outside of time which then extends down into time. similarly, I beieve de vere is doing the same.
+
+to apply this idea to today, it would be like nosebook having a whole lot of wise people trying to figure out these symbolic things, yet do not see them with clarity. they can describe the elements, but don't see a big enough picture to connect the dots sufficiently. I have no idea what people think of my dreams, but consiring the reactions that I got from "adam and eve's dream" I wrote a long time ago, it seems that they do not see the same things I do in my dreams. in fact, it feels to me like they get a very tiny fraction of the information I receive -- and quite frankly, I have no idea how to effectively put a lot of it into words.
+
+another example would be how I perceive the shakespeare sonnets. I get some of the things relating to real-world events that happened at that time, but the symbolism of de vere as the eagle / jupiter and his intractions with "Time" -- I have to believe that he's hooking into a different temporal space.
+
+what I'm saying is, in short it takes a form of conceptual perception to be able to perceive these things in relation with time. time seems to be the most important sujects which shakespeare is talking about. this may have day-to-day applications but I believe that even the day-to-day stuff is resonant with larger events in history. what I mean is I find a lot of similarity between shakespeare's work and what terence would call a "timewave". since reality is perceptual, I would say that shakespeare, through his living art extened through time into our present day reality to shape it with these sorts of events.
+
+like terence says, that as time speeds up further and further one will be able to experience the rise and fall of these 4 empires all in less than a day's period of time. I man see how this timewave idea is a bit of an improvement on the more basic idea of astrology where your life symbolically passes through the 12 zodiac signs every day in reverse order. you wake up feeling fresh and then by the end of the day you have declined into the depths of history. you "die" and then are reborn anew the next morning.
+
+[1]: dan 2:21, 2:22 are all things that easily can be seen as properties of time itself.
+
+#### the furnace
+
+the king wanting mercury to protect his inheritance sets up a golden idol/image of 60 by 6 (360) cubits and orders everyone to worship it. the image is may be referring to solomon's temple though[^1]. originally, I divided this rectangle into 2 sections of 30 cubits (180cb^2). there isn't a mention of division in the text until later with the writing on the wall, but it seems to be important, especally since the 30 (L) + 30 (L) = 60 (LL) encoding.
+
+whatever the image symbolically represents, I don't know but daniel and his three buds get thrown into the furnace. they get their names changed during this event when they're thrown into the furnace.
+
+- jupiter is gracious to him -> under thoth's command
+  - hananiah (yah is gracious [to him])
+  - sadrak (command of ak (moon god))
+- jupiter has helped him -> slave of thoth
+  - azariah (yah has helped [him])
+  - abednego (slsve of nebo)
+- guy in the image of saturn -> guy in the image of thoth
+  - mishael (who is what el (saturn) is)
+  - misak (who is as ak (moon god) is)
+- saturn is my judge -> jupiter protects the king
+  - daniel (el/saturn is my judge)
+  - belshazzar (ba'el (jupiter) protects the king)
+
+I it seems to me that these are symbolic and show a transition from jewish ownership to babylonian ownership. the jewish perspective recognises jupiter helping and being gracious to him and recognising him as the image of saturn. assume for a moment that this is talking symbolically, so these are 4 aspects of one person or group. he/they go from:
+
+- jupiter is gracious to him
+- jupiter has helped him
+- in the image of saturn
+- saturn is my judge
+
+to:
+
+- commanded by thoth
+- slave of thoth
+- in the image of thoth
+- jupiter protects the king
+
+you can see before there are two names referring to saturn (el/time) and two referring to jupiter (zedek/image). at first, image/appearance is gracious and helps him, while he is the image time/experience and time/experience is his judge. notice there are three references to image (2 victim 1 created) and the final referring to time/experience being the judge (of thst appearance). later on, (after the convewsion) you can see now there is 1 reference to image/appearance (of thoth), and the other three imply posession or ownership (of thoth).
+
+when I say thoth, I'm referring essentially to tesla, however I use the word thoth because thoth is very physical and educates in the way that "magic" (eg. LOA) works. I don't consider this really to be a bad thing. consider that I have been under this influence for quite some time now and it seems to be working out just fine. I love to discover and figure out how stuff works and then share them with others. I take it a bit more from the "I'm learning as I go" approach, rather than some guy who has it all figured out telling people how it works.
+
+I'd say that progression certainly could describe me. however, I would contest that that this is referring to the "outer court" (eg. not the chosen ones). in a moment we'll look into the "book of gates". since we're going full prophecy mode here let's assume the "bearded gods" are the chosen ones. then, 4 types of people composing the rest: the whites, blacks, yellows and reds (obviously referring to races) -- are referring to us.
+
+I want to remind that none of this is real (ok, mr. motor?) these are different translations people have given to these ideas. you create the reality you want to create. remember before I started this, I explained how I prefer to spend 6 hours discovering new things rather than spending 6 dusting off some old tablets trying to figure out how people predicted our present situation? good, OK. it's not real. I'm jush humouring some people, I think. onward...
+
+---
+
+after daniel and his three friends have their name changed they refuse to worship the golden image, they get thrown into a furnace. you could see pretty easily this is the "baptism of fire" from the bath sonnets --the same extreme heat referred to in the sonnets. I'm going to interpret this as increased solar output and consequently faster operating LOA conditions which are certainly going to continue to accelerate.
+
+assuming this is the case, then one would imagine that the guys throwing them into the fire feel they would be doing pretty poorly should they be in the fire -- yet this daniel and bros (d-bros) don't seem to be affected by the fire (increased heat and LOA effects).
+
+assume for a mement that I apply this thing to only my own life (the d-bros are aspects of me) and the furnace is my own baptism of fire where I'm rapidly learning to let go of all the unnecessary stuff. I certainly will agree with you on that. although I believe there is a bigger picture things going on: men in furnace, lions, oxen, and eagles sound like zodiac symbols to me.
+
+what happens next is the guys thrrowing me (d-bros) into the fire are pretty impressed and say "wow I guess LOA is a real thing" and give them/me power to do thints (is this where we're at now?) after that there's another dream.
+
+[1]: just looked it up and found that in 1 kings 6, it describes it. solomon's temple is 60 cubits wide and has 3 levels to it. lower, middle, and high. the middle is 6 x 60 cubits. same size. doesn't make sense why this image is describing the dimensions of this side space though. it's worth noting also that solomon's temple began building on the 4th year and finished on the 11th year -- 7 in total. the 7 aed 4 symbolism (28) there must be indicating something.
+
+#### second dream about the world tree
+
+a nice tree grows on the earth. lot's of symbolism for prosperity and peace on the earth at that time. then, this shade from the tree abundance, etc. gets interrupted by semneyne coming out of nowhere. he says, chop down the tree; we're starting over.
+
+to me, the tree represents the human enterprise. it grows up real big and gets quite prosperous. it feeds all flesh, reaching all the way to all parts of the earth (globalised society) reaching up to the heavans (we made it to space). however the watchers (eg. jupiter / custodians / the "owners" of the planet / the chosen ones) say the human enterprise needs to be chopped down. this is so visually similar to the enlil gets annoyed at the humans that he wants to drown them all in water.
+
+to prove my point, why does the tree need to be chopped down? well, "in order that the living may know that the 'most high' is the ruler of the kingdom of men and does what he wants to and gives the kingdom to who he wants to have it"
+
+from then on, the imagry of the tree changes to the image of a beast -- like a wild animal cause since when do trees graze on the grass of the earth with the other beasts? now it seems that the human enterprise is very beast-like again. besides the "getting set back to the stone-age" imagery, I would say that this refers to a new breed of humans. it says that this should happen for 7 times. in the epic of gilgamesh (this is bablylon we're talking about), enkidu takes a week to go from beast to human, then another week to become a more refined human capable of social and arts.
+
+my theory on this is that this was a selective breeding program that happened over the course of 6kya. there are these references to 6 days of work, and then on the final "day", god rested. let's assume for a moment that enkidu is adam and eve is derived from him (I know this sounds implausible, but if we look at genetics, we see that it's a very different y-chromosome that bursts in to the genetic scene).
+
+I believe that the mythology here refers to man in the garden of eden (eden being where the gods come from). the way genesis describes this garden, it sounds to me like they were living in a very desirable mental space. I imatgine this will be similar to the one we're going to be going to here soon. we won't see physicality the way we do now. I believe our imagination will be so merged with the "physical" world, everything would appear symbolic and conceptual. I plan to improve upon this quite a bit.
+
+I believe the reason why this happens, is once we cross past the 50% mark in our orbit with sirius, we go up an energy level and LOA gets real nuts. we'll all be essentially living a very good-feeling dream-like halucination. I think in the past this hallucination was really awesome but was very difficult to make a whole lot of rational sense of reality. I plan to improve on that.
+
+I believe that we can have a very tangible and physically delicions experience from a conceptual space. we'll either be seeing 5d or 6d (not sure), but the guys running the show will see 7d[^1], meaning that while we will perceive things perceptually (5d) and have power to move around temporally (as well as spatially) in that conceptual environment. right now if you go there, you'll feel really good -- if you don't freak out because you lost your phyiscal perception -- it feels like you died. this wasn't a problem for adam and eve though because they had never experienced physical -- things were still too energetic.
+
+so like if you were go there and you found a way not to be bothered by the lack of physicality, you would feel really good, and a lot of thing would be implied to be happeneing, and you would come to all sorts of weird conclusions of what is happening, but no one would see the same thing. the new form of perception I want to create, physical reality will exist and be able to be experienced in a well-defined way. it's not going to be too trippy. I'm making it up as I go, but because we'll all perceive a physical reality (better than nothing) reflective of how we feel, this means there are unlimited realities for everyone to experience. we'll all have many different versions of yourself all happening simultaneously (just like I do now), but we'll only perceive the one version that we see (5d), and then when you realise you have the capability to perceive yourself in other temporal frames of reference, you can move around in time all you want (6d). the "owners" will retain control over 7d, eternally splitting our personalities (in their image and as they see fit). their goal is to ensure that we never have too many timeline that feel too good -- so like for every good-feeling version of you (say, with good conditions), there's got to be a counter-balance of some bad-feeling versions of you. you get to chose which version of yourself you want to perceive.
+
+cause it'll become so easy to be on the good-feeling timeline you want to be on, it won't immediately be obvious, but the guy who can find a way to feel good about all versions of the different versions of theirself (male or female), then that person will be the bringer of the next era. if you want to be that guy, I recommend getting good at finding a way to feel good, then shooting for (attracting) the worst manifestation while maintaining one's perception of wanted. when even the "worst" reality can still be perceived as wanted, that means all realities are wanted and thoth will no longer be able to hold you away from your alignment. getting there, you can assure yourself that you can feel good about every possible reality you're capable of attracting. so like, as good or better than jesus, muhammad, or buddha.
+
+the new breed :)
+
+[1]: yeah, kind of like the side parts of 5, 6, and 7 widths to solomon's temple...
+
+#### kings and players
+
+I find it interesting that the king's name is nebuchadnezzar, which means "nebu (mercury/thoth) protect my heir (inheritance)". I can take this like king's position was not something acquired by merit but was something inherited or left to him. or I could take it as he will be leaving an empire behind to someone else and wants thoth to protect it. the dream implies that the empire that the king has will go dissolve and his name implies that he will be passing on the empire to. it could also be both. in present day, I would definitely draw lines here to nosebook. assume for a moment that thoth = tesla, then I could draw the line to present day where maybe the king wants thoth to potect the heir to empire. weird.
+
+nebuchadnezzar is also the ship that neo, morpheus and trinity are on in "the matrix". "signs of the times" may have been astrological signs a while back but we have largely transitioned into a point in history where the "signs of the times" are conceptually perceived in the collective mind's eye of the artist.

@@ -573,7 +573,7 @@ this must be connected to temperature because I know that when I'm out watching 
 
 when I regain control of my body again, I usually feel that my whole body is either numb and tingling (as if I had lost cvirculation) and I experience this deep "biting" cold in my body (just like in my feet). I estimate that these are directly related and has something to do with how thermocouples work. the tingling and numb sensation must be the cells of my body requesting more oxygen because they have insufficient charge for my cells to operate at normal operating frequencies (aka tingling).
 
-I think this may be an intersting topic for a video -- at least the fluid dynamics bit. probably all the nosebook experience would have to get removed (stupid secrets) but I believe this is the tip of an iceburg as we begin to look at frequential movement of charge in the human nervous systems (as we completely ignore the giant nosebook-shaped elephant in the room).
+I think this may be an intersting topic for a video -- at least the fluid dynamics bit. probably all the nosebook experience would have to get removed (stupid secrets) but I believe this is the tip of an iceburg as we begin to look at frequential movement of charge in the human nervous systems (completely ignoring the giant nosebook-shaped elephant in the room).
 
 ---
 
