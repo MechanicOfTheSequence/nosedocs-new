@@ -2866,4 +2866,30 @@ the versions of me living pain will feel the pain, not the well-being. that's no
 
 ### 2021-06-04 23:36 - (2021-03-20 p2)
 
-#### ()
+#### (47:30) - pontificating from the upper half of the scale
+
+I just looked up the definition of pontificate: "to express one's opinions in a way considered annoyingly pompous and dogmatic."
+
+I thought this was a funny idea.
+
+#### (1:06:24) - everything about your world has shifted
+
+well, I don't really know what ho say here because I didn't feel anything at all. for me there was no shift. maybe I'm already there. I dunno. I believe I was amtually thinking about the previous section of how I could possibly find a way ho pontificate from the upper half of the scale... so I need to find a really cheerful way of expressing my opinions in way considered annoyingly pompous and dogmatic... I was considering that I needed to look up the word dogmatic to try and figure it out.
+
+"characterized by or given to the expression of opinions very strongly or positively as if they were facts"
+
+wow, nailed it. I'm *already* pretty good at pontificating from the upper half of the scale! lol!
+
+---
+
+I alt-tabbed out of the video to notice that I had a SNL skit queued up called "coffee shop" -- which is a bit weird because the cafe venture at @[abe-now](2021-03-20 p2 40:56). I also noticed that I shopped the video at 1 : 06 : 24. 624 is a veiled reference to midsummer night's dream. so I guess that was weird.
+
+other than that, I felt quite literally nothing. there was no shift for me. very strange. welcome to my timeline??
+
+---
+
+I went to commit this and the song (mystery of crystal worlds p3 @[youtube](https://youtu.be/OKhXBYkZ5CI?t=318)) started:
+
+> as the planet of earth is aligining with the planet of venus, there will be a deep connection to these mountains [in continuation?] it is gaia's acceptance to see, there is more to her environment than the environment itself. this comes at a time when humanity is looking for to become more -- and so is gaia
+
+weird. I guess gaia is looking to become more -- and so is humanity. nice :)
