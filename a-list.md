@@ -833,3 +833,24 @@ hafu was also on my mind a bit this last few weeks. I used to watch her play gam
 I was also reminded of meri's friend christina. I'm having serious deja vu (like I already wrote this), and I'm not even she if that's her name now... I think it is. we went to her house and then off to a few discos. she had a pretty big house and lived by herself. she felt strongly to me and notably vibrated -- though I don't know if that was because I was high AF on MDMA. anyway, yeah, these are the sorts of auto-includes but I'm writing here just to be sure.
 
 another christina was the girl that lived down the street from me at augusto's house. she invited me over to her house but I felt a lot of resistance to her. back in my room, I could perceive her in my experience though. a vibrating outline of her body would fly around in my room (probsbly my imagination) and I would talk with her and stuff. very weird. again, auto-include, but I'm mentioning it here to be sure.
+
+### 2021-06-06 23:11
+
+I want to begin by inviting a number of previous hearthstone opponents. I was just playing and I noticed the clock said 11:11 (23:11), so I guess I should write this up now. anyway, with some of these opponents, I had a very tangible experience -- while others were much less impacting. even the ones which weren't as impacting but we were still sharing the same mental space, I wrote down anyway. it's always very interesting to me to notice how different each of them feel and even the way feel tremendously impacts the game. some of them didn't mind to win, and others didn't want to lose. there is quite a lot of variety in them. the game seems to play out in a way which is reflective of what they're attracting.
+
+some of the games I can remember quite well because they were notable, but then others I cannot really remember now. I guess what I'm trying to say is, though some of the games I was not super sure about, these are all the notable opponents, and I'd like to invite any of them to join in if they want to. here's the list:
+
+- vidabeleza
+- QTA4Ever
+- phylea
+- Ukraine216
+- ReelRain
+- blackpaper
+- JazzyTime
+- onebigbanana
+- Charonne
+- PugLord
+- Aerith
+- PeanutButter
+- LNAAAAAAAAA
+- Lowedown
