@@ -2470,7 +2470,7 @@ whoops I totally derailed my own point a bit in the last section. going back to 
 
 > the joy or satisfaction is, 100% of the time, about you having made a decision and then moving in the direction of that decision
 
-> noc, you convincing everyone else that yours is the right decision -- and that if they coose something else, theirs is the wrong decision.
+> not, you convincing everyone else that yours is the right decision -- and that if they choose something else, theirs is the wrong decision.
 
 just wanted to include this
 
@@ -2893,3 +2893,67 @@ I went to commit this and the song (mystery of crystal worlds p3 @[youtube](http
 > as the planet of earth is aligining with the planet of venus, there will be a deep connection to these mountains [in continuation?] it is gaia's acceptance to see, there is more to her environment than the environment itself. this comes at a time when humanity is looking for to become more -- and so is gaia
 
 weird. I guess gaia is looking to become more -- and so is humanity. nice :)
+
+### 2021-06-07 04:02 - (2021-03-27 p1)
+
+#### (35:28) - observation
+
+right before this they're talking about kids that don't listen. they then give some idaes that sound wierd like "appreciating efficiency" -- wat? how is that going to help if you're trying to get your kids to listen? it seems so obvious to me that when kids aren't listening this is clear evidence that the person is on the "I need you to do something so that I can feel good" frequency, and their kids are just not having anything of it. "cool story bro. I'll figure it out myself" is likely their behaviour. I can't figure out why they're carrying on about observation, when observtion is clarly not the problem.
+
+if I need someone to do something and then I observe them not doing it, that'll make me feel bad. so, if I stop observing that they aren't following my directions, that did nothing to change the fact that the source of my discomfort is I need someone to be different that how they are so I can feel good... so yeah, I'm confused here.
+
+they continue on, talking about people feeling stuck in the vibration of what they're observing. again, I don't get it because they're going to remain stuck, no matter what. they can stop obsserving it and it'll temporarily get better, but then it'll go right back to being bad-feeling again because they retain the belief that others need to conform to their commands so they can feel good.
+
+as I was writing the above, there were a lot of reactions like, "if you don't have any rules things will go to hell rapidly" -- sort of thing. they most certainly will if that's what you believe. I mean how does that belief feel, right? also pretty terrible. therefore, I suppose they're doing saying it this way because of a typical belief that a child must be taught -- when kids learn by observing -- and less by words.
+
+oh... observation is good for learning. kids are observing their parents all the time and watching them observe too. I didn't really think about it, but a kid watches someone in charge observe and then feel good about the things they like and then feel bad about the things they dislike. if a kid were to observe me, they may turn out to be pretty naive because they wouldn't know to feel bad about things. they would see me observe all sorts of "bad stuff" and then feel good about it. they may run right into something very unwaneted in their life and not know ahaed of time to feel bad about it.
+
+either way, I just wanted to mention that abrahmam's help here will only make things worse. stoppiny to observe somethign that feels bad doesn't change the perception. the next time the subject is observed, it'll feel equally as bad (or worse). the only way I see to change these things is to find the source of the bad-feeling perception -- which, in this case is clarly: needing someone to be different thae how they are so I can feel good.
+
+#### (36:45) - it would be easier...
+
+bahhhhh... again, this one is "needing things to be different so I can feel good"
+
+#### (42:50) - you can't get there from there...
+
+oh, I just now understood. I see things plainly because I want to be on the top half of the scale. there are so many people writing in wanting things to be different from the bottom half. my answer is plain, "well, clearly this is needing ____ to be different so I can feel good". the problem is that most people don't realise all things they are doing and saying are so they can feel good. they believe in rightness. thir percepgion is, "I need things to be different so that things are proper, correct, going well, operaitng properly, etc."
+
+this wasn't computing for me. for me it's obvious that everything they do, say, or want to observe/experience is so that they feel better. I juxt now got the sensation where it feels like everything is steadily going into disarray and chaos, and so along the road toward this eventual destruction, it feels like one needs to find as many ways to feel good along the way, enjoying it while it lasts because it's just going to get worse and worse...
+
+huh. well, sucks to be them. seems the direction they're heading is toward feeling worse and worse and they need to find temporary exceptions to that trajectory... brief moments of extacy in a life-long slow-motion train wreck.
+
+you can't get there from there...
+
+---
+
+it just seems so easy for me to realise that everything is done to accomplish a sensation physical or emotional, and so if you realise this, you are free. if you want to be a slave to the physical, I can decide to try and figure out how to micromanage every physical sensation (hint: it's impossible) -- or, I can macromanage the only thing I have any control over, which is how I feel.
+
+therefore I stopped to need things I can't control to be different so I can feel something different. I'm reminded of the curtain a previous question talked about. I also experience that curtain and I can tell you that there's only as much of a curtain as I perceive there to be. the curtain dosn't tell me how to feel. I can feel however I want, no matter what is happening behind or in front of the curtain.
+
+in that sense, I actually consider the curtain to be a huge advantage to me. if the curtain were lifted, I would be doing a lot more observing and less deliberate feeling (calibrating) to the way I really want to feel. I personally think the curtain is of tremendous advantage.
+
+as a quick side-note on that, I find it such a great advantage that I want to find a way for the certain to remain present, so that I get so good at feeling my reality become manifest faster and faster that I'm literally forming reality in 3d space as fast as I can feel it. this is the +5 I have been talking about, and I think my fastest path to get masetry over it is to accept the curtain as being a great way for me to get good at attracting the things I want (by the way they feel) before they become manifest in my experience.
+
+inotherwords, if I were to feel something bad and then visually see that, then observe that, I would attract more of what I'm observing and I would get wrapped up in the observation. instaed, if I don't need to release my need to observe the thing I feel and just let it be. when it's finally strong enough (eg. when it feels so good, it can no longer be kept away from manifestation), it will manifest in 3d space for everyone to see. coming soon :)
+
+#### (52:45) - observation and then commenting on what you're observing is not deliberate creation
+
+I wanted to write about this because I get reactions on this. it feels to some people like I'm not affected by LOA. I observe and then comment on the observation all the time, yet things seem to continue to get better for me. the reaction feels like people think the universe is responding to me differently or I have some secret thing.. it's a weird reaction. I'll do my best here to explain what I think is going on.
+
+I *do* observe "bad/unwanted" things all the time, however these "bad" things don't feel bad to me. you will notice that I often times am laughing at it or find it humorous.
+
+I think what abraham is implying that people observe and then comment on the thing, like "wow that looks great" -- and that is in fact not deliberate creating. that is simply reacting. what deliberate creating is, is feeling the way I want to feel (good -- something funny or humorous) about the subject, and then observing and commenting on it. the observation and comment means it'll get amplified, so if I find it really funny, then I'll find the next thing even funnier and so then likely more things that appear out of control to others, which I find hilarious will begin to manifest in my experience.
+
+like maybe take the moths for example. if I were dreading the moths and hated everything about them being here the last time and couldn't find them funny, then I would get more of those feeling experiences, but I remember last time they were here I was (mostly) cheerfully killing hundreds of moths a day, and it didn't really feel that bad to me. it was just sorta a thing. this year, they showed up about as strong as I felt about them last yaer when I left them. there are moths around but they don't really bother me much. last year it still felt like there was a bunch of uncontrollable things happening all the time. same with the mosquitoes.
+
+---
+
+I've found that the residual manifestation from past attraction lingers for as long as it's noticed (moths lasted until I dunno like late summer or something), but the next opportunity it seems like it reflects the new vibration. what I maan is, I notice that after it has manifestad, it's usually far too late to change the manifestation details (without lots and lots of effort). instead it's easier to just let find a way to feel the way I want to feel (dispite the conditions) and then when it manifests again, look to see what's manifested and see what can be changed.
+
+for example the weeds. I gave a lot of attention to the weeds as a transformation process. however a few days ago, I started to see the weeds as a sort of simile to "the iniquities of the fathers" -- and low and behold all the new weeds are the difficult-to-pull goat-heads, while the previous ones were the easy-to-pull leafy ones. I'm still getting my bearings on the weeds.
+
+I noticed that the iniquities of the fathers analogy for the weeds is kind of a bad one, because all of those resistant "iniquities" are mentally manipulatable with nearly zero effort. if it were as easy to pick the weeds as it is for me to transform those "iniquities" (generations of practised behaviour), then I could transform the weeds into something wanted very easily. I'll have to figure out how to do that.
+
+I do share a reality with others and while I would like to find a way to transform them mentally, there are likely millions of people still adhering to the traditional established weed behaviour. in order to override their attraction, my attraction has to become stronger. as bad as many people can feel about weeds, I think it will be a lot easier for me to find a way to feel considerably better about the weeds than people feel bad about them -- a net positive.
+
+if that's the case, then I should be able to observe them, comment on their (good and bad) behaviour yet still attract something that reflects how I *feel* about them. magic :)

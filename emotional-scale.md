@@ -26,9 +26,10 @@ additional notes derived from recent abraham-now broadcasts
 - gratitude
 - satisfaction
 
-#### 8. boredom
+#### 8. boredom / complacent
 - letting go
 - giving up
+- nevermind
 
 #### 9. pessimism
 
