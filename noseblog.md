@@ -634,4 +634,37 @@ nothing can ever be 100% only wanted (containing no element of unwanted) until i
 
 [2]: we're all on a path back to the source. we see the AC waveform on the screen, but what that is shorwing a cycilical movement going away and towawd, above and below something. the duality arises because you have to pick from one of the two pairs or dierections: away or toward - above or below. this shows the cyclical movement (pumping) of going away and then toward (sorta like sex, yes -- the male experiences the horizontal movement and she experiences the expansion or vertical movement). so everything goes away and then comes back (yes, like the prodigal son).
 
+
+### 2021-06-08 22:18 - girlz
+
+this afternoon I got woke up I by a weird dream. the only part I remember was someone was telling me something like an ultimatim where I had to pick between two things I didn't want. they had a gun. I said something like, "now you have to blame me" and went in front of the gun, when it fired I could feel the rush of air, but I didn't feel that sharp stinging feeling of pain when getting hit by a bullet (I dunno how I know what this feels like). they fired again and again I felt the fast moving air coming out of the gun but I didn't feel the sharp stinging sensation when getting hit by a bullet. I was so shocked that the bullet didn't feel like I was getting shot or even have any injury at all that I woke up.
+
+I either fell back to sleep or lost conscousness a little bit after this, but when I awoke again this time it felt to me like I was running out of time. I had been feeling this more and more lately the last week or so, as if my life as I know it is coming to an end. I don't really want that. I quite like just hanging out at mom's house. I realise there are a lot of people that would probably like to interact with me though, so my staying at mom's house forever isn't super helpful -- just I don't feel terribly motivated to do anything lately. I'm sorta "running out of time" and it's like I don't even care.
+
+the next sense that I had was that I should get started writing down as many of the girls as I can. I have been listening to @[abe-now](2021-03-27) and I noticed a bit of a change in the way that the girls felt, and also abraham would say things like, "here's another one" and other weirdnesses. anyway, the first part went along fine but then the second part started to get very extreme. it felt like I was making note to write down a very large portion of the questions they were asking...
+
+so when I'm laying there thinking about what to do, I was thinking that I should power through the remaining abe-now episodes and write down as many as I can along the way. we'll see how it goes...
+
+---
+
+I really feel very strange. it's unlike anything I've ever felt before. it doesn't feel necessarily good or bad -- I don't think. I have been considering my position as I'm pretty certain that I won't be "perfect" at all by the time this whole thing finally happens. just the opposite actually. I mean I'll be pretty good at stuff, but it seems like  the theme of this whole thing has actually been to "follow the mistakes" or maybe "let the 'mistake' guide you to the new descovery"... something like that. as such, it feels like there is not going to be much "closure" to anything -- but exactly the opposite -- like lot's of new stuff (with tons of mistakes in them) that I'll leave behind.
+
+whatever happens after I make my first transition is not likely sustainable. therefore, I wonder what capacity is maximum capacity or if there isn't really a limit on capacity, and instaed the "time limit" is more about timing for max wanted rather than reaching a limit.
+
+let me explain: imagine for a moment that there isn't a limit on capacity -- and that as long as nosebook is capable of desiring and coming into alignment with their desire, there will always be a way to hold me further (the "fundamental" principal upon which I base my "going infinite" theory). next, imagine that they were somehow capable of finding their alignment. someone somewhere in nozebook is in alignment with their source -- and this I'm sure of. abraham has mentioned it, and if there wasn't someone in alignment at the top, the whole thing would have never even got off the ground.
+
+what I think is happening is the guy at the top (I imagine this is tesla or some variation of that personality) is in alignment and then "she" is using a bunch of unsavoury henchmen to get the job done -- also most likely all extensions of that source as well. without this alignment at the top, it simply would fail. that means that I'm pretty certain that it *is* possible to "go infinite" now, but we have either decided not to do it now or to drag all of you guys in with us (not sure which one).
+
+confusion. let's try another angle: imagine that they are capable of desiring to hold me forever and the guy at top *is* capable of finding alignment with that desire (even if the majority of the henchmen are mostly out of alignment). this means that going infinite is possible right now. that means that I could continue to divide my source into more and more bodies and we continue to multiply indefinitely creating our own reality. obviously the downside to this is that without a source of contrast we would stagnate rapidly.
+
+this is why I think it's quite possible that we're going to pause a moment and "not need the manifestation" for a bit. if we redesign the humans first it'll be considerably more wanted. what I mean is, I find it likely that the reason for the time limit is not actually one of capacity but instead of making a conscious choice to transition into the boys to do a quick few thousand years (6k?) redesign of the human before going infinite. additionally, the redesign will allow us the capability to generate our own contrast quite easily. in the same vein, imagine if all of us were capable of not only creating any version of ourself we wanted, other new desirable creations, and also many other "bad-guys" for each others' projects in the unlimited worlds we'll want to inhabit and explore (I'm still heart-set on the galaxy idea... hehe).
+
+so, yeah, I guess I wanted to just talk it out there a bit as I think that things are purposefully being left undone and in a chrotic state because the creation process is going to continue on for a little while longer. we're not done yet and there's nothing going wrong.
+
+---
+
+the whole thing about "going infinite" is that whenever that happens, there will never again (at least for any forseeable future) be another manifestation. instead, everything will always be in a perpetual state of creation -- very much like source, but they're always in the perpetual state of becoming more (amplifying). however, because we're physical things will manifest, but each "manifestation" will never be anything big. always next logical step so that there is never an imbalance created. so I guess the steps toward going infinite is to ensure a good source of contrast cannot interfere with the creation, and actually only makes it better. then, to next logical step it (not need the manifestation) the whole way there.
+
+huh...
+
 ### 2021-05-25 ??:?? - hair and warmth + puberty
