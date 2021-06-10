@@ -761,4 +761,39 @@ to be continued.
 
 [4]: this is another interesting topic because think like this: 3d would be the most "inside" of my body but it's the most disconnected because I am not my body. 4d recognises something more -- a creative space. 5d recognises the concept. 6d recognises the variations of that concept over time. 7d recognises different parts/conmbinations/identites of a concept. above that would be source right? well, there should be another layer of perception capable of being placed between 7d and infinity again. I started out in a single body to multiple identities on multiple timelines. multiple universes is next? what's that like? more dimensions I can pervceive, the more I of myself I can see, but who is me? it's where "I" draw the line. I am infinity.
 
+
+### 2021-06-10 10:32 - the seed
+
+after finishing last night's entry I have been fascinated with the concept. I want to think more about it, so I decided I'll write something about it. I don't really know what I'm going to say but I have subjects I want to cover.
+
+first, let me recap what I wrote. I started off by explaining that there is a feedback loop that is happening between two diffreent parts and I postulated that this is what happens internally within a seed. this feedback lopp is what creates the energy necessary for gwowth. trying to relate this to how plants germinate is unknown, but for now let's imagine that the egg is the wanted asspect -- the nurturing part, and the seed is a tiny amount of unwanted that manages to get into the egg.
+
+the egg is designed in such a way that the DNA of the egg knows how to transform this unwanted vibration (from the DNA of the sperm) into something wanted. the unwanted aspect needs the beneficial environment the egg provides to continue to exist so it now "feels" like it depends on the egg for its cntinued survival. in fact, without the wanted environment that is created as a result of transforming the unwanwed into wanted, the unwanted aspect would destroy itself.
+
+let's simplify terms. I will refer to the concept (X), environment (ENV), its cnnditions (C) -- then, unwanted (UW) and wanted (W) aspects/concepts. the thing they exchange is energy -- vibration, but I will refer to it as perception. consider that before anything is created, it is conceptualised. the concept of something is a sort of vibrational structure which defines the thing physically, but I will blur these lines between physical and conceptual, because for me they are the same. feeling (concept, spirit) is the same as physical stuff, and the way that one perceives theirself *is* the concept they have of theirself.
+
+though it's possible to use concept and spirit interchangably, I will find it difficult to refer to the unwanted spirit and the wanted spirit. it sounds like I'm casting out demons, when I'm actually trying to say that growth or creation happens in the runaway feedback loop of taking the unwanted/demon spirit/vibraraion and transforming it into the creation it's supposed to be. so, in a way we do all have "original sin" -- but it's what fuels the growth.
+
+---
+
+the seed bit will make more sense when I retell the same concept as a form of perception. I thrive on unwanted. the more unwanted I can get, the better. I have found a way to transform any and all unwanted into wanted with ease, which means that no matter what kinds of unwanted things that enter into my perception, I can quickly transform them. they fuel the rate at which I grow, not inhibit it.
+
+you can imagine a seed finding itself in an environment (ENV) and that ENV has a number of frequencies going in it. the seed is specifically designed to turn those UW into W. some seeds are more suitable for some ENV than others. depending on the concept of that lifeform, it will respond to those environments either favourably or not. this must be the reasaon why "extremophiles" are able to exist in such "harsh" (by our standards) ENV. the concept (X) can transform the C of the ENV into something W. therfore they can exist and function just fine in those extreme settings. life on this planet is suited (or bound) to earth ENV and its C. in this sense, you can think of this earth (or any ENV in it) also as a concept or vibration.
+
+you can consider that if the concept is just responding to its ENV, then cells in the ENV of the heart will turn into heart cells, and cells in the ENV of the bones will turn into bone cells, etc. the ENV input defines the manifestation of the output of the concept.
+
+let's go back to perception. I feed on unwanted vibration because I can transform it so easy. what I need is a mechanism to replicate and get more unwanted vibration (which I will then transform). each cell is designed to emit UW so that I can transform it into W. the more and more cells that I make, the more unwanted I get, so therefore the more I can transform. it quickly becomes a runaway feedback loop[^1].
+
+there is a difference between me and a plant though because I have general purpose feedback system (emotions), so I can take any input and transform it into something that feels good. every thing has an inner being (concept) which the thing either resonates with or not. for most things in nature the only input to this inner being concept is the ENV stimulus. we however can think and take actions and those either feel good (resonate) with the concept or they don't. when evolution happens in nature some massive amount of UW from the ENV causes the X to become more. the physical things now have to find a way to find suitable C and ENV for the expression of the newly evolved X. we also have this conceptual (inner being) feedback system, and its dynamically adjusting just like the others, but because we can think, we can perceive UW much more frequently, so therefor the X is moving and expanding at a much more rapid rate than an X with its only input being the ENV.
+
+the other major diffreence between us and other things found in nature is that we're not limited. we have the capability to continue to expand infinitely. normally, all that's given is the steady signal source of the ENV but for example in our case, all around us we have constant input of *perceeived* (UW/W) contrast which can then be transformed.
+
+what this means is that because we can think and consciously choose things, we are unlimited, while the plants and animals are essentially programmed. if they encounter serious amounts of UW, they die and evolve slightly but I can rapidly find a new tuning to the evolved W concept. this means that at some point an equilibrium will be reached. the UW->W from the seed won't be the majority of its W input. eventually it'll receive most of its input from the ENV instead. if it doesn't know how to turn that UW into W effectively, when UW and W become 50/50, it has reached its maximum size and doesn't grow any further -- not because it stops creating more cells -- but because it can't transform more than 50% of its input into W.
+
+obviously I've figured out how to endlessly convert UW into wanted because I've figured out enough of how things works that this is now effortless for me. I can continue to transform stronger and stronger signals of UW into W easily because I know how UW feels and I know how W feels, and tuning is just a process of finding a way to feel good about the conditions without needing them to be different.
+
+wow, my mind is totally blown. I really enjoyed writing this :) happy eclispe everyone!s
+
+[1]: I think this is why I have a time limit and why I think its more to do with timing than capacity. the size of the thing needs to be big enough to be viable, but not too big that it collapses under its own flaws.
+
 ### 2021-05-25 ??:?? - hair and warmth + puberty
