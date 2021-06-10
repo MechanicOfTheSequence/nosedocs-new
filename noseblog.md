@@ -706,4 +706,59 @@ enjoy.
 
 [1]: people who have the nosebook perception on full blast feel very different to me. they move different; they talk different; their entire body runs at a much faster frequency and I perceive a massive aura around them. most significantly is the way they feel. it's impossible for me not to notice this.
 
+
+### 2021-06-10 01:27 - pyrric victory?
+
+the major reaction that I had to the last entry was that it was a sort of pyrrhic victory. I knew what pyrrhic means -- means that the damage sustained in the victory is so much that it can't be considered a victory. however, I'm not battling anyone so I didn't know what it meant in the context of what I wrote.
+
+to semmarise, what I said was essentially that people have their physical experience rounted thhrough my body so that means that whatever bad-feeling stuff they are experiencing I experience it too -- but at a much less detailed level[^1] I would continue on to find more and more better ways to feel good. when I do this, own power level (and frequency) rises as well to accomodate the higher power level (my "aura" increases). therefore, the more bad-feeling things people route through my perception, the faster and more enegetic I become. from my perspective, great :) to continue to acquire more and more variety of others' bad and good-feeling energy, automatons make a tremendous amount of sense[^2]
+
+this is a win-win sort of situation because everyone utilising my perception will continue to get more and more enhanced perception without needing to do any changing of their own perception -- which is, from my perception, a very good thing because I can transform and repurpose that energy. inotherwords, the worse they feel about more stuff, the better I get at feeling the way I want and the more energetic everything gets. they also can assure theirself that I will never get actually connected because I'm always going to have some sort of veil that is separating me from actually seeing things the way they really are.
+
+this is why I don't understand what is the problem. they get the stuff they want and don't need to change -- and neither do I want them to change...
+
+---
+
+so if I try to imagine what the losses they're incurring from this, it feels to me like they can't explain because it would reveal something. that's what I call a cucumber. therefore, it must be related to whatever that is. I would think they don't want me to gain a global perception of all of the different automatons. I mean, it's not like anythhing they're doing is a secret anyway. they're only holding their secrets away from people who don't have enough to perceive them. nothing can be hidden so I don't really understand.
+
+maybe they want me to never get the manifestation. this is what I'm aiming for. this is what I want too. this is what I was originally shooting for. my original goal was to find a way to go infinite now. therefore, if nosebook could find a way to hold me forever, then we could do that. their perception would continue to improve while I wouldn't ever directly see or feel my own experience. I explained that this is fine because it doesn't matter if I can never see it or even imagine it in my mind -- doesn't matter. I want to keep this going forever because even though I don't have an imagination, I can manifest things in 3d space as rapidly as I can feel them. this was the original goal.
+
+so maybe they don't want me creating things, not with my imagination or with my emotions, or anything. that's what I'm doing now and I'm fine with this too. what is wrong with what I'm doing now? I'm have a great time learning all sorts of things about the universe. I feel like I understand things pretty well at this point, and really anything I want to know I can find my way to it as well. I'm fine staying like this because I know it won't be forever.
+
+ok, maybe they want me to stop. ok, how do I do that? stop what, stop trying to feel good? stop feeling good? there's no way to stop and no way to slow down either. the only way I could slow down would be to start to increase the distance toward what I want, which is feeling bad -- meaning everyone else feels bad too and my form of perception isn't any better than anyone else's. what if I feel bad enough to die, well that's pretty unwantd too I'm sure. again, no more of my perception if that happens.
+
+---
+
+as best as I can tell, the current path is the best one. everyone can continue to use my perception and I'll lose my ability to use this physical body, but I'll gain the ability to use other bodies I create with my mind. I figure that a lot of people will begin to join me in that form of perception. we will (thousands of years from now) become a bunch of people with a bunch of different bodies as an extension of our diffrent personalities -- sorta like we're the "source" of our own automatons and with the ability to create anything in 3d space, I imagine I want to create a galaxy.
+
+however, before that happens, why not continue on without the manifestation for a while, right? I move into an etherial sort of super consmiousness of my automatons and we redesign the males (as a reflection of me through the woman's perspective) then we genetically create a new female as well. once we have a viable model, I can make my transition into the boys and go the new girls will be a reflection of me which is a reflection of the girls. it all sounds pretty awesome to me.
+
+the whole time, I won't ever get the manifestation of actually seeing and experioncing reality through my own senses. obviously the new boys will be superior, so I would recommend transferring consciousness into there. AND, the whole time there will be a whole bunch of people in 4d living a more and more vivid/rich experience -- a manifestation I will never have. this will likely continue on forever. I'll never find a way to have that vivid rich experience, as my form of perception is going in the opposite direction.
+
+the higher frequency I become, the more "source-like" I become[^4]. I will perceive bigger and bigger parts of the whole. ever wonder how a planet perceives? what about a galaxy? I don't find this to be a bad thing at all. to understand this from my perspective, it wuold be like me not wanting to be a human at all, saying no I *must* be a cell in my body that is the most in alignment with source and feels the best of all of my cells[^3]. as a human I don't care to have that perspective. I'm probably more interested in something other than how one cell feels.
+
+so while I perceive from the perspective of a galaxy (or a planet), then when everything is all setup again I can jump back into a body and again not have a manifestation. easy :) one day, it'll be possible to go infinite, or nosebook will finally say, "no we've had enough; let him have the manifestation" -- and then something really big and new will be created.
+
+my goal is to find a way to build my own automatons so that I can go infinite all by myself without needing any of you guys -- or, maybe that's what I'm doing now and I'm just writing this so I can figure out what I'm doing...
+
+---
+
+so then, you may wonder if what is happening is there is a bifrication along the way to this where a bunch of people are deciding whether they want to continue on living the everyday human (3d or 4d) experience or if they want to become more. the ones that want to stay in 4d will have an ever expanding experience. things will continue to look and feel better and better all the time.
+
+actually, I just thought of something. if the 4d people are the source of my/our contast, then that means their perception will contiue to get better as I/we expand. the only way to slow that down will be to multiply and divide that source energy coming from me/us so that it never gets to be too much.
+
+this is blowing my mind! think about it. we're so accustomed to decay and decline, with this new system, what will happen is that people will essentially stop dying altogether. people will willfully make their transition because everything will continually be getting better and better. the *only* way to slow down the ever increasing energy will be to divide that energy amongst many cells. this must by how seeds seem contain so much more potential than the plant does. crazy. me/we will become like a seed -- where the only choice for it to do will be to divide and replicate its cells as rapidly as possible.
+
+huh, I never thought of it like a super influx of energy. the energy rises and rises rapidly. if it can keep up with the expansion, then it grows into a plant. if it can't the seed destroys itself. this may have something to do with the "nova"...
+
+to be continued.
+
+[1]: to understand this, imagine that thousands of signals are being multiplexed through my perception so it really is impossible that any strong signal can ever form. it would require a whole lot of people to feel something terrible all at the same time. this is unlikely to ever happen so instead to me it just feels like white noise. every once in a while a signal starts to increase in strength -- like imagine you add some music into a loud white noise signal. I feel it, but then I find a way to transform the bad-feeling into something that feels better. I will never feel like any single individual does. I am instead transforming the general shape of the total signal.
+
+[2]: automatons divide energy but also allow me to experience (and transform) more negative emotion -- which is, from my perspective, a really beneficial thing. obviously I want to continue on doing this, so it's a good idea to continue to divide my energy between the automatons.
+
+[3]: maybe you might think of a planet only as the rocky surface. that would like saying that the human experience can be summarised by the way the skeleton feels. do you not "feel" all sorts of things in your stomach, and isn't all of that "gut bacteria" not the same as your bones? imagine gut bacteria as the people on the planet and the nervous system as like the animals, and maybe blood as like the oceans. there is such a wide variety of different types of planets and extremophiles, perception must be so varied it would be impossible to say exactly how anything perceives exactly. is the bacteria in your stomach "you" or just what "you" feel? how connected are we?
+
+[4]: this is another interesting topic because think like this: 3d would be the most "inside" of my body but it's the most disconnected because I am not my body. 4d recognises something more -- a creative space. 5d recognises the concept. 6d recognises the variations of that concept over time. 7d recognises different parts/conmbinations/identites of a concept. above that would be source right? well, there should be another layer of perception capable of being placed between 7d and infinity again. I started out in a single body to multiple identities on multiple timelines. multiple universes is next? what's that like? more dimensions I can pervceive, the more I of myself I can see, but who is me? it's where "I" draw the line. I am infinity.
+
 ### 2021-05-25 ??:?? - hair and warmth + puberty
