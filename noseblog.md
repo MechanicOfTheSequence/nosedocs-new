@@ -796,4 +796,21 @@ wow, my mind is totally blown. I really enjoyed writing this :) happy eclispe ev
 
 [1]: I think this is why I have a time limit and why I think its more to do with timing than capacity. the size of the thing needs to be big enough to be viable, but not too big that it collapses under its own flaws.
 
+
+### 2021-06-10 11:47 - case in point
+
+I just realised. a perfect example of what I just wrote just happened. I went upstairs, said hi ho caitlyn and I noticed she wasn't wearing a mask. I had the idea of asking her if she had the vaccine because I heard (on SNL I think) that if you have the vaccine you don't need to wear a mask. she told me she wasn't. I made a bad joke about having a legednary immune system and went downstairs.
+
+I think I found a rock in the clothes hamper and ran back up to give her that. I noticed some discomfort about the mask conversation and started to think about it. like I said, I thrive on chaos and unwanted, so I often times find myself in uncomfortable situations. I just have to find a way to transform them into something wanted. I started to think about how I actually don't believe that we already were exposed (and had) the COVID. I believe that the way one feels determines the way that the body responds, so actually I've been considering the idea that I want to try and build a bunch of deadly viruses and inject myself with them, then find a way to feel good anyway. if I can transform that UW into W then my body will generate the anti-virus vaccine automatically.
+
+anyway, back on the subject on SNL, I was watching weekend update where colin was reporting on trump getting the virus, then he claimed that COVID makes you stronger and it made him feel better than 20 years ago[^1]. that part also got me thinking because the reason why I want to inject myself with those viruses and then find a way to feel good anyway is the same resson why I want people to be routing their bad-feeling experiences through my form of perception. the more bad-feeling stuff the more of an oppprtunity I have to find a way to transform it. if I can feel the way I want to feel (ie. the way I conceptualise myself), then like trump, I will feel stronger and my perception will continue to increase. so, I *want* more opprtunities to get COVID (and other viruses), not less. they will certainly make me stronger :)
+
+anyway, back to caitlyn. I imagined that she could potentially perceive some fear because maybe not wearing a mask when not vaccinated is like a "bad" thing, so I was tihnking about different ways to perceive it to ease that potential fear -- like maybe, "well now that the worst is out of the way" or maybe, "doesn't matter what happens because things are always working out for me" -- basic stuff like that. I felt some tension lighten up as I transformed that into something wanted. I then got the idea to write the last entry. I didn't really know what I was going to write but I could feel it and just needed to start getting it into words. I'm very happy that I could see how seeds work. this is a subject that has been bothering me for a very long time now. I also couldn't figure out how extremophiles work either but now I understand both.
+
+so cool! just find a way to turn an unwanted feeling into a feeling that fills in things I've wanted at once :)
+
+really really cool...
+
+[1]: @[youtube](https://youtu.be/k3lV4BzOVZg?t=85)
+
 ### 2021-05-25 ??:?? - hair and warmth + puberty
