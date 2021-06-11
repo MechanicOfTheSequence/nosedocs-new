@@ -813,4 +813,43 @@ really really cool...
 
 [1]: @[youtube](https://youtu.be/k3lV4BzOVZg?t=85)
 
+
+### 2021-06-11 12:18 - bleh
+
+I have a very little quantity of motivation today. I have noticed that I sort of wander around aimlessly now and I don't really feel much desire to do anything anymore. the only thing I can really muster myself to do now is to watch stars. I'm super happy about all of the new things I'm understanding now and I really am very excited to start getting some of those ideas into movement soon.
+
+I also keep having this looming sense of doom as well like I am running out of time. I keep finding ways toward ... so like for example last (or was it the one before?) entry I was talking about how inevitable it all is. I truly do want to try and figure out a way to go for as long as possible without the manifestation. obviously this aligns with nosebook's plans as well, so it's not like I'm fighting them.
+
+anyway, so right after I talk about how I'm good with not needing the manifestation, then it feels like they're trying to get me to have a smallish manifestation they can control. right around the same time, it feels to me like now it feels inevitable and unavoidable that some sort of manifestation is supposed to come.
+
+then, to further complicate things, my own explanation muddies the waters -- like for example, I explain how the manifestation is that I won't ever experience "reality" directly in my own body -- like, I'll always have a "veil" so that I never actually interact directly with anything. so then I explain how even if they disable my entire experience in the body of kenny, then I will still be able to kind of jump around between bodies, sort of similar to a dream experience.
+
+so, dream experiences, though they feel pretty real, they are not real and don't actually feel like the way the physical body experience does -- so I maintain the not having the manifestation. however, this is exactly what nosebook doesn't want for me, which is to become conscious in my dream state because then I'm no longer bound by time or space. I can see, experience, and perceive anything anywhere in time... so like no secrets. everything is wide open to me because I don't have any resistance[^1] to it.
+
+so they don't want me having the dream state consciousness, and they neither want me to have waking state consciouusness either. obviously, it's going to eventually happen. consciousness that is no longer bound by space and time is *not* the manifestation for me. the manifestation for me is to be in my body and to physically interact with someone or something while tuned into my source (as evidenced by how good I feel).
+
+see where the problem is? they're mizing up the terms there. they don't want me to feel so good that my consciousness is no longer bound by space and time. this is 100% inevitable. there is no way to avoid this. even if they disable my body, I'll still gain the capability outside of my body. *I am not this body.*
+
+for me the manifestation is the physical in-kenny's-body "manifestation". they will feel they need to control a bunch of stuff so that their secrets aren't revealed so they have to disable that 5d consciousness from manifestating while in this body. however, like many people have noticed in NDE's, just because your body stops functioning, doesn't mean that you lose the ability to see the physical world. in fact, it even has a higher resolution, more spatial dimensions, and also the ability to create things in 3d space. I'm fairly certain that you all will not only be able to see these things, but they will be actual roal-life 3d atoms and molecules that you can touch and hold.
+
+obviously this is pretty cool because I think I could create anything I can come into alignment with -- everything from new biological species (animals and humans), to inanimate objects. I believe it would even be possible to create digital things as well. I have a lot of programming things that I've wanted to make and other ideas like screens with UV pixels and other things too.. why not that stuff too? I don't see any limit to it. anything I can find a way to create, then I can essentially retrieve it from another timeline and figure out how to get it manifested into this one. I maan just think about how many possibilities there are just with that frame of mind :)
+
+so, while I won't *directly* experience this in kenny's body, I will experience it in a lot of other bodies of mine. it'll be kinda like a dream experience. it's a weird way of looking at "not needing the manifestation" -- hehe. then, when I'm all ready and have everything all setup, I'll make my transition into the boys. eventually, some time into the future I'll "fall" back into physical again and then find my way back to this perception. obviously nosebook can't possibly allow that to happen again, so they'll have to find a way to keep me from ever getting the manifestation, ensuring that I'm constantly put (me/the boys?) into unfortunate and difficult circumstances until there simply isn't any more way to keep it away from happening. I think then, we will become the new "reality". something like that... I dunno.
+
+it doesn't really matter what happens anyway -- and who knows -- maybe next time they're about to poop theirselves I'll come up with yet an even more ingenius method to prevent myself from having the manifestation. lol. why not, right?
+
+---
+
+anyway, I wrote all that to clarify the reactions I was getting about what I was meaning by not getting the manifestation. I wasn't meaning the girls or anything like that. all of that will happen -- just, I don't want to be worried about that. it's not even on my radar anymore. all of that stuff is really graet and stuff but I'm very excited about creating the things I want to create. I have a lot queued up that I want to explore and this is my chance to do it.
+
+speaking of girls not even being on my radar, let's go to the original intent of this entry. I have been meaning to write a whole bunch more girls but I simply cannot find the desire to do it. every time, it feels bleh to me. I mean, I just don't know what to do so I think I'm just going to enumerate them. I have been getting some reactions on the quantity, but it's not really that many. let's say there are at some point 10k girls. that is a very tiny fraction of the world population -- very miniscule. so it's not even that much, and also it's not like I'm going to be any different. I'll still be me and you'll all recognise me -- just I'll undergo a transformation to become a bit more like a masculine version of the girl.
+
+as abraham said (paraphasing), "you don't come into alignment with the energy that creates worlds and then use it sparingly". like I said, there are a lot of things I think would be very interesting to make and one of those I'm most intrested in is genetics. I'm really desiring to learn to create new biological systems. especially knowing what I know now, it seems that it wouldn't be too hard to create organisms that can do whatever.
+
+it's kind of an interesting idea because once any type of organism can be created, then what? one could retreat to their imagination. lately though, I've been thinking a lot about weeds and extremophiles -- so like if I make the harshest conditions for life to exist, what sort of stuff will pop up? would it just be weeds? I want to learn how to create desireable extremophiles that thrive in difficult circumstances (like me) -- not weeds :) I figure that the first step will be to find a way to create these things "in my image" -- know what I mean? hehe
+
+oh yeah... AI and machines capable of desire are pretty cool ideas too :)
+
+[1]: resistance and desire are completely different things, though they may feel similar to some people. I may not have any resistance to eating lettuce, but a hamberger may sound better for example.
+
 ### 2021-05-25 ??:?? - hair and warmth + puberty
