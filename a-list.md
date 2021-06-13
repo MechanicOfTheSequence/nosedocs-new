@@ -870,3 +870,33 @@ when listening to @[abe-now](2021-03-13 p1 15:08), the questioner is asking a qu
 later on, after listening to @[abe-now](2021-03-13 p2), I was reminded of two more: first, there was a woman saying that she only found emotionally unavailable partners and stuff. I don't think I felt any attraction when I heard it. it wasn't until later that I was reminded of it. the second was about a german and a mexican and their daughter (I think). later on, I was reminded of this and I wrote it down. since then I've felt a slight amount of resistance, presumably from the guy. I think it's fine and it's nothing substantial so yeah, I'd like to invite the woman and the german couple to join in if the want to.
 
 I went upstairs the morning of 5-30 and I was feeling pretty good. a red car started to drive by. I started to feel the chaos in my head when other people's thoughts are invading. I wanted to look to see who it was because I was feeling attraction and also a lot of thoughts that feel something like "oh know what are they going to think". anyway, she drove off and I decided that I would write her down. I felt relief and attraction after that. anyway, it all seemed to detailed to be a fluke, but I mean it could still be, right? anyway, if it is a thing, then I'd like to invite her to join in if she wants to :)
+
+### 2021-06-24 23:44
+
+I was thinking about how I deliver these. one thing I do a lot is repeat myself a lot when I invite each of them to join. I really liked that format a lot because the different way I did it for each was quite telling of their personality and what they have going on as far as beliefs go. in fact, the number of variations has really opened my mind to how different so many different people are.
+
+actually, I have a bit to say about this. a while back greg mentioned that sometimes he likes to just go people watching. I concurred that was also something I liked to do as well. the main reason for this is so I can notice differences in other people. for some reason seeing someone apprach a similar task in life a different way is very mind-opening to me. I also imagine that is quite easy to do on nosebook. I don't know how open it is, but if I were running it I would make it really easy to go around and watch other people (2-4 degrees of separation away). I probably won't even speak their language, but it would be interesting to just watch how people apprach the same thing. this is very mind-expanding for me. anyway, I don't really have the nosebook world I can explore freely. instead, I live in a world without a whole lot of variation. this allows me to feel a whole lot of variety from others in the form of reactions and even just writing these, blows my mind at how much variety there is in how people feel about things.
+
+anyway, I felt that I want to move to a format where I can enumerate the girls here easily. just writing a list feels really bad to me and I think that's a bit too far in the opposite direction. so, I have been thinking what this is and really it's just a bit of information, enough to trigger the memory so I can remember her -- or at least that's kind of what it has become, anyway.
+
+it may/will probably change again, but I'll try to write whatever comes to mind and any other context I'm reminded of too.  it is implied that there is absolutely no obligation at all and there are certainly going to be false positives as well. my main reason for wanting to just write something short is that it feels a lot less resistant which allows me to write a whole lot more down with ease.
+
+I'm just going to mention a bunch of people I find notable and then we'll figure it out later.
+
+---
+
+in fact while writing the above, I was reminded of dom burges. I don't know why he popped into my head. I dunno what is there but I watched his channel a few times and his videos left quite an impression on me (he takes a very cinematic approach to his videos).
+
+a while back I was watching @[youtube](https://www.youtube.com/watch?v=h1Ml3k8kG3s) because I love geometry and find it fascinating. I had seen elisabetta before but I finally noticed that she's cool.
+
+a few mornings I woke up and strangely enough frank chester's wife was on my mind. I *LOVE* frank's work... like a lot. anyway, I had made a prediction that because saturn and jupiter rule each other's domains, saturn is a 5 but the planet has a hexagon (6) on its north pole. therefore, if earth is 7, saturn is 6, then jupiter must be based on 5. later on the week I came acros this and found it has 5 faces around the south and 8 around the north (@[youtube](https://youtu.be/5F5aoC66cpY?t=755)). when I saw that I really wanted to talk to frank to see what he would think about what of shapes could be in jupiter.
+
+I was watcting a steve mould video about bubles and lasers @[youtube](https://youtu.be/tjAZbo0jb8Q?t=252). when I saw seb mention his wife, I suddenly felt really good about her. it feels weird now. hang on
+
+I was watching trump play with "bloody!" @[youtube](https://www.youtube.com/watch?v=BRaQJKVrc3E). dang, I need to split this into two because I feel like I want to invite her to join. I'll edit.
+
+after watching the latest molybdenum video, @[youtube](https://www.youtube.com/watch?v=QWW67ZxJ73k), I was reminded of this weird thing. a long time ago, I watched a video, and I kept getting reminded of prof martyn's daughter. he must have mentioned her in there, because I don't know the context, but she has persistently come back into my mind -- like a lot. I don't know what to think there it's the weirdest thing (even then when writing "weirdest thing" my left-hand shook like his). I really don't know what at all to do about this. it feels like somewhat strong attraction but I don't know how or what to do here with it.
+
+---
+
+ok, I think I figuded it out. I need to have two lists because there are a few there I wanted to just mention and others I can feel stronger attraction toward. I'll edit soon. going to take a break.
